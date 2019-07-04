@@ -1,8 +1,8 @@
 # Character Sheets
 these are the characters that I have thought of and a sorta detailed description of them
 
-## Moray
-At the start of the story, Moray was quite old nearing age 70. they where a Master and has dedicated their life to learing and research about the P-Particles and the abilities they allow for. Moray themselves where able to obtain 4 innate skills one of each of the 4 elental types. 
+## Mikay
+At the start of the story, Mikay was quite old nearing age 70. they where a Master and has dedicated their life to learing and research about the P-Particles and the abilities they allow for. Mikay themselves where able to obtain 4 innate skills one of each of the 4 elental types. 
 
 ## A244XZ4305PHAN4
 
