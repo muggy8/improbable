@@ -9,6 +9,12 @@ Age: 66
 
 Description: At the start of the story, Mikay was quite old nearing age 70. He was a Master and has dedicated his life to learning and research about the P-Particles and the abilities they allow for. Mikay's daughter is Hickory and was once the strongest Grandmaster before becoming a Phantom Lord. The goal of Mikay is to convince his daughter to return to the Guild of Mastery and help maintain peace and balance.
 
+Backstory: in his early years, Mikay was an accomplished indiviual reaching the level of Master within his 20's but was never able to reach the level of Grandmaster. He married his wife who was also a master. After givind bith to Hickory, they reduced the amount of time they've spent acomplishing missions for the Guild of Mastery and spent more time raising the young Hickory instilling into her the virtue of honesty, hard work and morality. 
+
+Hickory was a fast learner and gifted at birth reaching the rank of Master by the age of 14 and became the youngest Grandmaster on the day of her 19th birthday. this brought Mikay a great deal of pride as the father of a legend in the making and inspired Mikay to try for more. this eventually earning him a fourth innate ability.
+
+The tragedy soon struck as being full of his own strength, he took on a mission that's somewhat beyond the capability of him and his wife wich resulted in the death of his wife and him narrowly surviving. this angered Hickory greatly and after making short work of the purpotrators, Hickory renounced her position as Grandmaster and left the Guild of Mastery as well as seperating herself from Mikay. The loss of 2 loved ones almost shattered Mikay and sent him into a deep well of despare. When he finally recovered years later, he began dedicating this life to righting his wrongs and his final task he has to do is to bring his dughter back to the path of rightousness as a Grandmaster who governs the peace and ballence of the world. 
+
 ## A244XZ4305PHAN4
 
 Gender: N/A
