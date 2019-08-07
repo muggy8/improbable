@@ -15,6 +15,8 @@ Hickory was a fast learner and gifted at birth reaching the rank of Master by th
 
 The tragedy soon struck as being full of his own strength, he took on a mission that's somewhat beyond the capability of him and his wife wich resulted in the death of his wife and him narrowly surviving. this angered Hickory greatly and after making short work of the purpotrators, Hickory renounced her position as Grandmaster and left the Guild of Mastery as well as seperating herself from Mikay. The loss of 2 loved ones almost shattered Mikay and sent him into a deep well of despare. When he finally recovered years later, he began dedicating this life to righting his wrongs and his final task he has to do is to bring his dughter back to the path of rightousness as a Grandmaster who governs the peace and ballence of the world. 
 
+Mickay has a pet slime named Pillow
+
 ## A244XZ4305PHAN4
 
 Gender: N/A
