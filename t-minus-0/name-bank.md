@@ -8,7 +8,6 @@ Lauren
 Hayden
 Tamara
 Willow
-Ethan
 Timothy
 Nancy
 Ray
@@ -19,3 +18,4 @@ Rovin
 Phanna (isekai'd)
 Mikay (summoner)
 Hickory (strongest)
+Ethan (Principal)
