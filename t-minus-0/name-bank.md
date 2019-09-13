@@ -13,9 +13,18 @@ Nancy
 Ray
 Alison
 Rovin
+Ivory 
+Andrew 
+Hannah
+Joe
+Ian
+Lacy
 
 ## Used:
 Phanna (isekai'd)
 Mikay (summoner)
 Hickory (strongest)
 Ethan (Principal)
+Amanda
+Melody
+Adrian
