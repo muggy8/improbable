@@ -19,6 +19,7 @@ Hannah
 Joe
 Ian
 Lacy
+Karen
 
 ## Used:
 Phanna (isekai'd)
@@ -28,3 +29,5 @@ Ethan (Principal)
 Amanda
 Melody
 Adrian
+Ellen
+Casandra
