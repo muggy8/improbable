@@ -20,6 +20,7 @@ Joe
 Ian
 Lacy
 Karen
+Anthony
 
 ## Used:
 Phanna (isekai'd)
