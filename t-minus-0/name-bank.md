@@ -21,7 +21,8 @@ Ian
 Lacy
 Karen
 Anthony
-Patrisha
+Patricia
+Larry
 
 ## Used:
 Phanna (isekai'd)
