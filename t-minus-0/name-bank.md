@@ -23,6 +23,15 @@ Karen
 Anthony
 Patricia
 Larry
+Serenity
+Apollo
+Sophia
+Leon
+Julian
+Dianna
+Susan
+Titania
+Mattheu
 
 ## Used:
 Phanna (isekai'd)
