@@ -64,3 +64,56 @@ The last time I approached carelessly, I got accused of being a "jump scare".
 
 I don't know what that is but it definitely doesn't sound like something I'd want to get associated with. 
 
+"Hi there my name is Mikay, how are you feeling?" I introduced.
+
+I didn't really get much of a responce as the summoned looked around sleepily before looking over to me with the same sleepy experession.
+
+"I guess we're in that kind of simulation now..." the Summoned Muttered.
+
+I wasn't exactly sure what to expect with this comment but it definately felt odd.
+
+What exactly is a simulation anyways?
+
+I noticed summoned looking at the horn sticking out of the middle of my forehead blinking a few times.
+
+"If you're wondering about my horn, I'm an Ogre. I'm the single horn type."
+
+"Oh... I guess this world has pretty strict devisions."
+
+"Um... Ok... So what type are you? I've never seen ears like yours before."
+
+"Me? Just a human? actually my setup puts me as a 4ACF3567YH3G"
+
+...
+
+I'm not exaactly sure if the summoned is lying but I dont really see a reason to. 
+
+Afterall, the summoning ritual only summons people who are willing to be summoned so there shouldn't be any animosity so early in our meeting.
+
+Ok, lets try something else then.
+
+"What's your name? My name is Mikay as I mentioned earlier."
+
+"Name...." said the summoned with an unsure tone.
+
+You can't be serious right?
+
+The summoned didn't seem to know how to answer the question.
+
+I mean how does a civilization work wtihout a name?
+
+As i was pondering this, the summoned spoke up again. 
+
+"My universal Identification Code is A244X0Z4305PHAN4"
+
+"A2... What? How?"
+
+"It's A244XZ4305PHAN4"
+
+"A name like that doesn't seem practical at all." I said in bewilderment.
+
+"Is it? It's been working out just fine for me so far. And besides I didn't say it was a name, I said it was my Universal Identification Code."
+
+"Uni-what?"
+
+"Universal Identification Code. It's a character sequence that's mathamatically unique within the observeable universe."
