@@ -206,7 +206,7 @@ After confirming this, I looked back up.
 
 "Well if you put it that way sure but I dont see where this is going." I said with skepticism.
 
-"Right now immagine if you can represent any number up to 36 with a single digit by using this system. start from 0 to 9 and then from A to Z. You get it now?"
+"Right now immagine if you can represent any number up to 35 with a single digit by using this system. start from 0 to 9 and then from A to Z. You get it now?"
 
 Struck with newfound understanding, I immediately looked down at my palm again trying to figure out what 4's code thing would translate to but I honestly can't even remember anything past AN4 now. 
 
@@ -251,3 +251,137 @@ At the very least I should give it a try.
 "Hmm?"
 
 "Would you be willing to help save my daughter?"
+
+Phanna gave me a look of confusion along with a "Wha?"
+
+Should I explain further? I probably should right?
+
+"You see, my daughter was once a Grandmaster of the League of Mastery. However because of my failure as a father and as a Master, My daughter has since forsaken her role as a Grandmasters and she's now in danger of the consiquences of this decision." I explained. 
+
+However, all I got from Phanna in return was silence.
+
+I guess the summoning did end in failure.
+
+This is the first time I've seen or heard of where the summoning called forth someone who's pretty much unwilling to help.
+
+I even had to permently gave up a portion of my own P-Particals to do this.
+
+As I thought this, I could feel my facial expression change to match how I feel.
+
+I looked away from Phanna and at Pillow who's snugly wrapped around my arms.
+
+The current summoning ended in failure, the previous summoning ended in death by illness. 
+
+I really didn't have much options left to begin with and just when I thought there was hope when I found the hero summoning ritual, the whole plan started fall apart with 2 back-to-back failures right from the start.
+
+I'm physically able to perform a few more summonings but is that even worth it at this point?
+
+One more would lower the number of P-Particles I have to the range of level 4 and at that point, the only thing I can do is to rely on the summonings to save my daughter.
+
+But given how risky summonings are, is it even worth it to continue?
+
+I looked back up at Phanna who's sitting there being lost in thought.
+
+It seems that Phanna has noticed my gaze and quickly snapped back to reality returning my gaze.
+
+"What do you need to save your daughter from anyways? I still don't understand."
+
+I was flabergasted
+
+Phanna isn't rejecting to help me?
+
+"What do you mean?"
+
+"I dont understand what you mean when you say you need to save your daughter since I don't quite understand what kind of danger this daughter of yours is in."
+
+"I-I see."
+
+I cleared my throat and began to explain. 
+
+"So here's the background, theres a group that maintains order across our lands called Mastery League. They educate people in the usage and application of Abilities to better the lives of everyone. However abilities can be used for great good but also greate evil. that's why the most powerful ability users are recruited for the purpose of maintaining order accross the lands. This was the role my daughter once held. Now what do you think would happen if one of the League's strongest and most powerful ability user decided to abandon her post?"
+
+"I don't know? Personally, I really wouldn't do anything. People come and go all the time."
+
+"Your world must be increadibly peaceful then."
+
+"Not really, it's actually quite the orginized chaos. I mean as an example, on avarage, every couple thousand years or so, we have a crazy person or group who decideds to engeneer a super bug to wipes out all complex biological life and one in every couple thousand of these groups manage to actually succeeds for the most part. but it's always fails to actually do any lasting damage as some other person or group's anti extinction contingency measures would restart biological life after without fail. that's why I really dont see what the big deal is with losing a strong 'Ability User' or two."
+
+I was shocked. I didn't know how to respond. I was searching for words to say but all that came out was:
+
+"What?!"
+
+It wasn't the fact that Phanna's home world seems like total chaos from what was described but, instead, at how uncaring and ok Phanna is with the idea of having all life be wiped out.
+
+At least that's the gist of what I understood from what Phanna just said. 
+
+"You're ok with the complete end of all life?"
+
+"Yes and no I guess. it'd suck to die by the hands of a bioengeneering attack but life as a whole will find a way, life always has and always will."
+
+"D-don't you care about dying?"
+
+"Honestly, If it wasn't for the fact that I'm only 796 years old currently, I'd be dead right now."
+
+Again, I was lost for words. 
+
+I didn't know how to respond to this. 
+
+It's as if Phanna had an unfulfilled death wish. 
+
+And 796 years old? Is that even possiable?
+
+I didn't believe a single thing that Phanna just said.
+
+I didn't want to. 
+
+I couldn't.
+
+I feel like the stuff that Phanna was saying has stopped making sense a long time ago yet some how I'm still here trying to piece together some semblence of meaning from Phanna's words.
+
+My mind drifted around in it's shattered state unsure of what to do when Phanna spoke up again.
+
+Do I even want to listen?
+
+"So about your daughter..."
+
+Somehow, someway, Phanna managed to bring my mind back to the present. 
+
+I shook my head violently trying to clear my head before finally looking back at Phanna.
+
+"Right. What about my daughter?"
+
+"What sort of danger is she actually in?"
+
+"A-ah right. the Grandmasters in the Guild of Mastery are seen as the protectors of humanity and those who are able to match the Grandmasters in power but isn't a grandmaster themselves are considered to be a major threath to all of humanity and are therefore known as Phantom Lords. I know that you dont really see that as a problem but in our world, we are absolutley unable to accept the total destruction of all humanity. That's why all those who are see as major threats to humanity are hunted by the Mastery League and fate that I would like to save my daughter from."
+
+"Oh... that's quite the cunundrum you have going on. So what's your plan on saving her from the life of being hunted?"
+
+"I... I dont know... I know there's no way I can forcefully return her to the Master League as her strength far surpases mine but I do know that at the very least, I must say sorry to her." I said resolutely. 
+
+"So you don't even have a plan..." Phanna said while gaving me a skeptical look from within the glass aquarium.
+
+"Unfortunately..."
+
+"I have no reason to turn you down but, you know, it's really hard to accept a request like this with only an objective and no actual plan of action right?"
+
+"...."
+
+I couldn't deny Phanna's accusations. 
+
+It was true, I had no real plan at all. 
+
+My plan basically ended at summon a hero and hope that said hero would be able to help me. 
+
+I had completely neglected to consider what is to come after. 
+
+"Look, Mikay, I really can't help you given everything you've told me so far. I don't even know what the rules this world opperates on. All I can do for now is to farmiliarize myself with this world a bit more and maybe i can come up with some kind of a plan. But if I'm unable to come up with such a plan, unless you come up with a workable on your own to save your daughter, there really isn't anything I can do for you."
+
+"I-I see" I said with much dissapointment. 
+
+It's really not like what Phanna says is unreasonable.
+
+I guess this whole summoning isn't a complete failure. 
+
+However, weather or not it's a success is still to be seen. 
+
+Though I'm starting to feel rather hopeful about my prospects now.
