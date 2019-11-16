@@ -32,6 +32,12 @@ Dianna
 Susan
 Titania
 Mattheu
+Amy
+Kevin
+Betty
+Molly
+Natalia
+Dew
 
 ## Used:
 Phanna (isekai'd)

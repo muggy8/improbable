@@ -1,8 +1,10 @@
 # Name
 
-"Thanks for holding down the fort, Pillow" I said to my pet companion as I awakened from my mid day nap in my late wife's room.
+"Thanks for holding down the fort, Pillow" I said to my pet companion as I awakened from my mid day nap.
 
-The wooden room I woke up in is unusually clean today as I had spent all morning cleaning this place up.
+The wooden room I woke up in belonged to my late wife.
+
+I've been using it as a storage room for some time now but recently, I've been cleaning it up again which is why it's unusually clean today.
 
 The bed I am currently sleeping on is positioned next to both the wall of the door and the wall to the left of the door.
 
@@ -14,7 +16,7 @@ I leaned towards my pet slime, Pillow, who was lazing around on the ground next 
 
 "Still nothing?" I asked as if expecting a reply but who am I kidding, Pillow's a slime blob with no way of communicating. It can't possibly reply.
 
-Though that may be the case, having it on watch is probably still a good idea since it'll surely cause a ruckus if someone did show up.
+Though that may be the case, having fit on watch is probably still a good idea since it'll surely cause a ruckus if someone did show up.
 
 Or so I had thought as I looked over to the aquarium that was located by the wall directly across from the door of the room.
 
@@ -22,7 +24,7 @@ I was fully expecting it to be empty but I noticed a slender person sleeping in 
 
 Pillow normally lives in that aquarium and swims around happily within it but a few days earlier, I had the aquarium drained to prepare for the summoning ritual.
 
-After draining and cleaning the aquarium, I inscribed the summoning inscriptions onto it as I had done before with the usual conditions.
+After draining and cleaning the aquarium, I inscribed the summoning inscriptions onto it as I had done before with the usual cry for help.
 
 Well, only sort of the same as usual. I had no idea how well things will work out this time around since summoning rituals aren't normally done inside an aquarium.
 
@@ -254,7 +256,7 @@ Phanna gave me a look of confusion along with a "Wha?"
 
 Should I explain further? I probably should right?
 
-"You see, my daughter was once a Grandmaster of the League of Mastery. However because of my failure as a father and as a Master, My daughter has since forsaken her role as a Grandmaster and she's now in danger of the consequences of this decision." I explained.
+"You see, my daughter was once a Grandmaster of the Mastery League. However because of my failure as a father and as a Master, My daughter has since forsaken her role as a Grandmaster and she's now in danger of the consequences of this decision." I explained.
 
 However, all I got from Phanna in return was an eye tilt and a whole lot of silence.
 
@@ -270,11 +272,11 @@ I looked away from Phanna and down at Pillow who's snugly wrapped around my arms
 
 The current summoning ended in failure, the previous summoning ended in death by illness.
 
-I really didn't have much options left to begin with and just when I thought there was hope when I found the hero summoning ritual, the whole plan started falling apart with 2 back-to-back failures right from the start.
+I really didn't have much options left to begin with and just when I thought there was hope when I found the champion summoning ritual, the whole plan started falling apart with 2 back-to-back failures right from the start.
 
 I'm physically able to perform a few more summoning but is that even worth it at this point?
 
-One more would lower the number of P-Particles I have to the range of just above level 4 and at that point, the only thing I can do is to rely on summoning a successful hero to save my daughter.
+One more would lower the number of P-Particles I have to the range of just above level 4 and at that point, the only thing I can do is to rely on successfully summoning a champion to save my daughter.
 
 But given how risky summoning rituals can be, is it even worth it to continue?
 
@@ -370,7 +372,7 @@ I couldn't deny Phanna's accusations.
 
 It was true, I had no real plan at all.
 
-My plan basically ended at summon a hero and hope that said hero would be able to help me.
+My plan basically ended at summon a champion and hope that said champion would be able to help me.
 
 I had completely neglected to consider what is to come after.
 
