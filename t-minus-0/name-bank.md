@@ -38,6 +38,11 @@ Betty
 Molly
 Natalia
 Dew
+Dawn
+Tony
+Logan
+Dakota
+Olivia
 
 ## Used:
 Phanna (isekai'd)
