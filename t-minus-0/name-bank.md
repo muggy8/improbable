@@ -43,6 +43,13 @@ Tony
 Logan
 Dakota
 Olivia
+Veronica
+Trisha
+Salina
+Sasha
+Lynda
+Emily
+Metiorican
 
 ## Used:
 Phanna (isekai'd)
