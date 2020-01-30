@@ -8,7 +8,7 @@ I've been using it as a storage room for some time now but recently, I've been c
 
 The bed I am currently sleeping on is positioned next to both the wall of the door and the wall to the left of the door.
 
-It does seems that this is the best place to position this bed.
+It does seem that this is the best place to position this bed.
 
 I've been moving the bed around to test out different places that would fit nicely, but as expected, in the corner is definitely still the best option.
 
@@ -16,7 +16,7 @@ I leaned towards my pet slime, Pillow, who was lazing around on the ground next 
 
 "Still nothing?" I asked as if expecting a reply but who am I kidding, Pillow's a slime blob with no way of communicating. It can't possibly reply.
 
-Though that may be the case, having fit on watch is probably still a good idea since it'll surely cause a ruckus if someone did show up.
+Though that may be the case, having fit on which is probably still a good idea since it'll surely cause a ruckus if someone did show up.
 
 Or so I had thought as I looked over to the aquarium that was located by the wall directly across from the door of the room.
 
@@ -46,7 +46,7 @@ After inspecting the summoned for a while, I turned around and looked over to Pi
 
 "Hey Pillow~ Did you know? someone's invaded your room? Why didn't you tell me about it~?" I asked playfully.
 
-Of course, no response as usual, though I did get a jiggle out of it when I called it's name.
+Of course, no response as usual, though I did get a jiggle out of it when I called its name.
 
 Thinking about it, I haven't really fed Pillow in a few days so maybe it's just low on energy? But aren't you only supposed to feed a slime once a week?
 
@@ -58,7 +58,7 @@ Thinking this, I picked Pillow up and placed it inside a glass garbage bin by th
 
 In a short while Pillow's smooth and silky exterior changed to become slimy and sticky.
 
-Things it touched got pulled into it's body and pretty soon, all the trash in the bin got consumed and Pillow returned to it's original smooth and silky state.
+Things it touched got pulled into its body and pretty soon, all the trash in the bin got consumed and Pillow returned to it's original smooth and silky state.
 
 I lifted Pillow out of the trash bin and caught sight of the summoned sitting up inside the aquarium.
 
@@ -98,7 +98,7 @@ I'm not exactly sure if the summoned is lying or joking or something else but I 
 
 After all, the summoning ritual only summons people who are willing to be summoned so there shouldn't be any animosity so early on in our relationship.
 
-Ok, lets try something else then.
+Ok, let's try something else then.
 
 "What's your name? My name is Mikay, as I mentioned earlier."
 
@@ -118,9 +118,9 @@ As I was pondering this, the summoned spoke up again.
 
 "It's A244X0Z4305PHAN4"
 
-"A name like that doesn't seem practical at all." I said in bewilderment.
+"A name like that doesn't seem practical at all," I said in bewilderment.
 
-"Is it? It's been working out just fine for me so far. And besides I didn't say it was a name, I said it was my Universal Identification Code."
+"Is it? It's been working out just fine for me so far. And besides, I didn't say it was a name, I said it was my Universal Identification Code."
 
 "Uni-what?"
 
@@ -130,7 +130,7 @@ I stared blankly back… something's not right and I wasn't exactly sure what to
 
 And to top it off, that statement made way too little sense to me.
 
-Still though, I was not quite sure what I was supposed to call the summoned so I once again began my questioning.
+Still, though, I was not quite sure what I was supposed to call the summoned so I once again began my questioning.
 
 "So… what am I supposed to call you?"
 
@@ -140,7 +140,7 @@ Still though, I was not quite sure what I was supposed to call the summoned so I
 
 "It's the smallest number of my Universal Identification Code. I can call you K too since it's easier."
 
-"Ok, hold on a second here, I don't know what your deal is but you cant just go around naming other people."
+"Ok, hold on a second here, I don't know what your deal is but you can't just go around naming other people."
 
 "But I'm not naming you. All I'm doing is using the most concise way of addressing you."
 
@@ -164,19 +164,19 @@ The summoning ritual is supposed to only call forth those who are willing to coo
 
 Maybe this is why summoning rituals were exclusively performed in rooms instead of aquariums since an uncooperative summon is a pretty hefty price to pay.
 
-In fact I was starting to feel unsure about if this whole summoning thing succeeded at all going by what little conversation that me and the summoned had had.
+In fact, I was starting to feel unsure about if this whole summoning thing succeeded at all going by what little conversation that I and the summoned had had.
 
 However, I didn't really have anything to lose by continuing this conversation. Honestly, at the very least, I should get a proper name out of 4 so I at least have a name to use when thinking back on the current series of events in the future.
 
-That was what happened to my previous summon. Since his accent was so thick, I wasn't really able to understand half the stuff he said. In fact I couldn't even catch his name before he fell ill and once the illness set in, any hope of getting a name out of him was gone.
+That was what happened to my previous summon. Since his accent was so thick, I wasn't really able to understand half the stuff he said. In fact, I couldn't even catch his name before he fell ill and once the illness set in, any hope of getting a name out of him was gone.
 
 I started imagining a future scenario where I had to recount the events of right now and of my recent past and the prospect of having to use Unnamed Summon #1 and Unnamed Summon #2 to explain who did what and what happened to whom.
 
 Yah, that's definitely not going to work out. Having 1 unnamed summon is already one too many already.
 
-That's why I decided to continue questioning the current summoned despite me pretty much already labeling this summoning a failure.
+That's why I decided to continue questioning the current summoned despite me pretty much already labelling this summoning a failure.
 
-"What do people normally call you in your home world?"
+"What do people normally call you in your homeworld?"
 
 "Mostly N4 or AN4 since it's too easy to get who's who mixed up when using just 1 number to address people."
 
@@ -184,7 +184,7 @@ That's why I decided to continue questioning the current summoned despite me pre
 
 "4 is the smallest number in my Universal Identification Code that can be used to uniquely identify one of us when it's just the 2 of us in a conversation."
 
-"Right, and you just add more characters to the name as the need arise? But why from the back?"
+"Right, and you just add more characters to the name as the need arises? But why from the back?"
 
 "Actually, my Universal Identification Code is a number, a base 36 number."
 
@@ -256,7 +256,7 @@ Phanna gave me a look of confusion along with a "Wha?"
 
 Should I explain further? I probably should right?
 
-"You see, my daughter was once a Grandmaster of the Mastery League. However because of my failure as a father and as a Master, My daughter has since forsaken her role as a Grandmaster and she's now in danger of the consequences of this decision." I explained.
+"You see, my daughter was once a Grandmaster of the Mastery League. However, because of my failure as a father and as a Master, My daughter has since forsaken her role as a Grandmaster and she's now in danger of the consequences of this decision." I explained.
 
 However, all I got from Phanna in return was an eye tilt and a whole lot of silence.
 
@@ -272,7 +272,7 @@ I looked away from Phanna and down at Pillow who's snugly wrapped around my arms
 
 The current summoning ended in failure, the previous summoning ended in death by illness.
 
-I really didn't have much options left to begin with and just when I thought there was hope when I found the champion summoning ritual, the whole plan started falling apart with 2 back-to-back failures right from the start.
+I really didn't have many options left to begin with and just when I thought there was hope when I found the champion summoning ritual, the whole plan started falling apart with 2 back-to-back failures right from the start.
 
 I'm physically able to perform a few more summoning but is that even worth it at this point?
 
@@ -298,19 +298,19 @@ Phanna isn't rejecting to help me?
 
 I cleared my throat and began to explain.
 
-"Ok here's the background, there's an organization in our world that maintains order across our lands called the Mastery League. They educate people in the usage and application of Abilities to better the lives of everyone. However abilities can be used for great good but also great evil. That's why the most powerful ability users are recruited for the purpose of maintaining order across the lands. This was the role my daughter once held. Now, what do you think would happen if one of the League's strongest and most powerful ability user decided to abandon her post?"
+"Ok here's the background, there's an organization in our world that maintains order across our lands called the Mastery League. They educate people in the usage and application of Abilities to better the lives of everyone. However, abilities can be used for great good but also great evil. That's why the most powerful ability users are recruited for the purpose of maintaining order across the lands. This was the role my daughter once held. Now, what do you think would happen if one of the League's strongest and most powerful ability user decided to abandon her post?"
 
 "I don't know? Personally, I really wouldn't do anything. People come and go all the time."
 
 "Your world must be incredibly peaceful then."
 
-"Not really, it's actually quite the organized chaos. I mean, as an example, on average, every couple thousand years or so, we have a crazy group of people who decides to engineer a super bug to wipe out all complex biological life and one in every couple thousand of these groups manage to actually succeed for the most part. But it always fails to actually do any lasting damage as some other person or group's anti extinction contingency measures would restart biological life after without fail. It might cause a couple hundred to thousand years of decreased productivity but because technology is never truly lost, eventually, things will return to normal. That's why I really don't see what the big deal is with losing a strong ability user or two."
+"Not really, it's actually quite the organized chaos. I mean, as an example, on average, every couple thousand years or so, we have a crazy group of people who decides to engineer a superbug to wipe out all complex biological life and one in every couple thousand of these groups manage to actually succeed for the most part. But it always fails to actually do any lasting damage as some other person or group's anti extinction contingency measures would restart biological life after without fail. It might cause a couple hundred to thousand years of decreased productivity but because technology is never truly lost, eventually, things will return to normal. That's why I really don't see what the big deal is with losing a strong ability user or two."
 
 I was shocked. I didn't know how to respond. I was searching for words to say but all that came out was:
 
 "What?!"
 
-It wasn't the fact that Phanna's home world seems like total chaos from what was described but instead, at how Phanna just accepts an event that would end all life to be a natural part of life.
+It wasn't the fact that Phanna's homeworld seems like total chaos from what was described but instead, at how Phanna just accepts an event that would end all life to be a natural part of life.
 
 At least that's the gist of what I understood from what Phanna just said.
 
@@ -338,7 +338,7 @@ I didn't want to.
 
 I couldn't.
 
-I feel like the stuff that Phanna was saying has stopped making sense a long time ago yet some how I'm still here trying to piece together some semblance of meaning from Phanna's words.
+I feel like the stuff that Phanna was saying has stopped making sense a long time ago yet somehow I'm still here trying to piece together some semblance of meaning from Phanna's words.
 
 My mind drifted around in it's shattered state unsure of what to do when Phanna spoke up again.
 
@@ -372,18 +372,18 @@ I couldn't deny Phanna's accusations.
 
 It was true, I had no real plan at all.
 
-My plan basically ended at summon a champion and hope that said champion would be able to help me.
+My plan basically ended at summoning a champion and hope that said champion would be able to help me.
 
 I had completely neglected to consider what is to come after.
 
 "Look, Mikay, I really can't help you given everything you've told me so far. I don't even know what rules this world operates on. All I can do for now is to familiarize myself with this world and then, maybe I can come up with some kind of a plan. But if I'm unable to come up with such a plan, unless you come up with a workable plan on your own to save your daughter, there really isn't anything I can do for you."
 
-"I-I see" I said with much disappointment.
+"I-I see," I said with much disappointment.
 
 It's really not like what Phanna says is unreasonable.
 
 I guess this whole summoning isn't a complete failure.
 
-However, weather or not it's a success is still to be seen.
+However, whether or not it's a success is still to be seen.
 
 Though I'm starting to feel rather hopeful about my prospects now.
