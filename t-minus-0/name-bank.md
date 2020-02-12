@@ -50,6 +50,8 @@ Sasha
 Lynda
 Emily
 Metiorican
+Alisha
+Patrisha 
 
 ## Used:
 Phanna (isekai'd)
@@ -61,3 +63,4 @@ Melody
 Adrian
 Ellen
 Casandra
+ 

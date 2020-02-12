@@ -1,0 +1,26 @@
+{
+  "name": "improbable",
+  "version": "0.0.0",
+  "description": "my story writing attempt",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1",
+    "start": "node index.js"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/muggy8/improbable.git"
+  },
+  "keywords": [
+    "story",
+    "fiction",
+    "fantacy",
+    "isekai"
+  ],
+  "author": "Muggy Ate",
+  "license": "UNLICENSED",
+  "bugs": {
+    "url": "https://github.com/muggy8/improbable/issues"
+  },
+  "homepage": "https://github.com/muggy8/improbable#readme"
+}
