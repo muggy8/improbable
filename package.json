@@ -22,5 +22,8 @@
   "bugs": {
     "url": "https://github.com/muggy8/improbable/issues"
   },
-  "homepage": "https://github.com/muggy8/improbable#readme"
+  "homepage": "https://github.com/muggy8/improbable#readme",
+  "dependencies": {
+    "marked": "^0.8.0"
+  }
 }
