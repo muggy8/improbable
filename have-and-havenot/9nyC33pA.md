@@ -387,3 +387,7 @@ I guess this whole summoning isn't a complete failure.
 However, whether or not it's a success is still to be seen.
 
 Though I'm starting to feel rather hopeful about my prospects now.
+
+## <center>...<center>
+
+<center><a href="./7M1IX153">Next Chapter</a></center>
