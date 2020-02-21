@@ -102,5 +102,48 @@ Phanna's still hugging the sqerming Pillow and doesn't seem to have moved at all
 
 "I guess that's my name now" Phanna answered uncaringly as usual. 
 
-"Yes, this is my new Champion, Phanna."
+"Yes, this is my new Champion, Phanna. But that's not important right now. Can you check if Phanna's ill in any way right now?".
 
+Ethan gave me a look of confusion
+
+"I'm perfectly fine right now. no illnesses what so ever" protested Phanna
+
+Ignoring Phanna's protests, I continued to explain to Ethan, "You know very well what happend to my last champion. I want to avoid that from happening so I summoned Phanna in Pillow's aquarium but Phanna got out"
+
+"Y-you performed the summoning ritual in an aquarium?!" 
+
+Ethan was supprised.
+
+"Not now, please"
+
+"R-right. I'll begin examining Phanna now."
+
+Ethan turned towards Phanna...
+
+"Phanna, can you let go of Pillow for a bit?"
+
+"Hmmm... I want it back after."
+
+"Sure thing" Ethan agreed. 
+
+Phanna let go of Pillow and ths paniced Pillow immediately jumpped off the bed. 
+
+I guess slimes have it rough too.
+
+Ethan lifted his hands over Phanna and closed his eyes.
+
+I walked over to the corner of the room to pick up the scared and trembeling Pillow as I know exactly what Ethan's  doing.
+
+I've seen it a couple times and he's even explained it to me before. 
+
+Though I dont have the knowledge to pull it off myself, I do know the basic idea of it. 
+
+First step is to use a combination of observation and an ability that causes vibrations to observe the inside of someone's body
+
+Second step is to identify anything abnormal within the target.
+
+Once that's done, the rest is just about finding a treatment to restore things to the way they're supposed to be. 
+
+This process normally requires the patent's consent as it needs to violating their Sphere of Influence. 
+
+However, since Phanna was summoned recently and doesn't have a Sphere of Influence, that step can be skipped.
