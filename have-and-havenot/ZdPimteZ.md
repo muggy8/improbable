@@ -178,7 +178,7 @@ But Phanna ignored my sentiment.
 
 It was only fair given how many times I've done the same.
 
-"Me and my best friends wanted to be truly unique in some way, remembered for something but we failed. two of them ended up ending their own lives and here I am, unable to do the same. that's why I'm here, to forget, to give up, to kill time, to... I don't know."
+"Me and my best friends wanted to be truly unique in some way, remembered for something but we failed. Two of my best friends ended up ending their own lives because of that and here I am, unable to do the same. That's why I'm here, to forget, to give up, to kill time, to... I don't know. But what I'm not here to do is to retread someone else's path"
 
 Phanna looked away.
 
@@ -190,4 +190,8 @@ I breathed deeply.
 
 I didn't know if Phanna was crying or not but if they were, I wouldn't be supprised.
 
-"I'm sorry..." I found myself repeating and left the room again.
+I wanted to ask "What does that have to do with the exam" but I knew asking that was a mistake right now. 
+
+"I'm sorry..." I found myself repeating again as I left the room.
+
+Another try another failure, again. 
