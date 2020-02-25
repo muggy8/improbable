@@ -166,9 +166,28 @@ I gave Phanna a nod.
 
 I didn't want to believe it and the concept seemed impossiable but I've already came to terms with this idea.
 
-"You see, my two closes friends were both killed."
+"How many people do you think would end up living in a world like this?"
+
+I shruged
+
+"It's really big number... You see, me and my two closes friends were nobodies in a world like that. for everything that made any of us unique, there was bound to be at least a couple thousand people with the exact same trate. in fact, the only way to be unique was by splitting hairs. for example, compairing fingerprints on 2 or more fingers and such since it's probable enough for some other indiviual to have the exact same fingerprint on exact same finger that single fingerprints aren't used for identification anymore. Do you know how it feels to be just another +1 to some tally somewhere that no one cares about or remembers."
 
 "I'm sorry..." I found myself saying.
 
-"It's nothing to be sorry about. Afterall, it was partially my fault."
+But Phanna ignored my sentiment.
 
+It was only fair given how many times I've done the same.
+
+"Me and my best friends wanted to be truly unique in some way, remembered for something but we failed. two of them ended up ending their own lives and here I am, unable to do the same. that's why I'm here, to forget, to give up, to kill time, to... I don't know."
+
+Phanna looked away.
+
+I felt bad for them. 
+
+I kind of understand why they're always hugging Pillow now.
+
+I breathed deeply.
+
+I didn't know if Phanna was crying or not but if they were, I wouldn't be supprised.
+
+"I'm sorry..." I found myself repeating and left the room again.
