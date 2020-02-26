@@ -1,4 +1,4 @@
-# Fact and Fiction
+# Reason
 
 It's been about a week since I successfully summoned Phanna. 
 
@@ -195,3 +195,57 @@ I wanted to ask "What does that have to do with the exam" but I knew asking that
 "I'm sorry..." I found myself repeating again as I left the room.
 
 Another try another failure, again. 
+
+"You can always try again tomorrow." Ethan said as I entered the living room.
+
+"I don't even understand why Phanna is so against partaking in the exam."
+
+"Didn't Phanna say something about it not being their goal or something?"
+
+"I know, but nothing Phanna says makes any sense to me." I sighed.
+
+"Think on the bright side Master Mikay, today's conversation wasn't a complete repeat of yesterday's conversation." Ethan encouraged.
+
+I nodded in agreement. 
+
+Maybe I can think over what Phanna has told me today and figure out a way to convince them tomorrow.
+ 
+Thinking back on the stuff Phanna said...
+
+Honestly I didn't understand much of it.
+
+The key points that I understood we're:
+
+1. There was an insane amount of people who lived in Phanna's home word.
+2. Phanna's desire to be unique in a world like that.
+3. Phanna's failure and subsiquent loss of their friends.
+
+Given how Phanna is acting, there's a high likelyhood that they're still mourning the loss of their friends.
+
+Then agnin, absolute refusal to partake in the entrence exams sure doesn't seem like something a mourning person would do without good reason.
+
+I know Phanna just explained the reason but I still honestly don't understand any of it.
+
+Actually, I don't really understand Phanna's reasons for doing anything I feel.
+
+Maybe if I can understand Phanna's reason for becoming a champion, I'd be able to better find a way to talk them into taking the exams.
+
+With my next discussion with Phanna decided, all I need to do now is to prepair some food and wait till dinner time.
+
+That said, every day, Phanna has been giving me strange ingrediant lists and even stranger cooking instructions.
+
+Initially, I didn't take it very seriousely but a few days ago, I tried one of it and it ended up tasting a lot better than I thought with such strange methods. 
+
+But despite the results, ingrediants were definately more dificult to get. 
+
+We didn't exactly live by the ocean so salt is some what hard to come by and so was meat other than birds or fish.
+
+Despite that, I did end up cooking as much as I can to Phanna's strange recipies making sure to object to any unrealistic requests in hopes that Phanna will see my sincerity and maybe start seeing things from my perspective.
+
+It's not like I didn't explain why I needed Phanna to attend the entrence exams.
+
+"Hey Ethan, I'll be out getting some ingrediants that Phanna said they wanted for today's dinner" I sighed as I stood up from the chair.
+
+Ethan gave me a firm nod in reponse and with that, I left to search for a way to realize whatever strange creation Phanna dreampt up today.
+
+...
