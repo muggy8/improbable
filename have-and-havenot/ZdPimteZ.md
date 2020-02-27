@@ -232,15 +232,15 @@ Maybe if I can understand Phanna's reason for becoming a champion, I'd be able t
 
 With my next discussion with Phanna decided, all I need to do now is to prepair some food and wait till dinner time.
 
-That said, every day, Phanna has been giving me strange ingrediant lists and even stranger cooking instructions.
+Speaking of dinner, every day, Phanna has been giving me strange ingrediant lists and even stranger cooking instructions.
 
 Initially, I didn't take it very seriousely but a few days ago, I tried one of it and it ended up tasting a lot better than I thought with such strange methods. 
 
 But despite the results, ingrediants were definately more dificult to get. 
 
-We didn't exactly live by the ocean so salt is some what hard to come by and so was meat other than birds or fish.
+Since we didn't live by the ocean, salt is some what hard to come by and so was meat other than birds or fish.
 
-Despite that, I did end up cooking as much as I can to Phanna's strange recipies making sure to object to any unrealistic requests in hopes that Phanna will see my sincerity and maybe start seeing things from my perspective.
+Despite that, I end up trying to cook according to Phanna's strange recipies while making sure to object to any unrealistic requests in hopes that Phanna will see my sincerity and maybe start seeing things from my perspective.
 
 It's not like I didn't explain why I needed Phanna to attend the entrence exams.
 
@@ -249,3 +249,106 @@ It's not like I didn't explain why I needed Phanna to attend the entrence exams.
 Ethan gave me a firm nod in reponse and with that, I left to search for a way to realize whatever strange creation Phanna dreampt up today.
 
 ...
+
+I once again returned to the room Phanna's resting in with a tray full of dinner in hand.
+
+I looked to the aquarium as I always do when entering this room.
+
+Pillow's not there.
+
+I looked over to Phanna and sure enough, there's a lump under the blankets wiggling around.
+
+Noticing where my gaze is pointing to, Phanna looked away and almost immediately, Pillow slipped out from under the blankets.
+
+I let out a sigh and walked over to Phanna's bed.
+
+"How long have you been hugging Pillow this time?"
+
+"... Since you left the house"
+
+"How would you feel if you were Pillow?" I said while gesturing for Phanna to sit up.
+
+"I... I dont know. Besides, if Pillow's capable of feeling anything is debateable." Phanna protested while sitting up.
+
+"Lets try something else, what are pets like in your home world like?" I asked as I created some legs on the underside of the try with my Forgemaster ability.
+
+"They're mostly fluffy non-human quadrapedal animals with a tendency to die from random illnesses. Consiquently, they're not very popular. Most people only ever get one in their lifetime if any at all since the loss of a pet is quite a tramatic experiance for most people."
+
+"I think that's just called growing old." I said half jokingly.
+
+"Are you saying you're... Know what, forget it."
+
+I had a pretty good idea that Phanna was compairing me to a pet.
+
+Normally, I'd be rather offended by even just the notion that me and a pet is anything comparable.
+
+But with Phanna, I feel like I've fully given up.
+
+How Phanna's mind works is a complete mystery to me, a black box with inner workings completley unknowable to outside observers like me.
+
+Spending effort trying to comprehend any of Phanna's nonsense was just going to end up hurting my head.
+
+Yet here I am with the daunting task of trying to understand why Phanna chose to be summoned ahead of me.
+
+The most I can do now is just to ease myself into this task and hope that I don't get too overwhelmed by Phanna's nonsense before I hit the key points.
+
+And so, I continued.
+
+"Have you ever had a pet?"
+
+"No"
+
+"You seem to be quite knowledgeable about pets despite never having had one before."
+
+"One of my parents used to have one while I was growing up. I vaugely remember it being something fluffy and had 4 legs. I think it died when I was between 10 and 20 I think."
+
+"Oh? How did you get along with this pet?"
+
+"I don't rememeber. I archived those memories a few hundred years ago when I started working on the become unique plan. Should I search through the archives for memories of my pet?"
+
+"No, it's fine." I replied as if I understood any of what was said.
+
+I walked over to PIllow by the corner of the room and moved it back into the aquarium before getting a chair from the desk and sitting myself back down next to bed.
+
+By now, Phanna looks like they're mostly finished with eating and looked like it was now a good time to get to the big question at hand. 
+
+I took a deep breath and began.
+
+"Phanna, why did you choose to get summoned?"
+
+Phana, a little supprised by my question, turned to look at me with a concerned face before replying with:
+
+"Why are you asking?"
+
+"I..."
+
+I didn't know how to answer. 
+
+I paused unsure of how to answer. 
+
+Maybe I can brush it off?
+
+"Well, does the reason matter?"
+
+"Not really. I was just curious."
+
+"Oh I see." I said as I tried to hide my relief.
+
+"I guess I told you already that I wanted to just kill time and forget."
+
+"Forget about what... if I you don't mind me asking."
+
+"Forget... about my friends..." 
+
+Phanna then moved their gaze away from me and onto Pillow in the aquarium.
+
+"Since I can theoritically live's forever, I need to forget chunks of memeory every now and then. There's just isn't enough space to store thousands of years of memory in my brain."
+
+Phanna pointed to their head with their finger and then continued.
+
+"On avarage, it takes about 500 years for one archiving cycle to take place and majority of the unused memories are extracted from my head and put into my bones. However, some extremely strong memories stay with me even after an archiving event such as the memories of my pet. Though much of it is gone now, I still have vague memeories of it."
+
+I nodded in sympathy. 
+
+Although I don't fully understand what Phanna's saying, I feel like at least I'm understanding the general idea of it. 
+
