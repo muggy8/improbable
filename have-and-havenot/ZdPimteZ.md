@@ -8,11 +8,13 @@ In the beginning, I didn't really think much of it.
 
 In fact, I was quite thankful that he was willing to stay with me to keep an eye on Phanna's condition.
 
-But the more time we spend together, the more I start to realize just how annoying it is to have my self proclaimed number 1 fan around me at all times. 
+But the more time we spend together, the more I've come to realize just how annoying it is to have my self proclaimed number 1 fan around me at all times. 
 
 Not only that, he also didn't really return to the school at all during the past week. 
 
-The thought of him being neglectful of his duties drove me crazy but he assured me that everything is undercontrol and that his absence isn't being felt at all.
+The thought of him being neglectful of his duties drove me crazy especailly because the cause of it was me. 
+
+But he assured me that everything is undercontrol and that his absence isn't being felt at all.
 
 That said, he does seem to be very sincere.
 
@@ -94,9 +96,9 @@ This was slighly higher than what my body does but is rather normal for Elves ac
 
 Seeing this, made me feel a bit more a ease.
 
-"Hear Phanna drink this." I said as I lifted the bottle I was holding on to.
+"Here, Phanna, drink this." I said as I lifted the bottle I was holding.
 
-"I dont want to drink more matcha. At least put some sugar and cream in." Phanna pouted
+"I dont want to drink more matcha? At least put some sugar and cream in." Phanna pouted
 
 "It's karma plant, stop calling it matcha or whatever."
 
@@ -108,11 +110,11 @@ Despite Phanna's protest, they did eventually drink the bottle of powdered karma
 
 Honestly seeing Phanna act this way reminds me of my days raising Hikery. 
 
-She used to do the same thing except without the strange names for random things.
+She used to do the same thing except without the strange names for most things.
 
-I took the bottle from Phanna and planed it on the table on the other side of the room before picking up Pillow on the ground next to me and placing it into the aquarium.
+I took the bottle from Phanna and placed it on the table on the other side of the room before picking up Pillow on the ground near by and placing it into the aquarium.
 
-Pillow swam around in the aquarium once I placed it in the water.
+Pillow began swimming around in the aquarium once I placed it in the water.
 
 "This pillow thing is quite intrsting, I would have never thought that an gigantic ameba would make such a nice pet."
 
@@ -346,9 +348,117 @@ Phanna then moved their gaze away from me and onto Pillow in the aquarium.
 
 Phanna pointed to their head with their finger and then continued.
 
-"On avarage, it takes about 500 years for one archiving cycle to take place and majority of the unused memories are extracted from my head and put into my bones. However, some extremely strong memories stay with me even after an archiving event such as the memories of my pet. Though much of it is gone now, I still have vague memeories of it."
+"On avarage, it takes about 500 years for one archiving cycle to take place and majority of the unused memories are extracted from my head and put into my bones. However, some extremely strong memories stay with me even after an archiving events such as the memories of the pet. Though much of it is gone now, I still have vague memeories of it."
 
 I nodded in sympathy. 
 
 Although I don't fully understand what Phanna's saying, I feel like at least I'm understanding the general idea of it. 
+
+"Honestly, if I can just forget things on demand, things would be much easier but because of ethical and legal reasons. I have to wait for memories to fade away over time before they get archived in order to forget. Unfortunately, traumatic memories don't just go away that easily..."
+
+"I... I see"
+
+I feel like, for the first time, I am understanding Phanna.
+
+Although much of it is still fuzzy, there are still some key details that I am able to get.
+
+I guess trama hurts for everyone, even for someone like Phanna who comes from a world extremely different from my own. 
+
+"Does that mean you intend to return to your home world eventually?" I asked.
+
+"Eventually..." Phanna replied. 
+
+"So what do you plan on doing until then?"
+
+"Nothing..."
+
+"So you plan on just doing nothing for the next 500 years?"
+
+"200"
+
+"What?"
+
+Phanna's answer caught me by supprise.
+
+"Didn't you say it takes you 500 years to forget?"
+
+"I said on average, 500 years is how long it takes for most memories to be archieved. However that doesn't mean it's true for all memories. I still have memories of the pet from my earliest days and I'm well over 800 at this point. From the looks of it, spending another 1000 years here might not even help me forget..."
+
+"So why are you saying you only plan to stay for 200 years then?"
+
+"Because in 200 years, I'd be old enough to apply for death."
+
+There Phanna goes again with the crazy and absurd claims.
+
+I wanted to end our converstaion right now before this things start making even less sense but I got into this whole mess with a mission and I'm going to see it through to the end. 
+
+If I can just find something in all this nonsense that can help me convince Phanna to take the exam then that's all I need.
+
+And so, I pressed on.
+
+"Phanna, are you telling me that you plan on dying in 200 years?"
+
+"Yes."
+
+"Why?"
+
+"Because I've given up."
+
+"On?"
+
+"Everything."
+
+"..."
+
+Phanna's answers hurts as if they was cutting into me.
+
+It brought up memories of the days immediately following the passing of Aurora, my late wife, and the departure of Hickory. 
+
+During those days, I felt like I've lost all hope and all I can do is to accept whatever comes my way in the future.
+
+But something changed after I was introduced to the Champion Summoning Ritual.
+
+I had something I could do to change the future.
+
+I felt like I was seeing myself in Phanna.
+
+And then it struck me, Phanna right now is the exact same way I was after Aurora's and Hickary's departure. 
+
+I felt like I was understanding Phanna a little more now. 
+
+It wasn't much, but I get it.
+
+For the first time, I had a good idea of what was happening and what I wanted to say.
+
+"Would you still choose death if you were able to forget?"
+
+Phanna turned to look at me in supprise.
+
+Was it because I said something that Phanna didn't consider?
+
+Was it because I said something out of character?
+
+Was it because I said something that Phanna didn't expect?
+
+That's something I'll probably never know.
+
+But I was in control now.
+
+"Phanna, you see, I have a pretty good idea of how you feel right now. I used to feel the exact same way as you do, that nothing matters anymore, that all is hopeless."
+
+Phanna broke eye contact and looked down.
+
+"Remember how I said my daughter betrayed the Mastery League?"
+
+"Yah?"
+
+"Well that wasn't the only thing that happened. My wife, Aurora, also died that day."
+
+"I... I see..."
+
+"The three of us as well as many others were on a joint mission to destroy a village under the control of a Phantom Lord. Hikary was the Grandmaster on the mission and was supposed to engage the opposing Phantom Lord while a group of Masters were to use that opertunity to attack the village and remove it as a threat to the stability of our world. Both me and Aurora were pulled out of our teaching duties for this and it was supposed to be a swift and decisive victory. But it all went wrong when a second Phantom Lord showed up, Hickory betrayed the league and our attack failed horribly. Many died that day including my wife Aurora..."
+
+My throat felt tense as I spoke those words.
+
+I could remember those memories as if they happened just yesterday. 
 
