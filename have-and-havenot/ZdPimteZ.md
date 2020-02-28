@@ -462,3 +462,42 @@ My throat felt tense as I spoke those words.
 
 I could remember those memories as if they happened just yesterday. 
 
+"Phanna, I want to ask you again, would you still choose death if you were able to forget?"
+
+Phanna didn't answer.
+
+I didn't expect an answer.
+
+I was there once before and I knew that no amount of logic would be able to win someone in this state over.
+
+But despite that, I also knew that this silence meant that I had been successful.
+
+Afterall, to answer "no" is to accept defeat and to answer "yes" is to signify a complete lack of sympathy.
+
+Hence why I continued as if I got the responce I wanted to hear.
+
+"Phanna, is there a way to make forgetting faster for you?"
+
+Phanna answered with a weak nod.
+
+"Can you tell me how?"
+
+"... new memories... a large quantity of new memories that are worth remembering."
+
+"How about this, I'll help you in any way that I can to create memories worth remebering while you help me with saving my daughter. Think you can manage a deal like this?"
+
+Phanna noded weakly again.
+
+"Then can I get you to attend the entrence exams to Ethan's school then? It's an intresting experiance so I'm sure it'll be worth remembering. I still remember doing the exams for the first time myself so I'm sure you'll find it worth while. Is that alright?"
+
+Again, Phanna replied with a weak nod.
+
+I had won, but it didn't feel like a victory. 
+
+For I know, the road ahead will be even harder than what it was before. 
+
+And I also know I can no longer give up anymore. 
+
+But quitting was never part of the plan anyway.
+
+## <center>...<center>
