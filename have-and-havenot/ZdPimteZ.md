@@ -12,7 +12,7 @@ But the more time we spend together, the more I've come to realize just how anno
 
 Not only that, he also didn't really return to the school at all during the past week. 
 
-The thought of him being neglectful of his duties drove me crazy especially because the cause of it was me. 
+The thought of him being neglectful of his duties drove me crazy. All the more so because the cause of it was me. 
 
 But he assured me that everything is under control and that his absence isn't being felt at all.
 
@@ -24,13 +24,13 @@ To be honest, I kind of feel bad for him and the school.
 
 I had initially thought that he would just come over for a few hours after school every day.
 
-But now that he's permanently staying with me and Phanna, I felt partly responsible for whatever condition the school somehow ends up in.
+But now that he's permanently staying with me and Phanna, I felt responsible for whatever condition the school ends up in because of Ethan's absence.
 
 Honestly, I'm starting to feel like I should do more than just judge the entrance exam given how much Ethan has been doing for me and how much of his school affairs I've messed up pulling him away for so long. 
 
 Though thanks to Ethan's hard work, Phanna is in relatively good shape at the moment.
 
-I entered the room Phanna's was in and saw Phanna in bed under a couple of sheets of blankets. 
+I entered the room Phanna was in and saw Phanna in bed under a couple of sheets of blankets. 
 
 Phanna might be stuck in bed with a heavy fever right now but that's about it. 
 
@@ -112,7 +112,7 @@ Honestly seeing Phanna act this way reminds me of my days raising Hickory.
 
 She used to do the same thing except without the strange names for most things.
 
-I took the bottle from Phanna and placed it on the table on the other side of the room before picking up Pillow on the ground nearby and placing it into the aquarium.
+I took the bottle from Phanna and placed it on the table on the other side of the room before I picked Pillow up off the ground and placed it back into the aquarium.
 
 Pillow began swimming around in the aquarium once I placed it in the water.
 
@@ -134,7 +134,7 @@ There were a few other Something Something Knowledge Acquisition techniques that
 
 However, this time, things would be different.
 
-I had a new approach for convincing Phanna to join the entrance exams.
+I had a new approach with trying to convince Phanna to join the entrance exam.
 
 I had a hunch this might work so I decided to give it a try.
 
@@ -162,7 +162,7 @@ I had a feeling Phanna had more to say.
 
 A few more seconds passed.
 
-"People only die when they are killed, that's what my homeworld is like. Of course, you already knew that right."
+"People only die when they are killed, that's what my homeworld is like. Of course, you already knew that, right."
 
 I gave Phanna a nod.
 
@@ -172,7 +172,7 @@ I didn't want to believe it and the concept seemed impossible but I've already c
 
 I shrugged
 
-"It's a really big number... You see, my two closes friends and I were nobodies in a world like that. for everything that made any of us unique, there was bound to be at least a couple thousand people with the exact same trait. in fact, the only way to be unique was by splitting hairs. for example, comparing fingerprints on 2 or more fingers and such since it's probable enough for some other individuals to have the exact same fingerprint on the exact same finger that single fingerprints aren't used for identification anymore. Do you know how it feels to be just another +1 to some tally somewhere that no one cares about or remembers."
+"It's a really big number... You see, my two closest friends and I were nobodies in a world like that. For any trait or combination of traits that made any of us unique, there was bound to be a mountain of people with the exact same trait or set of traits. In fact, the only way to be unique was by splitting hairs. For example, by comparing fingerprints on 2 or more fingers and other such pointless comparisons. Do you know how it feels to be just another +1 to some tally somewhere that no one cares about or remembers."
 
 "I'm sorry..." I found myself saying.
 
@@ -180,7 +180,7 @@ But Phanna ignored my sentiment.
 
 It was only fair given how many times I've done the same.
 
-"My best friends and I wanted to be truly unique in some way, remembered for something but we failed. Two of my best friends ended up ending their own lives because of that and here I am, unable to do the same. That's why I'm here, to forget, to give up, to kill time, to... I don't know. But what I'm not here to do is to retread someone else's path"
+"My best friends and I wanted to be truly unique in some way, remembered for something but we failed. Two of my best friends ended up ending their own lives because of that and here I am, unable to do the same. That's why I'm here, to forget, to give up, to kill time, to... I don't know..."
 
 Phanna looked away.
 
@@ -212,13 +212,13 @@ I nodded in agreement.
 
 Maybe I can think over what Phanna has told me today and figure out a way to convince them tomorrow.
  
-Thinking back on the stuff Phanna said...
+Thinking over the stuff Phanna said...
 
 Honestly, I didn't understand much of it.
 
 The key points that I understood we're:
 
-1. There was an insane amount of people who lived in Phanna's home word.
+1. There was an insane amount of people who lived in Phanna's home-world.
 2. Phanna's desire to be unique in a world like that.
 3. Phanna's failure and subsequent loss of their friends.
 
@@ -228,21 +228,27 @@ Then again, absolute refusal to partake in the entrance exams sure doesn't seem 
 
 I know Phanna just explained the reason but I still honestly don't understand any of it.
 
-Actually, I don't really understand Phanna's reasons for doing anything I feel.
+Actually, I don't really understand Phanna's reasons for doing anything I felt.
 
 Maybe if I can understand Phanna's reason for becoming a champion, I'd be able to better find a way to talk them into taking the exams.
 
-With my next discussion with Phanna decided, all I need to do now is to prepare some food and wait till dinner time.
+However, that wasn't going to be easy.
+
+I recalled the first time I spoke with Phanna, what a horrifying experience.
+
+But right now, I felt like I had no other choice other than to attempt to understand Phanna.
+
+Like that, my next discussion with Phanna was decided, all I need to do now was to prepare some food and wait till dinner time.
 
 Speaking of dinner, every day, Phanna has been giving me strange ingredient lists and even stranger cooking instructions.
 
-Initially, I didn't take it very seriously but a few days ago, I tried one of it and it ended up tasting a lot better than I thought with such strange methods. 
+Initially, I didn't take it very seriously but a few days ago, I tried one of these strange recipies and it ended up tasting a lot better than I thought.
 
 But despite the results, ingredients were definitely more difficult to get. 
 
 Since we didn't live by the ocean, salt is somewhat hard to come by and so was meat other than birds or fish.
 
-Despite that, I end up trying to cook according to Phanna's strange recipes while making sure to object to any unrealistic requests in hopes that Phanna will see my sincerity and maybe start seeing things from my perspective.
+Despite that, I ended up mostly cooking according to Phanna's strange recipes while making sure to object to any unrealistic requests in hopes that Phanna will see my sincerity and maybe start seeing things from my perspective.
 
 It's not like I didn't explain why I needed Phanna to attend the entrance exams.
 
