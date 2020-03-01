@@ -10,7 +10,7 @@ In fact, I was quite thankful that he was willing to stay with me to keep an eye
 
 But the more time we spend together, the more I've come to realize just how annoying it is to have my self proclaimed number 1 fan around me at all times. 
 
-Not only that, he also didn't really return to the school at all during the past week. 
+Not only that, but he also didn't really return to the school at all during the past week. 
 
 The thought of him being neglectful of his duties drove me crazy. All the more so because the cause of it was me. 
 
@@ -242,7 +242,7 @@ Like that, my next discussion with Phanna was decided, all I need to do now was 
 
 Speaking of dinner, every day, Phanna has been giving me strange ingredient lists and even stranger cooking instructions.
 
-Initially, I didn't take it very seriously but a few days ago, I tried one of these strange recipies and it ended up tasting a lot better than I thought.
+Initially, I didn't take it very seriously but a few days ago, I tried one of these strange recipes and it ended up tasting a lot better than I thought.
 
 But despite the results, ingredients were definitely more difficult to get. 
 
@@ -276,7 +276,7 @@ I let out a sigh and walked over to Phanna's bed.
 
 "How would you feel if you were Pillow?" I said while gesturing for Phanna to sit up.
 
-"I... I don't know. Besides, wether or not Pillow's capable of feeling anything is debatable." Phanna protested while sitting up.
+"I... I don't know. Besides, whether or not Pillow's capable of feeling anything is debatable." Phanna protested while sitting up.
 
 "Let's try something else then, what are pets like in your homeworld?" I asked as I molded some legs on the underside of the tray using my Forgemaster ability before placing the tray on the bed in front of Phanna.
 
@@ -312,7 +312,7 @@ And so, I continued.
 
 "Oh? How did you get along with this pet?"
 
-"I don't remember. I archived those memories a few hundred years ago when I started trying  to become unique. Should I search through the archives for memories of my pet?"
+"I don't remember. I archived those memories a few hundred years ago when I started trying to become unique. Should I search through the archives for memories of my pet?"
 
 "No, it's fine," I replied as if I understood any of what was said.
 
