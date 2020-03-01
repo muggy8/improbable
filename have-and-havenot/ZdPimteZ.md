@@ -260,7 +260,7 @@ Ethan gave me a firm nod in response and with that, I left to search for a way t
 
 I once again returned to the room Phanna's resting in with a tray full of dinner in hand.
 
-I looked at the aquarium as I always do when entering this room.
+I looked at the aquarium when I entered this room.
 
 Pillow's not there.
 
@@ -276,9 +276,9 @@ I let out a sigh and walked over to Phanna's bed.
 
 "How would you feel if you were Pillow?" I said while gesturing for Phanna to sit up.
 
-"I... I don't know. Besides, if Pillow's capable of feeling anything is debatable." Phanna protested while sitting up.
+"I... I don't know. Besides, wether or not Pillow's capable of feeling anything is debatable." Phanna protested while sitting up.
 
-"Let's try something else, what are pets like in your homeworld like?" I asked as I created some legs on the underside of the try with my Forgemaster ability.
+"Let's try something else then, what are pets like in your homeworld?" I asked as I molded some legs on the underside of the tray using my Forgemaster ability before placing the tray on the bed in front of Phanna.
 
 "They're mostly fluffy non-human quadrupedal animals with a tendency to die from random illnesses. Consequently, they're not very popular. Most people only ever get one in their lifetime if any at all since the loss of a pet is quite a traumatic experience for most people."
 
@@ -296,7 +296,7 @@ How Phanna's mind works is a complete mystery to me, a black box with inner work
 
 Spending effort trying to comprehend any of Phanna's nonsense was just going to end up hurting my head.
 
-Yet here I am with the daunting task of trying to understand why Phanna chose to be summoned ahead of me.
+Yet here I am with the daunting task ahead: trying to understand why Phanna chose to be summoned.
 
 The most I can do now is just to ease myself into this task and hope that I don't get too overwhelmed by Phanna's nonsense before I hit the key points.
 
@@ -312,11 +312,11 @@ And so, I continued.
 
 "Oh? How did you get along with this pet?"
 
-"I don't remember. I archived those memories a few hundred years ago when I started working on a become unique plan. Should I search through the archives for memories of my pet?"
+"I don't remember. I archived those memories a few hundred years ago when I started trying  to become unique. Should I search through the archives for memories of my pet?"
 
 "No, it's fine," I replied as if I understood any of what was said.
 
-I walked over to PIllow by the corner of the room and moved it back into the aquarium before getting a chair from the desk and sitting back down next to the bed.
+I walked over to PIllow by the corner of the room and moved it back into the aquarium before getting a chair from the desk and sitting back down next to the bed. 
 
 By now, Phanna looks like they're mostly finished with eating and looked like it was now a good time to get to the big question at hand. 
 
@@ -324,7 +324,7 @@ I took a deep breath and began.
 
 "Phanna, why did you choose to get summoned?"
 
-Phana, a little surprised by my question, turned to look at me with a concerned face before replying with:
+Phanna, a little surprised by my question, turned to look at me with a concerned face before replying with:
 
 "Why are you asking?"
 
@@ -350,17 +350,17 @@ Maybe I can brush it off?
 
 Phanna then moved their gaze away from me and onto Pillow in the aquarium.
 
-"Since I can theoretically live forever, I need to forget chunks of memory every now and then. There's just isn't enough space to store thousands of years of memory in my brain."
+"Since I can theoretically live forever, I need to forget chunks of memory every now and then. There just isn't enough space to store thousands of years of memory in my brain."
 
 Phanna pointed to their head with their finger and then continued.
 
-"On average, it takes about 500 years for one archiving cycle to take place and the majority of the unused memories are extracted from my head and put into my bones. However, some extremely strong memories stay with me even after a few archiving events such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
+"On average, it takes about 500 years for one archiving cycle to complete; meaning the majority of the memories are now unused and are, consequently, extracted from my head and put into my bones. However, some extremely strong memories stay with me even after a few archiving cycles such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
 
 I nodded in sympathy. 
 
 Although I don't fully understand what Phanna's saying, I feel like at least I'm understanding the general idea of it. 
 
-"Honestly, if I can just forget things on demand, things would be much easier but because of ethical and legal reasons. I have to wait for memories to fade away over time before they get archived in order to forget. Unfortunately, traumatic memories don't just go away that easily..."
+"Honestly, if I can just forget things on demand, things would be much easier, but, because of ethical and legal reasons, I have to wait for memories to fade away over time before they get archived in order to forget. Unfortunately, traumatic memories don't just go away that easily..."
 
 "I... I see"
 
@@ -368,7 +368,7 @@ I feel like, for the first time, I am understanding Phanna.
 
 Although much of it is still fuzzy, there are still some key details that I am able to get.
 
-I guess trama hurts for everyone, even for someone like Phanna who comes from a world extremely different from my own. 
+I guess trauma hurts for everyone, even for someone like Phanna who comes from a world extremely different from my own. 
 
 "Does that mean you intend to return to your homeworld eventually?" I asked.
 
@@ -428,7 +428,7 @@ I had something I could do to change the future.
 
 I felt like I was seeing myself in Phanna.
 
-And then it struck me, Phanna right now is the exact same way I was after Aurora's and Hickory's departure. 
+And then it struck me, Phanna right now is the exact same way I was after Aurora and Hickory departed from my life. 
 
 I felt like I was understanding Phanna a little more now. 
 
@@ -494,7 +494,7 @@ Phanna answered with a weak nod.
 
 Phanna nodded weakly again.
 
-"Then can I get you to attend the entrance exams to Ethan's school then? It's an interesting experience so I'm sure it'll be worth remembering. I still remember doing the exams for the first time myself so I'm sure you'll find it worthwhile. Is that alright?"
+"Then can I get you to attend the entrance exams to Ethan's school? It's an interesting experience so I'm sure it'll be worth remembering. I still remember doing the exams for the first time myself, not to Ethan's school of course. That's why I'm sure you'll find it worthwhile. Is that alright?"
 
 Again, Phanna replied with a weak nod.
 
