@@ -1,0 +1,247 @@
+# Epilogue
+
+"N4, the experiment is all set up for you now. "
+
+A voice called into an endless darkness.
+
+Is the darkness truly endless? Who knows but it definitely feels that way and that's all that matters.
+
+Another voice then called back from within the darkness.
+
+"Thanks FF3"
+
+Then the voice in the darkness whispered.
+
+"user wave_receivers start no_cache"
+
+Then a pause...
+
+As the initiation process continued, something in the far off distance came into view... or well... not really into view but more like it was being made recognizable.
+
+This new thing in the far off distance was a static fuzzy feeling, like a low audible buzz that can also be seen or felt, and just slightly within the threshold of cognition.
+
+This feeling extends in all directions as if surrounding everything in all directions far off in the infinite distance.
+
+As the feeling became clearer and clearer, the voice from within the darkness called out once again.
+
+"QF3 and FF3, you're both clear to begin the experiment."
+
+Not a second later, several large disturbances were felt against the ambient background, 2 of them in fact; both round.
+
+There's no orientation to locate where these disruptions happened, the only thing for sure is the distance from the center, their relationship to each other and their mass.
+
+"54.33 meters, 98.87 meters, 0.54π." Called the voice in the darkness.
+
+There was no call out for mass, only distance and the angle between them
+
+"Recorded," Replied the voice on the other side.
+
+The 2 disturbances disappeared from the fuzzy background and another 2 appeared somewhere else in its place.
+
+"38.59 meters, 82.04 meters, 0.87π"
+
+"Recorded"
+
+Again, and again, and again, and again...
+
+The disturbances appeared and disappeared countless times, each time with a measurement call out followed by an acknowledgment.
+
+After what must have been an eternity of disturbances and call outs, the disturbances finally stopped.
+
+"Alright, we're all clear N4."
+
+"Thanks FF3."
+
+"I'll be getting you out of the pod now."
+
+"That'd be great."
+
+A minor disturbances can be felt against the fuzzy background as the owner of that voice on the other side began to approach.
+
+44.87 meters
+
+38.21 meters
+
+35.40 meters
+
+...
+
+Then a rectangular hole opened up in the middle of the darkness accompanied by a blinding beam of light.
+
+"How's the sensory deprivation pod?" said the silhouette
+
+"How many times do I have to tell you! Turn the lights off before opening the pod doors!"
+
+Click, the blinding beam of light disappeared.
+
+"Oops sorry..." came the reply. "Anyways, I'm gonna drain the critical fluids now so watch out for the bottom."
+
+"Thanks FF3"
+
+"No problem. QF3 is crunching the numbers right now but I think your error margin is less than 0.03π most of the time and within 0.07 meters as far as distances goes."
+
+"Seems like publishable data to me. A few more tweaks to the calculation algorithm and the Biological Gravitational Wave Observation system would be pretty much complete"
+
+"Think you can get the changes in before the 23rd?"
+
+"Hmm? that like a week away... why the hurry?"
+
+"Well, on the 23rd, it's the 240th anniversary of the founding of this team. Even though we lost a few members along the way, this is still a momentous occasion. That's why I was hoping we can get it finished and published on that day."
+
+"Oh snap... you're right... our last anniversary celebration was... 10 years ago right"
+
+"12 actually. we decided to go with 12 year cycles cause somebody kept insisting 'base 12 is the way to go'..."
+
+"Oh right... hehe my bad... oh and before I forget... user wave_receivers stop." The fuzzy feeling in the far off distance slowly faded away.
+
+After a short pause, simultaneous utterances were made.
+
+"I guess a few long all nighters are in order"
+
+"I guess we'll all be averaging less than ideal amounts of sleep for the next while"
+
+## <center>...</center>
+
+<img src="~" width="600px" height="250px" alt="(Image: 3 people are sitting at a table. Two of them have their backs towards the point of view one on each side of the image while the third in the middle is facing towards the point of view. The chairs the three are sitting at is a long couch like chair with soft cushions that match the length of the rectangular table which seemed to be designed for a group of 4. There is a window to the left of the scene right up against the table and and what appears to be moon light or street lamp light is shining through. The light inside the room is dim to induce a romantic atmosphere; or at least that's what it feels like it's trying to do. The person sitting in the middle across the table has 2 sets of ears, long pointy ones near the eyes extruding out and long fox like ones on top of their head. The expression on the 4 eared person seems unhappy.)"/>
+
+"I think this is the worst anniversary we've ever had... like ever" said QF3 who's voice was flat and monotonous.
+
+"I'm past 1000 years old at this point. I should be eligible for mortality at this point" said FF3 with a voice that matched QF3's
+
+The energetic optimism in everyone's voices from before was now replaced by a flat and depressing tone.
+
+"As am I... so what are you gonna do N4, at this point, you're at most 800 so mortality isn't really an option" QF3 continued,
+
+"I don't know... unlike you and FF3, I'm only in my 800s... probably... I think all I can do at this point is spend my next couple hundred years in a simulation and then call it quits after that... or maybe I'll become a mortality agent and you'll see me on your final day, hehe."
+
+"You don't seem like the serial killer type" FF3 scoffed while QF3 pursued the other topic.
+
+"Speaking of simulations, I heard that a number of people who spend enough time in them sometimes make new discoveries because of the change in perspective it brings. Both me and FF3 have spent a couple centuries in them before with no real results. I remember U4 was saying something along the lines of there being a better chance of making new discoveries in a simulation than there is by sticking around us before quitting."
+
+"Ya, maybe you'll discover something new!"
+
+"Thanks you two but you both know that that's impossible. That only really happens once or twice per year in our continental region."
+
+"..."
+
+"..."
+
+"..."
+
+Nobody provided a counterargument.
+
+They both know that that's the truth.
+
+In the silence, a server made their way to the table holding a tray of drinks.
+
+"One order of Super Cooled Dragon Breath, one order of today's Daily Paradox..."
+
+The drinks were put in front of the people who ordered it as the server recited the orders.
+
+"And finally, one order of Silvery Clear Milk Tea with pearls."
+
+Then, the server left the table.
+
+"I thought you two didn't drink alcohol..."
+
+"N4, Don't think about it too much."
+
+"Err... alright..."
+
+The three drank in silence as if mulling over something as the server once again returned, this time with a service trolley instead.
+
+Once again the server began reciting the orders as before, and as they did, they also began transferring the plates on the tray to locations in front of the people sitting at the table.
+
+"One order of Ram stake with mixed grains and a side of Vacuum Chips, one order of Fungus Salad with squid ink dressing and a side of assorted jerky, finally, one order of Assorted Sushi consisting of jellyfish, lobster, puffer fish, and sting ray rolls and a side of Miso Soup"
+
+As the server continued moving food and reciting orders, there was an ever looming sense that something important is happening.
+
+But nothing happened.
+
+The server finished placing the food and was just about to turn around and leave when a voice stopped her.
+
+"Um... excuse me but can I ask you a question?"
+
+"Sure thing." Replied the server.
+
+"Why do you work this job? What keeps you here? you're clearly not an android despite your appearance. I can tell by your voice."
+
+As the server pondered over how to answer the question, FF3 and QF3 gulp down the last of their drinks in preparation for the main course.
+
+"I guess it's because I enjoy helping people...? sort of? And every once in a while, I get to have a nice chat with someone I normally wouldn't get to chat with."
+
+"People like me?"
+
+"Yup, people like you."
+
+"That seems oddly paradoxical to me."
+
+"Why's that?"
+
+"Cause there's nothing inherently interesting or unique about me, or anyone for that matter."
+
+"That sounds awfully grim... you ok there?"
+
+"About as ok as a person who's life's goal has been taken away could be I guess..."
+
+"Ouch, that sounds rough... I'm sure you'll bounce back eventually unlike those two."
+
+The server gestured towards FF3 and QF3 sitting across the table.
+
+They both seem to be passed out with their food barely touched.
+
+The server who was serving food just a little while earlier is now dragging QF3 like some kind of rag doll and shoving them into the service trolley that the food was brought out on.
+
+Pretty soon it was FF3's turn to be shoved into the serving trolley.
+
+Somehow such a small trolley was able to fit two adult persons onto it.
+
+"Wait... what's happening here... no... wait... are you...?"
+
+"A mortality agent? Yes."
+
+"You don't mean..."
+
+"Yes. Both OCAZS344SOXE7FF3 and 4INGQV93SSRH6QF3 are now officially deceased."
+
+"Wait Wait Wait Wait!!! doesn't it normally take years to get the whole process approved and executed?"
+
+"Approval is often nearly instantaneous assuming the applicant meets all the requirements in one way or another, with few exceptions. Execution can be expected any time after approval for up to 10 years to simulate proper mortality."
+
+"W-When was their application approved?"
+
+"About 14 hours ago."
+
+"Then the answers you gave me earlier about helping people and chatting with me... Were they all just lies?"
+
+"No, it's all true. I'm a very honest person after all. It's not every day that you get to see or talk to the friends, acquaintances, and/or family of mortality applicants and even less common to have the execution carried out in front of said people... What? Did you actually believe that mortality agents are all just a bunch of serial killers that are given a job to keep busy do you? After all, there's no such thing as an unarmed civilian so your garden variety serial killer won't really get too far."
+
+"..."
+
+"To be honest, it's probably for the best that you believe that. There's a pretty good reason for that rumor to exist. In my 8 or so centuries of being a mortality agent, I've only ran into a hand full of instances where someone in your position thought otherwise, and they're all people who has had experienced interacting with another mortality agent before."
+
+"Right... that'd lead to too many agents if people knew better..."
+
+"ding ding ding. you get a gold star."
+
+"So... since you're a mortality agent, do you know any ways of getting an application approved  without meeting the age requirement?"
+
+"Nope. I only have access to knowledge you can access. Except for my assignments, I can only download data from the public databases into my system like most civilians."
+
+"That's a shame..."
+
+"Is it? I've seen plenty of people in your state or worse recover. So you shouldn't give up so early."
+
+"Easy for you to say."
+
+The mortality agent disguised as a server closed the door on the trolley and looked back warmly maintaining eye contact and a sympathetic smile.
+
+The agent said nothing but a glimmer could be seen in their eyes.
+
+Was this a tear or was this something else.
+
+Before long, our eye contact was broken and the mortality agent began retreating to the back of the service room with the trolley.
+
+It wasn't until much later that this whole sequence of events sank in and started to make sense.
+
+## <center>...<center>
