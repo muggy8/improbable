@@ -210,5 +210,88 @@ The rest of the shoes were rather easy to form out of the leather and shortly, b
 
 Phanna stood there as instructed but I could see their face was full of amazement as they watched me perfom the whole thing.
 
-However, Phanna didn't utter a single word throughout this whole precess. 
+However, Phanna didn't utter a single word throughout this whole process. 
 
+Once the whole process was done, all I said was "Alright, lets go. We don't have much time left."
+
+"Oh, uh, right." Phanna responded a little stunned still.
+
+We left my house shortly after and arrived at Ethan's school.
+
+Ethan was giving his speech already as we arrived.
+
+If it wasn't for Phanna's shoe situation, we would have made it on time but unfortunately we are just a tiny bit late.
+
+This time, we arrived via the main entrence path that lead up to the gravel field which is connected to the school building.
+
+Since I was expected to be part of the judging comitee, I already had the abilities Observation and Investigation active before we got anywhere near the school grounds.
+
+By the time the school grounds were fully within my Sphere of Influence, I had noticed a couple other instances of observation type abilities were active already. 
+
+The source of these abilities were, unmistakeably, the faculty members of the school. 
+
+Ethan was already giving his speech in the middle of the field when Phanna and I got close to the school ground.
+
+I didn't want to draw attention to us so I activated Camouflage to hide Phanna and I as we made our approach. 
+
+I did that partly as a disguise to the students who are seated at the benches near the school building but also partly as an announcment to the staff on site that we have arrived. 
+
+As if exactly on que, one of the faculty memebers came up to us under Camoflauge as well.
+
+I didn't exactly recognize who it was becaue of the Camoflauge but they were quite excited as they quitely caught us up on what's happening. 
+
+"Master Mikay, it's really an honor to have you join us. Principal Ethan is currently just giving the welcoming section of the speech. Please make your way over to the Judging stand."
+
+"Thank you. How should Phanna proceed?"
+
+"Is Phanna able to make it over to the benches unnoticed?" the faculty member asked.
+
+"Are you able to Phanna?" I asked as I poked Phanna.
+
+"Do I have to?"
+
+"Yes you do. For the new memories, remember?"
+
+Phanna sighed and murmured something strange.
+
+"user load_experiance assasin's movement;"
+
+After saying that, I felt as if something changed inside about Phanna.
+
+Phanna was no longer standing in the usual way.
+
+"Phanna you ok?" I asked out of concern.
+
+"Yah, I'm fine." Phanna answered uncaringly.
+
+I guess we really aren't off to the best of stats.
+
+"Get me to any corrner of the building there and I'll get myself into those benches." Phanna instructed out of the blue.
+
+"Um... Alright..." I studdered.
+
+We made our way to the closest edge by the building under my Camoflauge. 
+
+The faculty who was with me was just as confused as I was but phanna didn't give us an explanation and just told us we can go now.
+
+I wasn't sure what was going on but I would be able to keep an eye on Phanna using Observervation and Investigation anyway so I agreed and left Phanna alone and went to the judging area.
+
+As I made my way to the the seating area for the judging pannel, I noticed through my Observation ability that Phanna was appearently scaling the walls of the school building and then entering through what must have been an open window. 
+
+Phanna then made their way through the building somehow evading notice from the various members of faculty watching the event from within the building. 
+
+Phanna finally made it to the part of the building near where the prospective students are seated.
+
+It wasn't until then I actually caught sight of Phanna again near the window on the ground floor.
+
+Phanna hopped out of the window and casually walked to the benches and sat down on the ground behind the perspective student.
+
+Surprisingly, none of the perspective students seemed to have noticed.
+
+I was a bit shocked that Phanna was able to do this.
+
+I had a feeling that Phanna was planning on doing something like sneaking around the building but even I couldn't have forsaw this.
+
+I could feel cold sweat run down the side of my head as I began to worry about what will become of the entrence exam. 
+
+## <center>~<center>
