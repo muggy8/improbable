@@ -507,3 +507,5 @@ And I also know I can no longer give up anymore.
 But quitting was never part of the plan anyway.
 
 ## <center>...<center>
+
+<center><a href="./dEUBB5Iq">Next Chapter</a></center>
