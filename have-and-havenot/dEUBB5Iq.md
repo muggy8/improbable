@@ -295,6 +295,34 @@ I was a bit shocked that Phanna was able to do this.
 
 I had a feeling that Phanna was planning on doing something like sneaking around the building but even I couldn't have foreseen this.
 
-I could feel cold sweat run down the side of my head as I began to worry about what will become of the entrance exam. 
+As Phanna's infiltration finished, a member of the judging panel beside me informed me that the judging panel introduction is about to begin. 
+
+Of course, I haven't really been listening to Ethan's speech as I was focused on watching Phanna's movements.
+
+That and I didn't really feel the need to listen to Ethan's speech that closely since I've heard it countless times before when I was once a teacher in this school and sat through the same exact speech time and time again for years. 
+
+Then again, at the time, the person giving the speech was Aurora which made the speeches easier to sit through, at least for me.
+
+After I was done watching Phanna's movements, I shifted my attention to Ethan who was giving the usual speech to the prospective students.
+
+"And now, allow me to introduce the judges for this event," Ethan announced.
+
+I knew I was supposed to be the last one to be introduced since I was technically a special guest so I took the time to observe the area some more.
+
+Being much closer than when I first used Observation and Investigation to scan the area, I noticed that there were a few more active ability sources than I had initially noticed.
+
+First off, there were instances of observation type abilities active all around the school grounds. 
+
+These were other onlookers such as upper-level students or faculty who aren't participating in the judging panel this time around. 
+
+However, what really surprised me was that there were 3 people in the group of prospective students that also had observation type abilities active. 
+
+I couldn't exactly make out who they were but if I had to guess, they're the ones who are most likely to going pass the entrance exams. 
+
+"Finally, allow me to introduce you all to the final member of our judging panel, Master Mikay" Ethan called.
+
+This time, not only the prospective students were clapping but also many of the onlookers as well.
+
+I let out a sigh and made my way over to where the rest of the judging panel was now standing in the middle of the field.
 
 ## <center>~<center>
