@@ -257,7 +257,7 @@ I didn't exactly recognize who it was because of the Camouflage but they were qu
 
 Phanna sighed and murmured something strange.
 
-"user load_experiance assassin's movement;"
+"user load_experiance assassin's traversal;"
 
 After saying that, I felt as if something changed inside Phanna.
 
