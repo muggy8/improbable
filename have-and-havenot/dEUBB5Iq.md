@@ -317,7 +317,7 @@ These were other onlookers such as upper-level students or faculty who aren't pa
 
 However, what really surprised me was that there were 3 people in the group of prospective students that also had observation type abilities active. 
 
-I couldn't exactly make out who they were but if I had to guess, they're the ones who are most likely to going pass the entrance exams. 
+I couldn't exactly make out who they were but if I had to guess, they're the ones who are most likely to pass the entrance exams. 
 
 "Finally, allow me to introduce you all to the final member of our judging panel, Master Mikay" Ethan called.
 
