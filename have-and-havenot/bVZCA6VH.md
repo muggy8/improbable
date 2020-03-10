@@ -60,11 +60,63 @@ As we moved, Ethan's speech seems to boom louder and louder.
 
 "The goal of our compition isn't to find the storngest or the most capable amongst you. Instead is to find the most driven indiviuals with the highest aptitude. That's why our entrence exams is orginized as a series of one on one matches where the winning condition is to push your opponent off the platforms. As applicants, you are encouraged to use every too at your disposal to accomplish this task however, our goal is not to have you all kill each other but rather to demonstrate your drive and aptitude as stated earlier. As such, the use of lethal force is strictly forbideden during this compeition..."
 
-I found myself with Mikay and his accomplice by the edge of the building. 
+I found myself with Mikay and his accomplicea by the edge of the building. 
 
-Observing my surroundings again, I noticed instincts are telling me that I'm ready to perform the infiltration.
+Observing my surroundings again, I noticed instincts are telling me that I'm ready to perform the infiltration as soon as I'm alone.
 
-"Thanks, you two can go now." I said 
+"Thanks, you two can go now." I said trusting those instincts.
 
 Mikay and his accomplice gave me a confused look but they eventually did end up leaving.
+
+After Mikay and his accomplice left, I didn't act until my instincts told me that everything is ready.
+
+While waiting, I got a bit curious so I activated the body mod that lets me observe Gravitational Waves.
+
+"user wave_receivers start" I whispered to initiate the Gravitational Wave Observatory in my ears.
+
+A fuzzy staicky in the far off, maybe even infinite, distance became noticeable.
+
+Soon enough, things much closer became distinguishable as sihloetes against the blur of the background fuzz. 
+
+I remember being a bit taken aback by how high fedelity this simulation was the first time I did this.
+
+I was surprised that even the gravitational waves were fully simulated.
+
+Then again, I wasn't sure how surprised i should be since it might have been a normal aspect of simulated worlds that no one really cares about since it's not really somthing worth mentioning.
+
+I was quite impressed how realistic this simulation but because this is my first time inside one, I'm not exactly sure if this was normal or not.
+
+However, based on the Copernican Principle, logically speaking,I should expect this to be a rather normal simulation.
+
+But none the less, the world in this simulation is rather impressive overall. 
+
+Too bad it runs on karma.
+
+I let out a mental sigh.
+
+My instincts were telling me that everything is ready now so I began making my move.
+
+I engaged the leg tendon tensioning aperatus in my hips and my legs suddenly became kind of like bouncy springs.
+
+I lowered myself to the ground and prepaired to jump.
+
+As i did, I felt the tendon that ran all the way down from my hip bone to my foot bone tense up.
+
+I then swung my arms as i released my jump and took off for the 4th floor window, the highest floor of the building.
+
+As i did, I could feel the sihloets of the building and all of it's inhabitants shift against the fuzzy feeling cosmological background audio as my perspective shifted during my leap.
+
+I grabbed a window on the 4th floor of the building and peaked in.
+
+There was a long hallway going down the biulding with what seemed like row of rooms on one side and windows on the other.
+
+There was alot of spectators in the hallway watching Ethan on the field through the windows.
+
+The windows were fortunately all open.
+
+I definately didn't notice this earlier but my instincts definately did.
+
+I don't think this is a good path to approach from but my instincts were a step ahead.
+
+It seems that the other floors are no good as well according to my instincts but I continued.
 
