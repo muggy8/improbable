@@ -52,6 +52,7 @@ Emily
 Metiorican
 Alisha
 Patrisha 
+Corona
 
 ## Used:
 Phanna (isekai'd)
