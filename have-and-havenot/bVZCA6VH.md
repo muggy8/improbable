@@ -1,6 +1,6 @@
  # User
 
-"user load_experiance assassin's traversal;" I said quietly.
+"user load_experiance assassin's traversal" I said quietly.
 
 _Loading assassin experience's traversal experience subset... Complete._
 
@@ -12,7 +12,7 @@ The strangest part of loading experiences is that despite gaining a bunch of exp
 
 Yet despite gaining no new declarative memories, I felt my awareness increase dramatically. 
 
-Because of my heightened senses, I noticed Mikay looking at me, the strange person who seems semi-transparent standing beside him.
+Because of my heightened senses, I noticed Mikay looking at me and the strange person who seems semi-transparent standing beside him.
 
 "Are you ok?" Mikay asked.
 
@@ -20,9 +20,9 @@ Because of my heightened senses, I noticed Mikay looking at me, the strange pers
  
 I continued to look around the area wondering if I would be able to make my way over to the benches undetected.
 
-I honestly didn't really know if Mikay's demand of "sneak into the student seating area undetected" was possible or not but I had a feeling that if it was possible, the assassin experience pack would be the most likely tool to be able to make that happen.
+I honestly didn't really know if Mikay's demand of "sneak into the student seating area undetected" was possible or not but I had a feeling that if it was possible, the assassin experience pack would be the tool that is most likely able to be able to make that happen.
 
-Somehow, with the help of the experience pack. I was able to formulate a plan. 
+Somehow, with the help of the experience pack, I was able to formulate a plan. 
 
 I could just jump into the building and make my way to the other side stealthily.
 
@@ -68,7 +68,7 @@ While waiting, I got a bit curious so I activated the body mod that lets me obse
 
 "user wave_receivers start" I whispered to initiate the Gravitational-Wave Observatory in my ears.
 
-A fuzzy sticky in the far off, maybe even infinite, the distance became noticeable.
+A fuzzy static in the far off, maybe even infinite, distance became noticeable.
 
 Soon enough, things much closer became distinguishable as silhouettes against the blur of the background fuzz. 
 
@@ -130,7 +130,7 @@ It was a slanted roof with rainwater gutters on the side.
 
 Some of the people standing in the hallway watching the speech looked clearly bored by the speech
 
-"... Of course, we also understand that in the heat of the moment, sometimes lethal force may be used accidentally. This is especially the case for those of you who are from harsher environments. That's why as the overseers of this exam, my team and I will intervene if we judge a that may result in the loss of life. In the case of such an event, the violator in question will be given a round loss. Remember, this test is a test of drive and aptitude and restraint is a key part of that..." boomed Ethan's voice.
+"... Of course, we also understand that in the heat of the moment, sometimes lethal force may be used accidentally. This is especially the case for those of you who are from harsher environments. That's why as the overseers of this exam, my team and I will intervene if we judge that an action may result in the loss of life. In the case of such an event, the violator in question will be given a round loss. Remember, this test is a test of drive and aptitude and restraint is a key part of that..." boomed Ethan's voice.
 
 Honestly, I really just want to get this over with. 
 
@@ -142,7 +142,7 @@ But my instincts told me no.
 
 I was starting to get a good handle on what stuff is my thoughts and what stuff is the experience pack's thoughts by this point.
 
-The plan I thought of before was to just jump into the building and sneaking around to the other side but now, that plan seems like it's out of the question now. 
+The plan I thought of before was to just jump into the building and sneaking around to the other side but now, that plan seems like it's out of the question. 
 
 Now that I think about it, did the experience pack actually come up with the plan?
 
@@ -196,7 +196,7 @@ Clap, Clap, Clap, Clap, Clap, Clap, Clap...
 
 Step, Step, Step, Step, Step, Step, Step...
 
-Using Ethan's speech and the applause as destruction, I quietly made my way to the ground floor and then to the window in the hallway just behind where the other students are.
+Using Ethan's speech and the applause as distraction, I quietly made my way to the ground floor and then to the window in the hallway just behind where the other students are.
 
 For some reason, there weren't many people here. 
 
@@ -204,7 +204,7 @@ In fact, the entire wing of the building was almost empty.
 
 I hopped out of the window, walked towards the seating area and sat down on the floor behind the last row. 
 
-"user unload_experience assassin's traversal" I whispered under my breath with congratulating myself on a mission well done.
+"user unload_experience assassin's traversal" I whispered under my breath wile congratulating myself on a job well done.
 
 My whisper was completely drowned out by the sound of Ethan's voice but that was all part of the plan. 
 
@@ -264,11 +264,13 @@ I guess Physics in this world doesn't really make sense.
 
 Not that I should expect otherwise allowing random chance to generate my simulated world and all.
 
-After the stone platforms were raised out of the ground, Mikay and the other people he was with walked away to stand by the edge of the building where they came from again and again Ethan began to speak again. 
+After the stone platforms were raised out of the ground, Mikay and the other people he was with walked away to stand by the edge of the building where they were originally standing earlier.
+
+Then, Ethan began to speak again. 
 
 I completely zoned him out and started looking around. 
 
-I started observing the other people that are around sitting around the benches hoping to find a slime person that I could sneak up to and lean onto. 
+I started observing the other people that are sitting around the benches hoping to find a slime person that I could sneak up to and befriend. 
 
 If a slime could exist as a pet in this world then there's no reason why there wouldn't be people made of slime in this world too. 
 
@@ -296,7 +298,7 @@ I purposely positioned myself at the end of the line.
 
 I didn't know what the line was for since I've been zoning Ethan out since I sat down.
 
-That's why I instinctively gravitated to the back of the line to not make a fool of myself if I ended up needing a few retries to do whatever it is that we're all lining up here for. 
+That's why I instinctively gravitated to the back of the line to not make a fool of myself if I ended up needing a few tries to do whatever it is that we're all lining up here for. 
 
 Pretty soon, I was standing before Ethan.
 
@@ -344,5 +346,9 @@ I guess it's not my turn.
 
 Looking around, 8 people stood up from among the crowds and made their way to Ethan and then onto the platforms. 
 
-"Begin when ready." Called Ethan.
+Once all 8 examinee were on the platforms in pairs of 2, Ethan called out his signal to begin.
+
+"Begin when ready." Ethan boomed.
+
+## <center>...</center>
 

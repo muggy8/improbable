@@ -257,7 +257,7 @@ I didn't exactly recognize who it was because of the Camouflage but they were qu
 
 Phanna sighed and murmured something strange.
 
-"user load_experiance assassin's traversal;"
+"user load_experiance assassin's traversal"
 
 After saying that, I felt as if something changed inside Phanna.
 
@@ -326,3 +326,5 @@ This time, not only the prospective students were clapping but also many of the 
 I let out a sigh and made my way over to where the rest of the judging panel was now standing in the middle of the field.
 
 ## <center>~<center>
+
+<center><a href="./bVZCA6VH">Next Chapter</a></center>
