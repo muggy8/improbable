@@ -16,7 +16,7 @@ Because of my heightened senses, I noticed Mikay looking at me and the strange p
 
 "Are you ok?" Mikay asked.
 
-"Yeah, I'm fine," I replied said trying to brush him off.
+"Yeah, I'm fine," I replied trying to brush him off.
  
 I continued to look around the area wondering if I would be able to make my way over to the benches undetected.
 
