@@ -165,3 +165,124 @@ I got up and walked over to Ethan as did 7 other students around me.
 We formed a line and Ethan had a short chat with each of us before telling us which platform we should go to.
 
 Of course, I positioned myself at the end of the line. 
+
+"Glad to see you again" Ethan said to me as it got to my turn to speak to him.
+
+I still would rather not be here right now but repeating myself was rather pointless since I'm here already so instead I responded with a sigh.
+
+He pointed towards a platform and told me
+
+"you're on that platform this round."
+
+"Oh." I replied in an unenthusiastic tone and made my way over to the platform.
+
+Once I was standing on the platform, Ethan called out in the same way he did in the last round:
+
+"Begin when ready!" 
+
+I look towards my opponet after Ethan's callout.
+
+he was a short person, looks to be the male variant of his species.
+
+He was rather muscular and carried around quite a bit of fat. 
+
+Another rather... 'interesting' fashion statement. 
+
+He eyed me up and down just as I did to him before he spoke out. 
+
+"My name is Adrian, yours?"
+
+"I think I'm supposed to answer Phanna."
+
+"Well Phanna, I'm not one to initiate a fight with a women so I'll let you have the fist move."
+
+"Um... what?"
+
+"You heard me, bring it."
+
+I guess I looked like a female variant of my species to this guy.
+
+But I wasn't really concerned, I was just given the freedom of initiating the fight on my terms.
+
+That means I should make the most of this situation and find a way to end it as fast as possiable.
+
+I was pretty sure no real harm could come to me but I'm just trying to end the tutorial as fast as I can. 
+
+I guess there's only one reasonable thing to do then.
+
+I got down low and took a running stance.
+
+Adrian responded by taking up some kind of fighting stance as well. 
+
+I then engaged the tendons that ran from my hips to my legs and both my legs tensed up.
+
+Releasing the tension in the tendon, I leaped towards Adrian at an incredibly high speed.
+
+Adrian seemed to have been able to respond barely in time putting up a blocking gesture.
+
+Just as I had hoped.
+
+I adjusted my approach a bit to kick into his block.
+
+My shin landed into his blocking arms.
+
+My upper body continued flying forwards.
+
+Because of Adrian's defence, my entire body started rolling forwards and lost some momentum.
+
+Yet still, I had enough momentum remaining for what I was aiming for.
+
+My body flew over Adrian's body.
+
+I rolled into a ball in mid air to increase my spin and continued to sumersault in midair as I flew forwards.
+
+just as I was about to hit the ground, the ground dropped down by about half a meter.
+
+That was my signal that I was no longer on the platform.
+
+I then extended my body again and landed on my legs.
+
+My Hip-to-foot gracefully absorbed the force of the landing.
+
+I turned around to face an Adrian frantically turning around predicting a second attack that didn't come.
+
+I stood there, off of the platform quite glad I still had enough parkour muscle memory left in me to pull this off.
+
+"Hmm, I seem to have overshot the landing" I said nonchalauntly. 
+
+"What?!" Adrian yelled angrily.
+
+"Congrats, you win." I replied.
+
+But Adrian didn't seem happy at the result.
+
+He seemed angry, really angry.
+
+But he couldn't do anything, the match was over.
+
+Yet he continued yelling.
+
+"Are you seriousuly going to just end this without using a single ability?"
+
+I did make use of my Parkour abilities but I doubt that was what he was talking about. 
+
+I have heard Mikay mention something about abilities before but I didn't pay much attention to it. 
+
+I had a feeling that that was what Adrian was reffering to but I had no idea what it was.
+
+"Never had a chance" I replied as I walked towards the benches.
+
+I could feel Adrian's angry expression against the blurry fuzz of the cosmic background audio as I left the platform.
+
+Before me was a crowd of disapproving looking faces as I approached the benches.
+
+Natrually, I was the first one to return to the benches.
+
+I sat down, once again, on the seat were I was sitting before the fight once I got to the benches.
+
+The reception was unwelcoming.
+
+I noticed a large number of the prospective students glaring at me as if I had just breached some end user licence agreement or something.
+
+Adrian also returned to the benches and sortly after, I started hearing a fair bit of whispering around his general area.
+
