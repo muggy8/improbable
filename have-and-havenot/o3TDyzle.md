@@ -106,7 +106,7 @@ Both fighters were not heavy or dense enough to completely ignore attacks like t
 
 Is this a bug in the simulation code?
 
-Maybe I should report it to the devs.
+Maybe I should report it to the devs later.
 
 But then again, this world looks like it has something like magic in it given how Mikay made my shoes today morning so maybe it's not a bug in the simulation code but just a cleaver application of whatever magic they have.
 
@@ -194,7 +194,7 @@ He eyed me up and down just as I did to him before he spoke out.
 
 "I think I'm supposed to answer Phanna."
 
-"Well Phanna, I'm not one to initiate a fight with a women so I'll let you have the fist move."
+"Well Phanna, I'm not one to hit a women first so I'll let you attack first."
 
 "Um... what?"
 
@@ -206,7 +206,7 @@ But I wasn't really concerned, I was just given the freedom of initiating the fi
 
 That means I should make the most of this situation and find a way to end it as fast as possiable.
 
-I was pretty sure no real harm could come to me but I'm just trying to end the tutorial as fast as I can. 
+I was pretty sure no real harm could come to me so I should focus on trying to end the tutorial as fast as I can. 
 
 I guess there's only one reasonable thing to do then.
 
@@ -214,25 +214,25 @@ I got down low and took a running stance.
 
 Adrian responded by taking up some kind of fighting stance as well. 
 
-I then engaged the tendons that ran from my hips to my legs and both my legs tensed up.
+I then engaged the tendons that ran from my hips to my foot and both my legs tensed up.
 
-Releasing the tension in the tendon, I leaped towards Adrian at an incredibly high speed.
+Releasing the tension in the tendon, I leaped towards Adrian at a speed he wasn't prepaired for.
 
-Adrian seemed to have been able to respond barely in time putting up a blocking gesture.
+Yet somehow, Adrian seemed to have been able to respond barely in time shifting his arms into a defensive posture
 
 Just as I had hoped.
 
 I adjusted my approach a bit to kick into his block.
 
-My shin landed into his blocking arms.
+My shin landed into his guarding arms.
 
-My upper body continued flying forwards.
+My upper body continued flying forwards with the momentum.
 
-Because of Adrian's defence, my entire body started rolling forwards and lost some momentum.
+Because of Adrian's defence, my entire body started rolling forwards and I lost some momentum.
 
 Yet still, I had enough momentum remaining for what I was aiming for.
 
-My body flew over Adrian's body.
+My body flew over Adrian's body carried by momentum.
 
 I rolled into a ball in mid air to increase my spin and continued to sumersault in midair as I flew forwards.
 
@@ -242,11 +242,11 @@ That was my signal that I was no longer on the platform.
 
 I then extended my body again and landed on my legs.
 
-My Hip-to-foot gracefully absorbed the force of the landing.
+My Hip-to-foot tendon gracefully absorbed the force of the landing.
 
 I turned around to face an Adrian frantically turning around predicting a second attack that didn't come.
 
-I stood there, off of the platform quite glad I still had enough parkour muscle memory left in me to pull this off.
+I stood there, off of the platform feeling quite glad I still had enough parkour muscle memory left in me to pull this stunt off.
 
 "Hmm, I seem to have overshot the landing" I said nonchalauntly. 
 
@@ -278,7 +278,7 @@ Before me was a crowd of disapproving looking faces as I approached the benches.
 
 Natrually, I was the first one to return to the benches.
 
-I sat down, once again, on the seat were I was sitting before the fight once I got to the benches.
+I sat down, once again, at the seat were I was sitting in before the fight once I got to the benches.
 
 The reception was unwelcoming.
 
@@ -286,3 +286,76 @@ I noticed a large number of the prospective students glaring at me as if I had j
 
 Adrian also returned to the benches and sortly after, I started hearing a fair bit of whispering around his general area.
 
+Soon enough, someone started whispering to me too.
+
+It was the girl sitting beside me named Melody who's conversation I was eavesdroping on earlier.
+
+"Um, if it's ok to ask but, why did you do that?" she whispered.
+
+"Do what?" I whispered back.
+
+"You know, the whole stunt with jumping over Adrian."
+
+"Oh, I just thought it was a good way to end the match quickly."
+
+"Why though?"
+
+"Why not?"
+
+"Because it doesn't show the teachers your drive or aptitude at all."
+
+"I mean, I kinda got forced into this exam. So this is my way of leaving without actually leaving."
+
+"That's... insane..."
+
+Melody seemed rather socked at what I said before continueing.
+
+"What about all the prep work?"
+
+"What prep work? Mikay over there just told me he signed me up for some exam one day and forced me to come." I whispered while gesturing to Mikay by the group of teachers who's names I didn't remember.
+
+"M-Master Mikay signed you up?" 
+
+Melody was shocked.
+
+I could hear a few ghasps around me as I whispered this.
+
+Clearly, I wasn't the only one doing eavesdropping in this crowd. 
+
+Melody regained compomposure shortly after.
+
+"What's your name if I may ask? My name is Melody."
+
+"Mikay decided that my name is Phanna now so I guess that's what my answer is."
+
+Again, people around me were very surprised.
+
+I feel like any time I mention Mikay, the crowd gets shocked.
+
+"Phanna, what is your relationship to Mikay?" Melody asked.
+
+She had quite a serious look in her eyes.
+
+I knew that I had no choice but to answer.
+
+But I had never thought about this before.
+
+Quest giver? NPC Companion? Handler? none of theses answers could be given without the risk of triggering the emergency simulation abort system. 
+
+How do I answer this question? I guess I only have one answer to give...
+
+"I don't really know. I woke up in his home not too long ago and have been living there since. he askedme to help him save his daughter or something and made me come to this exam. What kind of relationship that's called is beyond me." I answered. 
+
+But this answer just caused more shock and confusion among the people around me. 
+
+It was around this time that Ethan's voice boomed once more as everyone shifted their attention back to him.
+
+"Good work to our round 2 contestants, now, would colours purple, cyan, pink and brown please come up."
+
+Ethan's call reverbrated against the school building behind us.
+
+8 students got up from the benches area and made their way to line up before Ethan.
+
+Melody was one of those 8.
+
+She was nervious, very nervious, to the point where I could feel her uneasiness as she departed my side.
