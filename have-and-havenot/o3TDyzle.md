@@ -10,11 +10,11 @@ The pair that immediately went at each other were fighting in a way that looked 
 
 At least to me. 
 
-I was never too interested in combative sports to know anything concrete because I was more of a parkour kind of person. 
+I was never too interested in combative sports to know anything concrete as I was more of a parkour kind of person. 
 
 Despite my last parkour run being hundreds of years ago, I still have some memories of my parkour days that haven't been archived.
 
-Based on my parkour experiance, I felt like the footwork of the sumo boxers were rather lacking.
+Based on my parkour experience, I felt like the footwork of the sumo boxers were rather lacking.
 
 Looking around, I noticed that manyof the students around me were focused on another pair.
 
@@ -42,9 +42,9 @@ The two of them talked for a bit before finally getting into some sort of fighti
 
 I guess when Ethan said "Begin when ready" he really meant it and the prospective students are making full use of that readying time. 
 
-In a blink and you'll miss it moment, the tailed boy leaped at the pointy eared girl.
+In a blink and you'll miss it moment, the tailed boy leaped at the pointy-eared girl.
 
-He clawed at her but she caught his hand mid strike and returned a low sweep.
+He clawed at her but she caught his hand mid-strike and returned a low sweep.
 
 Surprisingly, it didn't knock him over as her kick bounced off his shin.
 
@@ -52,29 +52,29 @@ Taking advantage of that, the tailed boy kicked with his other leg.
 
 The girl evaded the attack by jumping back.
 
-Upon landing, she immediately leaped forwards again trying to attack but the tailed boy has already regaind his ballence.
+Upon landing, she immediately leaped forwards again trying to attack but the tailed boy has already regained his balance.
 
-As she closed in, she lead with what looked like a strong punch which the tailed boy blocked with ease. 
+As she closed in, she leads with what looked like a strong punch which the tailed boy blocked with ease. 
 
-But she immediately followed up with a series of quick jabs which were all easily blocked.
+But she immediately followed up with a series of quick jabs that were all easily blocked.
 
-Despite her relentless attacks, the tailed boy didn't seem to be too bothered at all yet for some reason, the tailed boy retreated backwords after a few hits. 
+Despite her relentless attacks, the tailed boy didn't seem to be too bothered at all yet for some reason, the tailed boy retreated backwards after a few hits. 
 
-Funny enough, the pointy eared girl didn't jump in to continue her attacks but instead she began talking again. 
+Funny enough, the pointy-eared girl didn't jump in to continue her attacks but instead she began talking again. 
 
-Despite the chat, both fighters maintained their combat stance unlike how they were during chat before the fight started. 
+Despite the chat, both fighters maintained their combat stance unlike how they were during the chat before the fight started. 
 
 I took this moment to glance at the other fights and they all looked like they were doing the sumo boxing thing the first pair were. 
 
 In fact, the first pair seemed to have finished their fight and are already making their way back to the benches.
 
-I returned my gaze to the arena with the pointy eared girl and the tailed boy just in time to catch them engaging each other again.
+I returned my gaze to the arena with the pointy-eared girl and the tailed boy just in time to catch them engaging each other again.
 
 The tailed boy continued to initiate the attack by jumping towards the girl while throwing a punch.
 
 She didn't react at all and just took the hit with her cheek.
 
-The tailed boy's attack looked like it would have sent the pointy eared girl flying but for some reason, she only slightlylost her footing but overall, she didn't move much. 
+The tailed boy's attack looked like it would have sent the pointy-eared girl flying but for some reason, she only slightlylost her footing but overall, she didn't move much. 
 
 She stood her ground and grabbed the tailed boy's arm that was connected to her face.
 
@@ -86,11 +86,11 @@ Yet as they continued, it was very clear what was going on.
 
 The tailed boy was getting pushed back.
 
-The pointy eared girl's hold on him enesured that he was in striking range as well as controlling which direction he could retreat in.
+The pointy-eared girl's hold on him ensured that he was in striking range as well as controlling which direction he could retreat in.
 
-It looked like the tailed boy was just a single step away from falling off the stage when, suddenly, he caugh one of the girl's punches by her wrist and had her arm firmly held in his palm.
+It looked like the tailed boy was just a single step away from falling off the stage when, suddenly, he caught one of the girl's punches by her wrist and had her arm firmly held in his palm.
 
-He the proceeds to throw her outside of the platform in one smooth motion.
+He then proceeds to throw her outside of the platform in one smooth motion.
 
 I could hear gasps in the crowd as this happened.
 
@@ -108,19 +108,19 @@ Is this a bug in the simulation code?
 
 Maybe I should report it to the devs later.
 
-But then again, this world looks like it has something like magic in it given how Mikay made my shoes today morning so maybe it's not a bug in the simulation code but just a cleaver application of whatever magic they have.
+But then again, this world looks like it has something like magic in it given how Mikay made my shoes today morning so maybe it's not a bug in the simulation code but just a clever application of whatever magic they have.
 
-I have heard that fantacy worlds are popular simulation destination with a certain group of people so a simulated world with magic doesn't seem that out there.
+I have heard that fantasy worlds are popular simulation destinations with a certain group of people so a simulated world with magic doesn't seem that out there.
 
-First it's karma and now magic. 
+First, it's karma and now magic. 
 
 This world is getting less and less realistic by the minute. 
 
-I notice the pointy eared girl sitting down near me. 
+I notice the pointy-eared girl sitting down near me. 
 
 There was another girl between us. 
 
-The girl beside me and the pointy eared girl seemed to know each other and they began chatting.
+The girl beside me and the pointy-eared girl seemed to know each other and they began chatting.
 
 I couldn't help but to eavesdrop a bit.
 
@@ -138,7 +138,7 @@ I couldn't help but to eavesdrop a bit.
 
 "Well, you tried your best sis, but Leon is just too strong."
 
-"Melody, you're getting it all wrong, failure is failure even if you've tried your best or not."
+"Melody, you're getting it all wrong, a failure is a failure even if you've tried your best or not."
 
 "S-sorry..."
 
@@ -154,7 +154,7 @@ The two stopped their chatter just as Ethan began shouting again.
 
 "Good work to our round 1 contestants, now, would colours orange, gray, green and black please come up."
 
-I looked down at my card to double check.
+I looked down at my card to double-check.
 
 On it was a green dot.
 
@@ -166,7 +166,7 @@ We formed a line and Ethan had a short chat with each of us before telling us wh
 
 Of course, I positioned myself at the end of the line. 
 
-"Glad to see you again" Ethan said to me as it got to my turn to speak to him.
+"Glad to see you again," Ethan said to me as it got to my turn to speak to him.
 
 I still would rather not be here right now but repeating myself was rather pointless since I'm here already so instead I responded with a sigh.
 
@@ -174,13 +174,13 @@ He pointed towards a platform and told me
 
 "you're on that platform this round."
 
-"Oh." I replied in an unenthusiastic tone and made my way over to the platform.
+"Oh," I replied in an unenthusiastic tone and made my way over to the platform.
 
 Once I was standing on the platform, Ethan called out in the same way he did in the last round:
 
 "Begin when ready!" 
 
-I look towards my opponet after Ethan's callout.
+I look towards my opponent after Ethan's callout.
 
 he was a short person, looks to be the male variant of his species.
 
@@ -194,7 +194,7 @@ He eyed me up and down just as I did to him before he spoke out.
 
 "I think I'm supposed to answer Phanna."
 
-"Well Phanna, I'm not one to hit a women first so I'll let you attack first."
+"Well Phanna, I'm not one to hit a woman first so I'll let you attack first."
 
 "Um... what?"
 
@@ -204,7 +204,7 @@ I guess I looked like a female variant of my species to this guy.
 
 But I wasn't really concerned, I was just given the freedom of initiating the fight on my terms.
 
-That means I should make the most of this situation and find a way to end it as fast as possiable.
+That means I should make the most of this situation and find a way to end it as fast as possible.
 
 I was pretty sure no real harm could come to me so I should focus on trying to end the tutorial as fast as I can. 
 
@@ -216,9 +216,9 @@ Adrian responded by taking up some kind of fighting stance as well.
 
 I then engaged the tendons that ran from my hips to my foot and both my legs tensed up.
 
-Releasing the tension in the tendon, I leaped towards Adrian at a speed he wasn't prepaired for.
+Releasing the tension in the tendon, I leaped towards Adrian at a speed he wasn't prepared for.
 
-Yet somehow, Adrian seemed to have been able to respond barely in time shifting his arms into a defensive posture
+Yet somehow, Adrian seemed to have been able to respond barely in time to shift his arms into a defensive posture.
 
 Just as I had hoped.
 
@@ -234,7 +234,7 @@ Yet still, I had enough momentum remaining for what I was aiming for.
 
 My body flew over Adrian's body carried by momentum.
 
-I rolled into a ball in mid air to increase my spin and continued to sumersault in midair as I flew forwards.
+I rolled into a ball in mid-air to increase my spin and continued to somersault in midair as I flew forwards.
 
 just as I was about to hit the ground, the ground dropped down by about half a meter.
 
@@ -244,15 +244,15 @@ I then extended my body again and landed on my legs.
 
 My Hip-to-foot tendon gracefully absorbed the force of the landing.
 
-I turned around to face an Adrian frantically turning around predicting a second attack that didn't come.
+I turned around to face Adrian frantically turning around predicting a second attack that didn't come.
 
 I stood there, off of the platform feeling quite glad I still had enough parkour muscle memory left in me to pull this stunt off.
 
-"Hmm, I seem to have overshot the landing" I said nonchalauntly. 
+"Hmm, I seem to have overshot the landing," I said nonchalantly. 
 
 "What?!" Adrian yelled angrily.
 
-"Congrats, you win." I replied.
+"Congrats, you win," I replied.
 
 But Adrian didn't seem happy at the result.
 
@@ -262,13 +262,13 @@ But he couldn't do anything, the match was over.
 
 Yet he continued yelling.
 
-"Are you seriousuly going to just end this without using a single ability?"
+"Are you seriously going to just end this without using a single ability?"
 
 I did make use of my Parkour abilities but I doubt that was what he was talking about. 
 
 I have heard Mikay mention something about abilities before but I didn't pay much attention to it. 
 
-I had a feeling that that was what Adrian was reffering to but I had no idea what it was.
+I had a feeling that that was what Adrian was referring to but I had no idea what it was.
 
 "Never had a chance" I replied as I walked towards the benches.
 
@@ -276,19 +276,19 @@ I could feel Adrian's angry expression against the blurry fuzz of the cosmic bac
 
 Before me was a crowd of disapproving looking faces as I approached the benches.
 
-Natrually, I was the first one to return to the benches.
+Naturally, I was the first one to return to the benches.
 
-I sat down, once again, at the seat were I was sitting in before the fight once I got to the benches.
+I sat down, once again, at the seat where I was sitting in before the fight once I got to the benches.
 
 The reception was unwelcoming.
 
-I noticed a large number of the prospective students glaring at me as if I had just breached some end user licence agreement or something.
+I noticed a large number of the prospective students glaring at me as if I had just breached some end-user licence agreement or something.
 
-Adrian also returned to the benches and sortly after, I started hearing a fair bit of whispering around his general area.
+Adrian also returned to the benches and shortly after, I started hearing a fair bit of whispering around his general area.
 
 Soon enough, someone started whispering to me too.
 
-It was the girl sitting beside me named Melody who's conversation I was eavesdroping on earlier.
+It was the girl sitting beside me named Melody whose conversation I was eavesdropping on earlier.
 
 "Um, if it's ok to ask but, why did you do that?" she whispered.
 
@@ -308,31 +308,31 @@ It was the girl sitting beside me named Melody who's conversation I was eavesdro
 
 "That's... insane..."
 
-Melody seemed rather socked at what I said before continueing.
+Melody seemed rather shocked at what I said before continuing.
 
 "What about all the prep work?"
 
-"What prep work? Mikay over there just told me he signed me up for some exam one day and forced me to come." I whispered while gesturing to Mikay by the group of teachers who's names I didn't remember.
+"What prep work? Mikay over there just told me he signed me up for some exam one day and forced me to come." I whispered while gesturing to Mikay by the group of teachers whose names I didn't remember.
 
 "M-Master Mikay signed you up?" 
 
 Melody was shocked.
 
-I could hear a few ghasps around me as I whispered this.
+I could hear a few gasps around me as I whispered this.
 
 Clearly, I wasn't the only one doing eavesdropping in this crowd. 
 
-Melody regained compomposure shortly after.
+Melody regained composure shortly after.
 
 "What's your name if I may ask? My name is Melody."
 
 "Mikay decided that my name is Phanna now so I guess that's what my answer is."
 
-Again, people around me were very surprised.
+Again, the people around me were very surprised.
 
 I feel like any time I mention Mikay, the crowd gets shocked.
 
-"Phanna, what is your relationship to Mikay?" Melody asked.
+"Phanna, what is your relationship with Mikay?" Melody asked.
 
 She had quite a serious look in her eyes.
 
@@ -340,7 +340,7 @@ I knew that I had no choice but to answer.
 
 But I had never thought about this before.
 
-Quest giver? NPC Companion? Handler? none of theses answers could be given without the risk of triggering the emergency simulation abort system. 
+Quest giver? NPC Companion? Handler? none of these answers could be given without the risk of triggering the emergency simulation abort system. 
 
 How do I answer this question? I guess I only have one answer to give...
 
@@ -352,10 +352,10 @@ It was around this time that Ethan's voice boomed once more as everyone shifted 
 
 "Good work to our round 2 contestants, now, would colours purple, cyan, pink and brown please come up."
 
-Ethan's call reverbrated against the school building behind us.
+Ethan's call reverberated against the school building behind us.
 
 8 students got up from the benches area and made their way to line up before Ethan.
 
 Melody was one of those 8.
 
-She was nervious, very nervious, to the point where I could feel her uneasiness as she departed my side.
+She was nervous, very nervous, to the point where I could feel her uneasiness as she departed my side.
