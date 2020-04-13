@@ -16,7 +16,7 @@ Despite my last parkour run being hundreds of years ago, I still have some memor
 
 Based on my parkour experience, I felt like the footwork of the sumo boxers were rather lacking.
 
-Looking around, I noticed that manyof the students around me were focused on another pair.
+Looking around, I noticed that many of the students around me were focused on another pair.
 
 I followed their gaze towards a pair of combatants who seemed to just be talking. 
 
