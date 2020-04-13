@@ -52,6 +52,7 @@ Metiorican
 Alisha
 Patrisha 
 Corona
+Aileron
 
 ## Used:
 Phanna (isekai'd)
