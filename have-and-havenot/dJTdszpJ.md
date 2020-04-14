@@ -242,7 +242,7 @@ Shortly after, Melody's sister got onto the platfom facing me.
 
 Quite the formal introduction from Melody's sister. I think I'll do the same.
 
-"Um. Hi? I'm user A244X0Z4305PHAN4 of Black Hole 9M6GB4A5's 87th shell."
+"Um. Hi? I'm user A244X0Z4305PHAN4 of Black Hole Planet 9M6GB4A5's 87th shell."
 
 Amanda gave me a confused look as she readied herself.
 
@@ -260,9 +260,9 @@ I engaged my hip-to-foot tendon as I got ready to initiate the attack.
 
 I could have tried to talk her into attacking first more but I knew that that'd be a waist of time.
 
-Even if I got her to attack first, my goal has always been to end this as soon as I can win or lose.
+Even if I got her to attack first, my goal has always been to end this as soon as I can, win or lose.
 
-So I guess taking the attack role doesn't really matter in the grand scheme of things. 
+So I guess taking the attacker role doesn't really matter in the grand scheme of things. 
 
 I took multiple deep breaths then got into position.
 
@@ -292,7 +292,7 @@ It was amanda's fist.
 
 I wasn't sure how I reacted to that but I was glad I did.
 
-I then noticed that somehow had my other leg fully spring loaded.
+I then noticed that I somehow had my other leg fully spring loaded.
 
 Before I even had the chance to realize, my leg kicked amanda sending me away from her.
 
@@ -334,13 +334,13 @@ She curled up around my leg and had a firm grip on me.
 
 I desprately tried to sake her off with no success.
 
-Soon enough, she got a hold of my other leg too.
+Soon enough, she got a hold of my other leg.
 
-After that point, she was able to push me to the ground too.
+After that point, she was able to push me to the ground.
 
-I tried my best to get free but her grip on my legs were iron tight. 
+I tried my best to break free but her grip on my legs were iron tight. 
 
-Shortly after, she got up off the ground still with a firm grip on both my legs.
+Shortly after, she got up off the ground still with her firm grip on both my legs.
 
 "I'll admit, you're skill is impecable. But fighting without using any abilities puts you at a great handicap." Amanda said to me as I lay face first on the ground with both my feets firmly in her grip.
 
@@ -372,7 +372,7 @@ With her iron tight grip on both my legs, she began swinging me around.
 
 After two or three spins, she released her grip and I went flying out of the platform.
 
-As I hit the ground below, I rolled myself into a ball.
+As I was about to hit the ground below, I rolled myself into a ball.
 
 After my roll put me into the right position, I extended my legs and jumped back onto my feet.
 
@@ -380,6 +380,43 @@ A graceful landing.
 
 My back was facing Amanda now.
 
-I instinctively waved a goodbye to her without turning around as I walked to the benches to take a seat.
+I instinctively waved a goodbye to her without turning around as I walked to the benches murmuring: 
 
-She followed after me shortly after.
+"user unload_experiance grandiose's combat"
+
+I did not want to let the experiance pack do anything else I didn't intend on doing. 
+
+Amanda followed after me shortly after.
+
+As the experaince pack unloaded, I could feel my posture change as well as my hip to foot tendons disengaging.
+
+Upon my arrival at the benches, I tried my best to find somewhere far from Amanda to sit but Melody was waving to me already.
+
+I reluctantly sat down next to her unsure of if I made the right choice.
+
+Amanda sat down on the other side of Melody as expected and I felt the whole situation getting really awackward really fast. 
+
+Melody was the first to break the silence.
+
+"Phanna, sis, what happened out there?"
+
+"Exactly what it looked like happened" I answered.
+
+But Amanda's answer was completely different.
+
+"Phannn didn't use a single ability. I had Inspection active the whole time."
+
+"Wait, really?" Melody puzzled while looking at me and Amanda airheadedly.
+
+Amanda noded while I gave a shrug.
+
+After all, I had no idea what these ability things they kept talking about even were.
+
+Melody seemed really unhappy about the answer before she spoke up again.
+
+"It looked like Phanna was using quicken which is rarely used in these exams. I wanted to ask what it was like for both of you and why the choice to use quicken over strengthen but..."
+
+Melody let out a sigh and didn't finish her sentence.
+
+Amanda has returned to checking Melody's body again and I sat there awackwardly waiting for the next round to begin. 
+
