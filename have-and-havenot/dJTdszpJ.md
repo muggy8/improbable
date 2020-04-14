@@ -18,7 +18,7 @@ Melody didn't immediately get into a combat stance but instead chatted away with
 
 Unfortunately, they were too far away to hear. 
 
-I honestly was quite curious at what her chatter was since I was rooting for her for she was the only person I had any interaction with here.
+Honestly, I was quite curious at what her chatter was since I was rooting for her because she was the only other prospective student I had interacted with.
 
 The conversation didn't last too long as Melody and the horned boy both got into some sort of fighting stance.
 
@@ -34,9 +34,11 @@ Using the momentum of her run, Melody tackled the horned boy with her body.
 
 But the horned boy was only pushed back slightly. 
 
-Melody swung her arm around the horned boy's and seemed to be making her best attempt at pushing him but she doesn't seem to be making any progress.
+Melody swung her arm around the horned boy in what looked like a big hug and made her best attempt to push him over.
 
-As this happened, the horned boy made his move by kicking into her body as his hands were caught Melody's hold.
+Unfortunately, she doesn't seem to be making any progress.
+
+As this happened, the horned boy made his move by kicking into her body as his hands were caught in Melody's hold.
 
 Melody took a hit, then another...
 
@@ -108,7 +110,7 @@ There was only one single pair of fighters still fighting at this point.
 
 judging by the looks of it, they fought each other in much the same way that Melody and the horned boy were.
 
-Sumo Boxing felt like an appropriate description. 
+Sumo Boxing still felt like an appropriate description for what these fights were like.
 
 Eventually, the last fight ended with one contestant getting pushed off the platform.
 
@@ -138,7 +140,7 @@ The other contestants, I didn't recognize.
 
 "Begin when ready" Shouted Ethan as usual.
 
-This time, two of the 4 pairs of fighters engaged each other.
+This time, two of the 4 pairs of fighters engaged each other right away.
 
 Leon and Adrian didn't, instead, they chatted.
 
@@ -206,7 +208,7 @@ Shortly after, the next round began.
 
 "Good work to our round 4 contestants, now, would shapes heart, circle, octagon and star please come up."
 
-I got up off the bench and made my why to Ethan.
+I got up off the bench and made my way to Ethan.
 
 As I got up, I noticed that Melody's sister got up too.
 
@@ -238,15 +240,15 @@ Shortly after, Melody's sister got onto the platform facing me.
 
 "Begin when ready," called Ethan.
 
-"Hello Phanna, let's have a proper fight as you promised. Allow me to formally introduce myself, I am Amanda of the northern mountains elves."
+"Hello Phanna, let's have a proper fight as you promised. Allow me to formally introduce myself, I am Amanda of the northern mountain elf colony."
 
 Quite the formal introduction from Melody's sister. I think I'll do the same.
 
-"Um. Hi? I'm user A244X0Z4305PHAN4 of Black Hole Planet 9M6GB4A5's 87th shell."
+"Hello Amanda, I'm user A244X0Z4305PHAN4 of Black Hole Planet 9M6GB4A5's 87th shell. I am also known as Phanna." I replied.
 
 Amanda gave me a confused look as she readied herself.
 
-From the looks of it, she didn't intend to attack first if at all, probably because of my earlier observation.
+From the looks of it, she didn't intend to attack first, if at all, probably because of my earlier observation.
 
 Feeling a bit stupid, I attempted to bait her into attacking first.
 
@@ -258,13 +260,13 @@ No surprises there.
 
 I engaged my hip-to-foot tendon as I got ready to initiate the attack. 
 
-I could have tried to talk her into attacking first more but I knew that that'd be a waste of time.
+I could have tried harder to talk her into attacking first but I knew that that'd be a waste of time.
 
 Even if I got her to attack first, my goal has always been to end this as soon as I can, win or lose.
 
-So I guess taking the attacker role doesn't really matter in the grand scheme of things. 
+So I guess taking the attacker role doesn't really matter to me. 
 
-I took multiple deep breaths then got into position.
+I took multiple deep breaths, then, got into position.
 
 As soon as I was in position, I jumped towards Amanda.
 
@@ -284,9 +286,9 @@ My shin landed straight onto her head.
 
 Amanda barely budged.
 
-My body twisted unexpectedly as my kick landed as if to avoid something.
+My body twisted unexpectedly just as my kick landed as if to avoid something.
 
-Just then, a fist came flying up through where my body just was.
+Just then, a fist came flying up through where my body was just moments ago.
 
 It was Amanda's fist.
 
@@ -332,7 +334,7 @@ Instead of getting kicked off the stage, Amanda caught my kick with her body.
 
 She curled up around my leg and had a firm grip on me.
 
-I desperately tried to sake her off with no success.
+I desperately tried to shake her off with no success.
 
 Soon enough, she got a hold of my other leg.
 
@@ -360,7 +362,7 @@ Amanda didn't like my answer.
 
 "What about my feet?"
 
-"They look nothing like anything I've seen, not only that, your ears are absolutely abnormal what are you really."
+"They look nothing like anything I've seen, not only that, your ears are absolutely abnormal. What are you really?"
 
 "As I said already, I'm just a human. I can pass the Turing Test with ease so I'm a human. Nothing more nothing less."
 
@@ -400,7 +402,7 @@ Melody was the first to break the silence.
 
 "Phanna, sis, what happened out there?"
 
-"Exactly what it looked like happened" I answered.
+"Exactly what it looked like," I answered.
 
 But Amanda's answer was completely different.
 
@@ -418,5 +420,5 @@ Melody seemed really unhappy about the answer before she spoke up again.
 
 Melody let out a sigh and didn't finish her sentence.
 
-Amanda has returned to checking Melody's body again and I sat there awkwardly waiting for the next round to begin. 
+After that, Amanda returned to checking Melody's body again and I sat there awkwardly waiting for the next round to begin. 
 
