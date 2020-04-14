@@ -361,3 +361,5 @@ Melody was one of those 8.
 She was nervous, very nervous, to the point where I could feel her uneasiness as she departed my side.
 
 ## <center>...<center>
+
+<center><a href="./dJTdszpJ">Next Chapter</a></center>
