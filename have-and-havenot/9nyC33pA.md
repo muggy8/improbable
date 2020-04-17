@@ -38,7 +38,11 @@ But to my surprise, it looks like the summoning ritual had worked normally. Noth
 
 This one's got long pointy ears growing where normal humans would have ears. In fact, these ears are so similar to elf ears that I would have just assumed that I had summoned an elf had it not been for the other set of black fox like ears that seems to blend right into the summoned's shiny black hair.
 
-This is the first time I've ever seen such a strange setup in any humanoid ever but that's really not much of a concern to me.
+This is the first time I've ever seen such a strange setup in any humanoid ever. 
+
+Though if this person is a Chimera, it would totally explain the appearent fox like ears on the body of, what would other wise have been, a mostly normal looking elf.
+
+That said, what kind of world would a Chimera like this come from? I've only ever heard of Chimeras in legends.
 
 …
 
