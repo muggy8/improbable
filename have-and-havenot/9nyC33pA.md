@@ -40,7 +40,7 @@ This one's got long pointy ears growing where normal humans would have ears. In 
 
 This is the first time I've ever seen such a strange setup in any humanoid ever. 
 
-Though if this person is a Chimera, it would totally explain the appearent fox like ears on the body of, what would other wise have been, a mostly normal looking elf.
+Though if this person is a Chimera, it would totally explain the apparent fox like ears on the body of, what would otherwise have been, a mostly normal looking elf.
 
 That said, what kind of world would a Chimera like this come from? I've only ever heard of Chimeras in legends.
 
