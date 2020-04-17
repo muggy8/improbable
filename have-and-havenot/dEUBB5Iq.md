@@ -149,7 +149,9 @@ The next issue to tackle is footwear.
 
 I have combat shoes that I use daily and keep in relatively good condition but extras were not something I had on hand.
 
-My previous summon came with a full set of equipment including boots and armour but Phanna was summoned with just a shirt, shorts and that's it. 
+My previous summon came with some basic equipment like boots and a knife, which I've kept as a keepsake.
+
+Phanna, on the other hand, was summoned with just a shirt and shorts, nothing else. 
 
 I wasn't sure what to do.
 
