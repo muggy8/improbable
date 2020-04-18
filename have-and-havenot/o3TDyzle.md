@@ -48,19 +48,21 @@ He clawed at her but she deflected his swipe mid-strike and countered with a low
 
 Surprisingly, it didn't knock him over as her kick bounced off his shin.
 
-Taking advantage of that, the tailed boy kicked with his other leg.
+Taking advantage of that, the tailed boy responded with a kick from his other leg.
 
-The girl evaded the attack by jumping back.
+The girl jumped back and evaded the counter-attack in clockwork fashion.
 
-Upon landing, she immediately leaped forward again trying to attack but the tailed boy has already regained his balance.
+Upon landing, she immediately leaped forward again to press whatever advantage she may have had still, but the tailed boy was ready. 
 
-As she closed in, she leads with what looked like a strong punch which the tailed boy blocked with ease. 
+He had already regained his balance by then and stood firm.
 
-But she immediately followed up with a series of quick jabs that were all easily blocked.
+As she closed in, she tried what looked like a strong punch but the tailed boy parried it with ease. 
+
+But she immediately followed up the first punch with a series of quick jabs that were all easily blocked or parried.
 
 Despite her relentless attacks, the tailed boy didn't seem to be too bothered at all, yet, for some reason, the tailed boy retreated backwards after a few hits. 
 
-Funny enough, the pointy-eared girl didn't try to close the distance to continue her attacks but instead she began talking again. 
+Funny enough, the pointy-eared girl didn't try to close the distance to press her attack again but instead she began talking to the tailed boy. 
 
 Despite the chat, both fighters maintained their combat stance unlike how they were posturing during the chat before the fight started. 
 
@@ -70,15 +72,15 @@ In fact, the first pair seemed to have finished their fight and are already maki
 
 I returned my gaze to the arena with the pointy-eared girl and the tailed boy just in time to catch them engaging each other again.
 
-The tailed boy continued to initiate the attack by jumping towards the girl while throwing a punch.
+The tailed boy reinitiated the fight again by jumping towards the girl while throwing a punch.
 
-She didn't react at all and just took the hit with her cheek.
+She didn't react at all and just took the punch to the face. 
 
-The tailed boy's attack looked like it would have sent the pointy-eared girl flying but for some reason, she only slightlylost her footing, but overall, she didn't move much. 
+The tailed boy's strike looked like it would have sent the pointy-eared girl flying but for some reason, she only slightly lost her footing, but overall, she maintained her stance.
 
 She stood her ground and grabbed the tailed boy's arm that was connected to her face.
 
-With a firm grip on her target, she started hitting the boy in rapid succession.
+With a firm grip on her target, she started hitting the boy in rapid succession with her other arm.
 
 The tailed boy made his best attempt to block her punches with his free hand but it didn't seem like it was working.
 
@@ -88,9 +90,9 @@ The tailed boy was getting pushed back.
 
 The pointy-eared girl's hold on him ensured that he was always in striking range as well as being able to control his movement options.
 
-It looked like the tailed boy was just a single step away from falling off the stage when, suddenly, he caught one of the girl's punches by her wrist and had her arm firmly held in his hand.
+It looked like the tailed boy was just a single step away from falling off the stage when, suddenly, he caught one of the girl's punches by her wrist and had her firmly held in his trap.
 
-He then proceeds to throw her outside of the platform in one smooth motion.
+The pointy-eared girl struggled with what seemed like all her might but it was a pointless struggle as the tailed boy proceeded to throw her outside of the platform in one smooth motion.
 
 I could hear gasps in the crowd as this happened.
 
@@ -216,35 +218,29 @@ Adrian responded by taking up some kind of fighting stance as well.
 
 I then engaged the tendons that ran from my hips to my foot and both my legs tensed up.
 
-Releasing the tension in the tendon, I leaped towards Adrian at a speed he wasn't prepared for.
+Using the tension in my hip to foot tendon, aided by my leg muscles, I rocketed towards Adrian with several gs of acceleration before readying myself for a flying kick.
 
-Yet somehow, Adrian seemed to have been able to respond barely in time to shift his arms into a defensive posture.
+Yet somehow, Adrian seemed to have been able to respond in time and shifted his arms into a defensive posture covering his face with crossed arms.
 
 Just as I had hoped.
 
-I adjusted my approach a bit to kick into his block.
+I kicked into his blocking arms and the resulting impact sent shockwaves reverberating through my body but this, too, was all a part of the plan.
 
-My shin landed into his guarding arms.
+My upper body continued flying forwards carried by momentum.
 
-My upper body continued flying forward with the momentum.
+Because of Adrian's defence, my entire body started rolling forwards.
 
-Because of Adrian's defence, my entire body started rolling forwards and I lost some momentum.
+I flew over Adrian's body as I rolled my body into a ball to increase my spin.
 
-Yet still, I had enough momentum remaining for what I was aiming for.
+All that's left to do is to follow my ballistic trajectory towards my goal. 
 
-I flew over Adrian's body carried by momentum.
-
-I rolled into a ball in mid-air to increase my spin and continued to somersault in midair as I flew forwards.
-
-just as I was about to hit the ground, the ground dropped down by about half a meter.
+Just as I was about to hit the ground, the ground dropped down by about half a meter.
 
 That was my signal that I was no longer on the platform.
 
-I then extended my body again and landed on my legs.
+I then extended my body again and landed gracefully on the springs created by my modified legs.
 
-My Hip-to-foot tendon gracefully absorbed the force of the landing.
-
-I turned around to face Adrian frantically turning around predicting a second attack that didn't come.
+My Hip-to-foot tendon effortlessly absorbed the force of the landing and I turned around to face an Adrian frantically turning around predicting a second attack that never came.
 
 I stood there, off of the platform feeling quite glad I still had enough parkour muscle memory left in me to pull this stunt off.
 
