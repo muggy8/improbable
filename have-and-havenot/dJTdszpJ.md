@@ -28,9 +28,9 @@ Compared to her sister, Melody felt slow and sluggish.
 
 She charged at the horned boy and swung her fist at him.
 
-He blocked her punch with ease but that wasn't the end.
+In response, he stopped her punch with his palm like catching a ball but there was more.
 
-Using the momentum of her run, Melody tackled the horned boy with her body.
+Using the momentum of her charge, Melody tackled the horned boy with her body.
 
 But the horned boy was only pushed back slightly. 
 
@@ -38,41 +38,59 @@ Melody swung her arm around the horned boy in what looked like a big hug and mad
 
 Unfortunately, she doesn't seem to be making any progress.
 
-As this happened, the horned boy made his move by kicking into her body as his hands were caught in Melody's hold.
+But why? 
 
-Melody took a hit, then another...
+My instincts told Melody's tackle would have definitely pushed the horned boy over but why didn't it.
 
-The third hit came and she flew off of the boy.
+Before I could ponder on this any more, the horned boy began counter-attacking by kicking into her body
 
-She didn't look like she was in good shape but she continued regardless.
+Melody's only saving grace is that she caught both of the horned boy's hands in her hold.
+
+The horned boylanded a clean kick. 
+
+Then another...
+
+Then the third kick came.
+
+Melody flew off of the boy like a rag doll, bounced on the floor, and landed dangerously close to the edge.
+
+Even just watching this felt painful.
+
+Yet somehow, Melody continued.
 
 She made the same approach as last time and the boy blocked her attack all the same.
 
-She tackled him right after in the same way too but this time making much more progress.
+She tackled him right after in the same way too but this time she made much more progress.
 
 Unfortunately, one of the horned boy's arms were free this time and he pummeled her with his free arm and also kicked at her.
 
-This time, things seemed different.
+I wanted to look away.
+
+But I can't.
+
+Why doesn't Ethan stop this?
+
+But something seemed different this time.
 
 Melody made an attempt to push the horned boy to the side during his kick.
 
-This seemed to have succeeded as the boy fell to his side.
+Success!
 
-During his fall, he grabbed Melody with his free hand and pulled her down too.
+The boy fell to his side.
 
-As the horned boy hit the floor back first, he also swung up a powerful kick and launched Melody off the platform.
+During his fall, he grabbed Melody with his free hand pulling her down with him.
 
-I was dumbfounded.
+As the horned boy hit the floor, he launched a powerful kick and ejected Melody off the platform.
 
-Why did she make the exact same approach as the first time?
+I clenched as I watched this.
 
-The horned boy got up.
+But it was all over now.
 
-He then got off of the stage, helped Melody up off the floor and returned to the benches.
+The horned boy got up and then got off of the stage to help Melody up off the floor before returning to the benches.
 
-Melody did the same and sat down next to me again. 
+Melody returned to the bentches too and sat down next to me again. 
 
-She was quiet.
+She was quiet and I felt uneasy.
 
 Melody's sister was the first to speak up.
 
@@ -84,15 +102,11 @@ Melody's sister was the first to speak up.
 
 "..."
 
-"Did he kick you here?" Melody's sister asked while looking at where Melody's hands were.
+"Are you injured here?" Melody's sister asked while looking at where Melody's hands were.
 
 Melody nodded in response.
 
-I didn't notice earlier but Melody had her hand on her stomach region the entire time.
-
-Did Melody sustain some major damage?
-
-"Should I let Ethan know you're hurt?" I asked.
+"Should I let Ethan know you're hurt?" I asked trying to help as well.
 
 But Melody shook her head.
 
@@ -104,11 +118,11 @@ But Melody shook her head.
 
 Melody's sister cut me off and then began inspecting Melody. 
 
-I wasn't exactly sure what she was doing but I left Melody and her sister to their own devices as I looked up to watch the other contestants.
+I wasn't exactly sure what she was doing but Melody's sister didn't seem to want me to butt in so I left Melody and her sister to their own devices as I looked up to watch the other contestants.
 
 There was only one single pair of fighters still fighting at this point. 
 
-judging by the looks of it, they fought each other in much the same way that Melody and the horned boy were.
+judging by the looks of it, they fought each other in much the same way that Melody and the horned boy were except it felt less one-sided as Melody's fight.
 
 Sumo Boxing still felt like an appropriate description for what these fights were like.
 
@@ -146,9 +160,11 @@ Leon and Adrian didn't, instead, they chatted.
 
 I couldn't say I wasn't curious about their fight since I pretty much knew how the other fights will play out.
 
-The others will likely be doing the sumo boxing thing that Melody did last round until someone gets ejected from the platform.
+That and I'm not really interested in watching a repeat of Melody's painful fight.
 
-However, during Leon's fight with Melody's sister, it was clear that he was a cut above the others.
+However, during Leon's fight with Melody's sister, it was clear that he was a cut above the others so I was hoping that this wouldn't end as bad as Melody's fight.
+
+Especially since his fight with Melody's sister seemed more proper.
 
 I watched Leon and Adrian closely but their chatter didn't seem to ever end.
 
@@ -170,7 +186,7 @@ Not to be outdone, Leon also charged at Adrian.
 
 As the two approached each other, Adrian dropped himself into a sliding tackle which kind of reminds me of people playing soccer.
 
-Leon completely avoided the attack and jumped up into the air.
+Leon completely avoided the attack by jumping up into the air.
 
 Adrian immediately sat up from his slide tackle making an attempt to grab Leon's legs but Leon managed to avoid the grab.
 
@@ -236,6 +252,10 @@ I departed Ethan and walked towards the empty platform muttering:
 
 As the experience pack loaded, I could feel a change in my posture as I got up onto the stage.
 
+I had a few experience packs with combat modules in them but I knew Grandiose was the right choice without even needing to think about it. 
+
+After all, this exam is about showing off it seems.
+
 Shortly after, Melody's sister got onto the platform facing me.
 
 "Begin when ready," called Ethan.
@@ -248,9 +268,7 @@ Quite the formal introduction from Melody's sister. I think I'll do the same.
 
 Amanda gave me a confused look as she readied herself.
 
-From the looks of it, she didn't intend to attack first, if at all, probably because of my earlier observation.
-
-Feeling a bit stupid, I attempted to bait her into attacking first.
+Feeling a bit stupid, I made a half-hearted attempt at baiting her into attacking first.
 
 "So um... Ladies first?"
 
@@ -268,7 +286,7 @@ So I guess taking the attacker role doesn't really matter to me.
 
 I took multiple deep breaths, then, got into position.
 
-As soon as I was in position, I jumped towards Amanda.
+As soon as I was in position, I flew at Amanda.
 
 I would be able to close the gap in a single leap.
 
@@ -280,13 +298,23 @@ My leap would have landed me off of the platform.
 
 I swung my leg at Amanda's head as I drew close.
 
-She didn't flinch at my approach.
+She didn't flinch at my approach, but I did.
 
 My shin landed straight onto her head.
 
-Amanda barely budged.
+The impact reverberated throughout my body.
 
-My body twisted unexpectedly just as my kick landed as if to avoid something.
+I instantly felt my heart skip a beat.
+
+Melody's fight flashed before my eyes.
+
+I didn't want to do that to Amanda.
+
+But somehow, Amanda barely budged.
+
+I wasn't sure if I should be relieved or worried.
+
+My body twisted unexpectedly just as I realized Amanda was unscathed.
 
 Just then, a fist came flying up through where my body was just moments ago.
 
@@ -296,7 +324,7 @@ I wasn't sure how I reacted to that but I was glad I did.
 
 I then noticed that I somehow had my other leg fully spring-loaded.
 
-Before I even had the chance to realize, my leg kicked Amanda sending me away from her.
+Before I even had the chance to realize, my spring-loaded leg kicked into Amanda sending me away from her.
 
 Amanda's body barely reacted to the kick.
 
@@ -304,39 +332,47 @@ As I retreated, I notice Amanda's other arm grabbing at where I once was
 
 I landed a short way away and immediately bounced right back towards Amanda.
 
-She kept her eyes on me during this whole maneuver.
+I wanted a break but my body said no.
+
+Amanda was able to keep her eyes on me during this whole maneuver as I did the same to her.
 
 I threw a punch at her as I approached.
 
 She didn't react much or maybe couldn't.
 
-My fist landed right into her gut.
+I put everything I got into the punch.
 
-But she didn't budge much while absorbing my entire strike.
+My fist landed right into her gut, another impact reverberated inside me again.
 
-Immediately after, I kicked the ground and backflipped over Amanda. 
+But she didn't budge much.
 
-Upon landing, I used the momentum of my jump to swing around for a low sweep.
+Before I could think, my leg kicked the ground and I backflipped over Amanda. 
 
-My sweep caught Amanda as she turned around.
+Upon landing, my body used the momentum of my jump to swing around for a low sweep.
 
-She fell to the ground.
+My sweep caught both of us by surprise.
+
+Amanda fell to the ground.
+
+I blinked.
 
 Still spinning with the momentum, I grabbed Amanda as she fell and made an attempt to throw her in the direction of my spin.
 
-But she planted her feet into the ground in time to only get flipped over.
+But my shock at my own body's movements slowed by just enough that Amanda was able to plant her feet into the ground, avoiding the throw and only got flipped over.
 
-Amanda was about to land face-first into the ground but she caught her fall with her arms.
+Amanda's face was rapidly approaching the floor now as regret washed over me.
 
-I took this opportunity to kick at her full force.
+But just as Amanda was about to land face-first into the ground, she caught her fall with her arms.
 
-Instead of getting kicked off the stage, Amanda caught my kick with her body.
+I let out a sigh at another disaster was avoided but Amanda was already on the move.
 
-She curled up around my leg and had a firm grip on me.
+On the ground next to my foot, Amanda took the moment of my relief as her moment to strike
+
+Faster than my experience pack could react, she curled up around one of my legs and grip it firmly.
 
 I desperately tried to shake her off with no success.
 
-Soon enough, she got a hold of my other leg.
+Soon enough, she got a hold of both my legs.
 
 After that point, she was able to push me to the ground.
 
@@ -368,17 +404,27 @@ Amanda didn't like my answer.
 
 I could feel the frustrated expression on Amanda's face against the fuzz of the Cosmological Background Audio.
 
-It seems she was done trying to extort information out of me and began taking actions again.
+I have been entirely truthful to her so I don't understand why she's so upset.
+
+But it seemed like she was done trying to extort information out of me now and began taking actions again.
 
 With her iron tight grip on both my legs, she began swinging me around.
 
-After two or three spins, she released her grip and I went flying out of the platform.
+Blood rushed to my head.
 
-As I was about to hit the ground below, I rolled myself into a ball.
+My hands flew out past my head.
+
+The world around me spun, and not in the good way.
+
+After some spinning, she released her grip and I went flying out of the platform.
+
+I didn't know how but as I was about to hit the ground below, I rolled myself into a ball.
 
 After my roll put me into the right position, I extended my legs and jumped back onto my feet.
 
 A graceful landing.
+
+How?
 
 My back was facing Amanda now.
 
@@ -396,13 +442,15 @@ Upon my arrival at the benches, I tried my best to find somewhere far from Amand
 
 I reluctantly sat down next to her unsure if I made the right choice.
 
+I had questions but considering this is likely part of the tutorial, I probably don't have to think about it too much as the answers should come to me soon.
+
 Amanda sat down on the other side of Melody as expected and I felt the whole situation getting really awkward really fast. 
 
 Melody was the first to break the silence.
 
 "Phanna, sis, what happened out there?"
 
-"Exactly what it looked like," I answered.
+"Exactly what it looked like, I guess" was answered.
 
 But Amanda's answer was completely different.
 
