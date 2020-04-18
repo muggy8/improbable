@@ -28,7 +28,7 @@ Compared to her sister, Melody felt slow and sluggish.
 
 She charged at the horned boy and swung her fist at him.
 
-In response, he stopped her punch with his palm like catching a ball but there was more.
+In response, he stopped her punch with his palm like catching a ball, but there was more.
 
 Using the momentum of her charge, Melody tackled the horned boy with her body.
 
@@ -60,7 +60,7 @@ Yet somehow, Melody continued.
 
 She made the same approach as last time and the boy blocked her attack all the same.
 
-She tackled him right after in the same way too but this time she made much more progress.
+She tackled him right after in the same way too, but this time, she made much more progress.
 
 Unfortunately, one of the horned boy's arms were free this time and he pummeled her with his free arm and also kicked at her.
 
@@ -122,7 +122,7 @@ I wasn't exactly sure what she was doing but Melody's sister didn't seem to want
 
 There was only one single pair of fighters still fighting at this point. 
 
-judging by the looks of it, they fought each other in much the same way that Melody and the horned boy were except it felt less one-sided as Melody's fight.
+judging by the looks of it, they fought each other in much the same way that Melody and the horned boy were except it felt not as one-sided as Melody's fight.
 
 Sumo Boxing still felt like an appropriate description for what these fights were like.
 
@@ -364,7 +364,7 @@ Amanda's face was rapidly approaching the floor now as regret washed over me.
 
 But just as Amanda was about to land face-first into the ground, she caught her fall with her arms.
 
-I let out a sigh at another disaster was avoided but Amanda was already on the move.
+I let out a sigh as another disaster was avoided but Amanda was already on the move.
 
 On the ground next to my foot, Amanda took the moment of my relief as her moment to strike
 
@@ -418,9 +418,9 @@ The world around me spun, and not in the good way.
 
 After some spinning, she released her grip and I went flying out of the platform.
 
-I didn't know how but as I was about to hit the ground below, I rolled myself into a ball.
+I didn't know how but as I was about to hit the ground below, my body rolled itself into a ball.
 
-After my roll put me into the right position, I extended my legs and jumped back onto my feet.
+After my roll put me into the right position, my legs extended and jumped my body back onto my feet.
 
 A graceful landing.
 
