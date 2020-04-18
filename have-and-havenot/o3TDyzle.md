@@ -220,7 +220,7 @@ I then engaged the tendons that ran from my hips to my foot and both my legs ten
 
 Using the tension in my hip to foot tendon, aided by my leg muscles, I rocketed towards Adrian with several gs of acceleration.
 
-All for a flying kick.
+All that just for a flying kick.
 
 Yet somehow, Adrian seemed to have been able to attempt a block in time.
 
@@ -230,9 +230,11 @@ My upper body continued flying forwards carried by momentum.
 
 Because of Adrian's defence, my entire body started rolling forwards.
 
+The world spun around me, but I could hardly feel it.
+
 I somersaulted over Adrian by rolling my body into a ball.
 
-I followed my ballistic trajectory towards my goal. 
+And then, I was weightless, free-falling along the path of my ballistic trajectory. 
 
 Just as I was about to hit the ground, the ground dropped down by about half a meter.
 
@@ -240,7 +242,9 @@ That was my signal that I was no longer on the platform.
 
 I then extended my body again and landed gracefully on the springs that my modified legs created.
 
-My Hip-to-foot tendon effortlessly absorbed the force of the landing and I turned around to face an Adrian frantically turning around predicting a second attack that never came.
+Under several gs of deceleration, my breathing stopped, just for a moment, as my diaphragm was forced to support the increased weight of the organs above it.
+
+After my Hip-to-foot tendon effortlessly absorbed the force of the landing, I regained my breath and turned around to face an Adrian frantically turning around predicting a second attack that never came.
 
 I stood there, off of the platform feeling quite glad I still had enough parkour muscle memory left in me to pull this stunt off.
 
