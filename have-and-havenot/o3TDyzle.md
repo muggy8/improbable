@@ -218,27 +218,27 @@ Adrian responded by taking up some kind of fighting stance as well.
 
 I then engaged the tendons that ran from my hips to my foot and both my legs tensed up.
 
-Using the tension in my hip to foot tendon, aided by my leg muscles, I rocketed towards Adrian with several gs of acceleration before readying myself for a flying kick.
+Using the tension in my hip to foot tendon, aided by my leg muscles, I rocketed towards Adrian with several gs of acceleration.
 
-Yet somehow, Adrian seemed to have been able to respond in time and shifted his arms into a defensive posture covering his face with crossed arms.
+All for a flying kick.
 
-Just as I had hoped.
+Yet somehow, Adrian seemed to have been able to attempt a block in time.
 
-I kicked into his blocking arms and the resulting impact sent shockwaves reverberating through my body but this, too, was all a part of the plan.
+I kicked into his blocking arms, the resulting impact sent shockwaves reverberating through my body but this, too, was all a part of the plan.
 
 My upper body continued flying forwards carried by momentum.
 
 Because of Adrian's defence, my entire body started rolling forwards.
 
-I flew over Adrian's body as I rolled my body into a ball to increase my spin.
+I somersaulted over Adrian by rolling my body into a ball.
 
-All that's left to do is to follow my ballistic trajectory towards my goal. 
+I followed my ballistic trajectory towards my goal. 
 
 Just as I was about to hit the ground, the ground dropped down by about half a meter.
 
 That was my signal that I was no longer on the platform.
 
-I then extended my body again and landed gracefully on the springs created by my modified legs.
+I then extended my body again and landed gracefully on the springs that my modified legs created.
 
 My Hip-to-foot tendon effortlessly absorbed the force of the landing and I turned around to face an Adrian frantically turning around predicting a second attack that never came.
 
