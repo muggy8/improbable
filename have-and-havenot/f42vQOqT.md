@@ -374,15 +374,15 @@ Something, anything, and then...
 
 "user reset_simulation..." I said shaken.
 
-But nothing happened.
+_Permission Denied_
 
 "root reset_simulation" I muttered with my shaky voice remembering the commands were root commands.
 
-But nothing happened still.
+_Error: simulation not found_
 
 "ROOT RESET_SIMULATION" I shouted.
 
-But nothing happened still.
+_Error: simulation not found_
 
 I was starting to panic.
 
