@@ -76,7 +76,7 @@ Melody seemed rather surprised at my question.
 
 Melody was presently surprised by my statement. 
 
-"Oh, I'm sure you could tell but we both had strengthen active but there was no way I could out muscle a Vampire. Especially with my injury." Melody explained. 
+"Oh, I'm sure you could tell but we both had strengthen active but there was no way I could out muscle a Vampire with my injury." Melody explained. 
 
 I surely had no idea what this strengthen thing is but I'll pretend I did for now but the other thing she said surprised me.
 
@@ -88,9 +88,9 @@ I gave Melody a nod and let her continue.
 
 Melody averted her gaze from me.
 
-It felt like she was rather sadened by the results.
+It felt like she was rather saddened by the results.
 
-"I've failed..." Melody said silently as if it wasn't meant for me.
+"I'm a failure..." Melody said silently as if it wasn't meant for me.
 
 "What's wrong?" I asked.
 
@@ -98,3 +98,30 @@ But Melody didn't answer and just shook her head.
 
 "Are you ok?" I asked again.
 
+But again I got nothing. 
+
+Seeing Melody like this reminded me of my past, the various time I've failed on my path towards creating the Organic Gravitational Wave Observatory body mod. 
+
+There were countless times where me and the team encountered problems and had to back track.
+
+There were countless times where we destroyed decades worth of preparation overnight. 
+
+Thinking back on this made my stomach twist and my mind clouded with regret.
+
+If we made just one less mistake somewhere, anywhere, our team would have been the ones to perfect the Organic Gravitational Wave Observatory system, making us forever remembered and distinguished. 
+
+I looked over to Melody sitting there bent over with her face in her hands not sure what to say to her.
+
+I couldn't accomplish my goal in my own world but maybe I can help Melody. 
+
+After all, this is MY simulation and I am the god of this world.
+
+It felt petty, but this is my world. 
+
+If I can't succeed in my own life, maybe I can play god and help others succeed in this world.
+
+At least for just a while. 
+
+Just to enjoy that feeling of success.
+
+""
