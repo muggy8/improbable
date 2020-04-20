@@ -220,7 +220,180 @@ But melody stopped me.
 
 "Thank you Mr. Phanna, I think I got a pretty good picture of who you are. What did you want to talk about?" she asked.
 
-"Hey Melody, What's your reason for attending this exam?" I asked.
+I didn't know what to feel but I was glad she stopped me. 
+
+I made my attempt to collect myself and take a few breaths before I continued.
+
+"Melody, I want to know what's your reason for attending this exam?"
 
 Melody was a bit taken aback by my question before she answered. 
 
+"I... I guess telling you is fine... This exam is me trying my best to become the person I should be." 
+
+Melody's voice was soft and shakey.
+
+"I've been trying my hardest for all my life and coming up short every time. I thought if I just tried a little harder, I'd be less of a burden to those around me. I wanted to give up but my sisters convinced me to give this exam a try and maybe I can succeed and learn the skills to help my family more but..."
+
+Melody couldn't finish her sentence.
+
+But I had a good idea what she was going to say anyways. 
+
+"I understand." I said empatheticly as I took up a fighting stance that sort of looked like the common ones I've seen already.
+
+I didn't intend to actually fight Melody so I didn't load any experiance packs. 
+
+After all, she's probably going to play defender again anyways, I'll just run and tackle her and get kicked off and see how this thing shakes out at the end before resetting this simulation to an earlier point.
+
+Seeing that I've taken up a fighting stance, Melody did the same thing. 
+
+She then looked at me and smiled before saying:
+
+"Mr. Phanna, please allow me this one selfish act... Die."
+
+Before I could register what she said fully, she was already dashing at me at a speed I've only seen during Parkour speedruns.
+
+_Warnrng: threat to organic substrate detected._
+
+_Alert: Activating emergency survival mode_
+
+_Alert: Accelerating cognition to 300%_
+
+The warning messages from my digital substrate flooded my mind and reverberated to every corner of my consciousness.
+
+Yet I did not truly hear any of it. 
+
+My body was frozen solid from shock.
+
+A fist landed into the side of my head.
+
+It was melody's fist.
+
+My vision blured.
+
+I was flying.
+
+Then came the sense of pain.
+
+It was sharp, like hot iron on skin.
+
+Then the sound, my carbon matrix skull echoing the sound of Melody's fist against my skull.
+
+What was happening?
+
+I didn't know. 
+
+Then my body moved on it's own.
+
+My vision no longer blury.
+
+I was on my feet again somehow.
+
+I tried to flee, but my body didn't listen.
+
+Melody was already witin striking distance.
+
+My body still didn't listen.
+
+Oh right, emergency survival mode.
+
+Her leg was rapidy approaching my head again.
+
+The sound waves coming off of her foot was being compressed.
+
+Mach 0.8?
+
+That was what my Gravitational Wave Observatory was reporting.
+
+Impact.
+
+Against my jaw?
+
+When did my position shift?
+
+I expeted myself to be sent flying again, but that didn't happen.
+
+I noticed my hip to foot tendons were engaged, absorbing the impact of Melody's kick even.
+
+And then, everything stopped.
+
+My hands were on her leg.
+
+When did this happen?
+
+Before I knew it, everything was in motion again.
+
+My vision blured again, but I could feel my body moving, not flying though the air.
+
+Was I counter attacking?
+
+I could feel my body turing and twisting.
+
+I could feel my arms swinging over my head and towards the ground.
+
+I could feel my spring loaded legs releasing the energy they absorbed from Melody's kick being transfered to my arm swing.
+
+And then, it all stopped, again.
+
+The sound of Calcium based bones being crushed was the first thing that greeted my ears.
+
+_Alert: threat to organic substrate neutralized._
+
+_Alert: deactivating emergency survival mode_
+
+_Alert: deccelerating cognition to 100%_
+
+But the notifications didn't register.
+
+Before me was Melody's body, blood everywhere.
+
+Crimson splattered everywhere.
+
+The source, Melody's upper body.
+
+Her body, facedown, her head, almost entirely disintngrated. 
+
+Losing my footing, I fell to the ground. 
+
+This is... This is... Impossiable...
+
+I didn't want to see this.
+
+I cannot accept this.
+
+I came here to escape the traumatic memories of seeing people die.
+
+How can this happen?
+
+My stomach felt ill.
+
+My whole body, shaking, rejecting the sight before me.
+
+My mind, searching, for an escape.
+
+Something, anything, and then...
+
+"user reset_simulation..." I said shaken.
+
+But nothing happened.
+
+"root reset_simulation" I muttered with my shaky voice remembering the commands were root commands.
+
+But nothing happened still.
+
+"ROOT RESET_SIMULATION" I shouted.
+
+But nothing happened still.
+
+I was starting to panic.
+
+Melody's face came flooding into my mind, then suddenly replaced by a huge blood splot.
+
+There was blood, everywhere.
+
+Inside my mind, outside of my mind.
+
+My vision, covered in blood.
+
+Blood, it truly was everywhere.
+
+Inescapeable.
