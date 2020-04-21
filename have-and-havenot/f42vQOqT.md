@@ -34,9 +34,7 @@ I don't know what she did but I didn't like her tone.
 
 Her expression also didn't inspire any sense of confidence either. 
 
-Looking back over to Melody's platform, I noticed that she decided to take a more defensive approach this time.
-
-The human girl was on the offensive this time. 
+Looking back over to Melody's platform, I noticed that she decided to take a more defensive approach and the human girl was on the offensive this time. 
 
 Watching the two felt like watching a repeat of Melody's previous match except Melody was on the defensive this time around.
 
@@ -46,7 +44,7 @@ The fight played out in much the same fashion as most other Sumo Boxing matches 
 
 Melody was in a position much like the horned boy was in her last round.
 
-But unlike the horned boy, Melody's kicks and punches that were directed at the human girl gripping on to her did little to shaking her off.
+But unlike the horned boy, Melody's kicks and punches that were directed at the human girl gripping on to her did little to shake her off.
 
 The human girl started slowly pushing Melody back with each of her kicks until eventually, Melody got pushed off the platform.
 
@@ -78,7 +76,7 @@ Melody was presently surprised by my statement.
 
 "Oh, I'm sure you could tell but we both had strengthen active but there was no way I could outmuscle a Vampire with my injuries." Melody explained. 
 
-I surely had no idea what this strengthen thing is but I'll pretend I did for now but the other thing she said surprised me.
+I had no idea what this strengthen thing is but I'll pretend I did for now but the other thing she said surprised me.
 
 Vampire?
 
@@ -108,11 +106,11 @@ There were countless times where we destroyed decades worth of preparation overn
 
 Thinking back on this made my stomach twist and my mind clouded with regret.
 
-If we made just one less mistake somewhere, anywhere, our team would have been the ones to perfect the Organic Gravitational-Wave Observatory system, making us forever remembered and distinguished. 
+If we made just one less mistake somewhere, anywhere, our team would have been able to perfect the Organic Gravitational-Wave Observatory system in time which would make us forever remembered and distinguished. 
 
-I looked over to Melody sitting there bent over with her face in her hands not sure what to say to her.
+I looked over to Melody sitting there bent over with her face in her hands not sure of what to say to her.
 
-I couldn't accomplish my goal in my own world but maybe I can help Melody. 
+I couldn't accomplish my goal in my own world but maybe I can help Melody here.
 
 After all, this is MY simulation and I am the god of this world.
 
@@ -214,7 +212,7 @@ I felt my throat tense up saying these words but I continued.
 
 "Because of that, 2 of my dearest friends died... Friends closer than family... and I lost them both..."
 
-At this point, I was fighting my emotions.
+At this point, I was fighting against my emotions.
 
 But Melody stopped me.
 
@@ -252,7 +250,7 @@ She then looked at me and smiled before saying:
 
 Before I could register what she said fully, she was already dashing at me at a speed I've only seen during Parkour speedruns.
 
-_Warnrng: threat to organic substrate detected._
+_Warning: threat to organic substrate detected._
 
 _Alert: Activating emergency survival mode_
 
@@ -284,7 +282,7 @@ I didn't know.
 
 Then my body moved on its own.
 
-My vision no longer blurry.
+My vision was no longer blurry.
 
 I was on my feet again somehow.
 
@@ -330,7 +328,7 @@ I could feel my body turning and twisting.
 
 I could feel my arms swinging over my head and towards the ground.
 
-I could feel my spring-loaded legs releasing the energy they absorbed from Melody's kick and adding to my arm swing.
+I could feel my spring-loaded legs releasing the energy they absorbed from Melody's kick and adding it to my arm swing.
 
 And then, it all stopped, again.
 
@@ -464,7 +462,7 @@ But I couldn't hear them.
 
 The only thing I could hear now is the echos of cracking bones.
 
-_W*rni*g: u**er m***al s**te ..._
+_W\*rni\*g: u\*\*er m\*\*\*al s\*\*te ..._
 
 Something echoed in my mind, but I couldn't comprehend it over the sound of cracking bones... reverberating.. echoing.. intensifying. 
 
