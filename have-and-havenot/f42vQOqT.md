@@ -356,6 +356,8 @@ Losing my footing, I fell to the ground.
 
 This is... This is... Impossiable...
 
+I was shaking, shaking uncontrollably.
+
 I didn't want to see this.
 
 I cannot accept this.
@@ -397,3 +399,75 @@ My vision, covered in blood.
 Blood, it truly was everywhere.
 
 Inescapeable.
+
+A hand, on my shoulder.
+
+Who is it?
+
+I turned to look.
+
+Mikay.
+
+His hand was shaking.
+
+No, I was.
+
+Ethan was there too.
+
+And others, many others.
+
+That's right, the emergency simulation exit function.
+
+"Mikay, Ethan, this.. this.. all this is a simulation. you.. all of you.. you're all simulated.. I.. I created this whole world.. everyone.. I.. I.."
+
+But nothing happened.
+
+"I.. created everything here using EverSim's Infinity Simulation Pod.. I.. I.. this is all a simulation.. this.. this.."
+
+But still, nothing.
+
+"This.. can't be.. Dream.. Nightmare.. that's it.. This must be a nightmare.."
+
+I pleaed, I begged, but I can't wake up.
+
+"Please, any time now, wake up, please wake up... PLEASE WAKE UP!!!"
+
+But nothing.
+
+I didn't wake up in my, no, Mikay's bed.
+
+I didn't wake up in the Infinity Simulation Pod. 
+
+I was still here.
+
+Still sitting infront of a corpse.
+
+A corpse... of a person I killed... the third person I've killed...
+
+I sat there, shaking, unsure, unable to comprehend.
+
+What, how, why? 
+
+I didn't understand.
+
+Nothing made sense anymore.
+
+Things were happening around me.
+
+But I was unable to comprehend any of it.
+
+The only thing I could see now is blood.
+
+Someone was speaking to me.
+
+But I couldn't hear them.
+
+The only thing I could hear now is the echos of cracking bones.
+
+_W*rni*g: u**er m***al s**te ..._
+
+Something echoed in my mind, but I couldn't comprehend it over the sound of cracking bones... reverberating.. echoing.. intensifying. 
+
+"Someone, something, anything.. please.. save me..."
+
+## <center>~<center>

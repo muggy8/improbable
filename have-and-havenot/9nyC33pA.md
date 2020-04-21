@@ -16,7 +16,7 @@ I leaned towards my pet slime, Pillow, who was lazing around on the ground next 
 
 "Still nothing?" I asked as if expecting a reply but who am I kidding, Pillow's a slime blob with no way of communicating. It can't possibly reply.
 
-Though that may be the case, having fit on which is probably still a good idea since it'll surely cause a ruckus if someone did show up.
+Though that may be the case, having it on watch is probably still a good idea since it'll surely cause a ruckus if someone did show up.
 
 Or so I had thought as I looked over to the aquarium that was located by the wall directly across from the door of the room.
 
