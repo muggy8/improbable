@@ -471,3 +471,5 @@ Melody let out a sigh and didn't finish her sentence.
 After that, Amanda returned to checking Melody's body again and I sat there awkwardly waiting for the next round to begin. 
 
 ## <center>...<center>
+
+<center><a href="./f42vQOqT">Next Chapter</a></center>
