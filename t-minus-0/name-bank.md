@@ -1,7 +1,6 @@
 ## Unused:
 Morray
 Robinson
-Echoton
 Rozen
 Emma
 Lauren
@@ -15,13 +14,11 @@ Alison
 Rovin
 Ivory 
 Andrew 
-Hannah
 Joe
 Ian
 Lacy
 Karen
 Anthony
-Patricia
 Larry
 Serenity
 Apollo
@@ -38,6 +35,7 @@ Molly
 Natalia
 Dew
 Dawn
+Dain
 Tony
 Logan
 Dakota
@@ -53,16 +51,23 @@ Alisha
 Patrisha 
 Corona
 Aileron
+Anemone
+Araluen
+Ryan
+Erica
+Fuchsia
+Ellen
 
 ## Used:
 Phanna (isekai'd)
 Mikay (summoner)
 Hickory (strongest)
 Ethan (Principal)
-Amanda
-Melody
+Amanda (applicant)
+Melody (dies)
+Hannah (rejected applicant)
+Patricia (elf squad leader)
 Adrian
-Ellen
-Casandra
+Casandra (elven ace)
 Leon
  

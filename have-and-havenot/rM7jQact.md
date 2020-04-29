@@ -122,18 +122,141 @@ And as I suspected, Ethan continued explaining the situation.
 
 "You see, while these situations aren't uncommon for the Mastery League's schools as a whole, our school currently lacks the manpower to pay them a visit safely and assess the applicants..."
 
+The energy in Ethan's voice weakend as he finished his words.
+
 I had a feeling that Ethan already knew I understood what he was implying; he initinlly considered copletedy ignoring the elves applications. 
 
-I can't say I blame him.
+Afterall, I was once a teacher at the school and was very farmiliar with it's inner workings.
 
-I had a feeling that Ethan was the only Master in the school and the others teachers are all only Proteges.
+And honestly, I can't say I blame him.
 
-The way Ethan explained almost perfectly confirms that.
+I had a feeling that Ethan was the only Master in the school and the others teachers are all only Proteges since all of the Masters who were taking care of the school before Ethan were....
+
+Either way, Ethan explained the situation almost perfectly confirmed my suspicion.
 
 Additionally, Ethan himself is almost entirely unfit for front line duties like this.
 
 That said, I felt that a decision like that would be too neglectful of the duties of the school.
 
-That fact particularly annoyed me.
+That fact particularly annoyed me, and I had a feeling that Ethan knew this.
 
-"That's"
+"I see... and the the applicants are?"
+
+"Right, the two applicants are Amanda and Hannah. Amanda seems rather promissing based on her application. Unfortunatey, I can't say the same for Hannah"
+
+"Got it. Ethan, is there anything else I should know before I head out?"
+
+"M-Master Mikay, you're heading out now?"
+
+"Of course, after dinner time is the prime time for the teachers participating in exam applicant assessment to start heading over to the applicants for their assessment right?"
+
+"I... well... err... no, you're right. I wish you the best of luck." Ethan said as he salutes.
+
+Now that's an action I haven't seen in quite a while.
+
+How nostalgic. 
+
+"Please take good care of Phanna while I'm away." I said as I returned a slightly less energetic salute and departed.
+
+## <center>...<center>
+
+It didn't take me too long to start closing in on the waterfall area in the northern mountains.
+
+I made myself easily visable as I made my high speed approach jumping from treetop to treetop.
+
+I missed the days where I only needed to have a  single instance of strengthen and a single instance of quicken active to move like this.
+
+But the my body just isn't what it used to be.
+
+Leaping off another branch, I was finally was able to make eye contact with the waterfall.
+
+Investigation had been active since long before I reached the base of the mountain and I have yet to notice any active abilities yet.
+
+I was fully confident that my Sphere of Influence was larger than anyone elses here which means my detection radius should trump anyone else's as well.
+
+yet, I have yet to detect any attempts to attack me.
+
+I landed on a branch and took another leap. 
+
+Maybe I should wait for an ambush?
+
+After all, I didn't actually know where around the waterfall the elven colony was.
+
+The elven territorial defenders would surely escort me to their base after surely.
+
+I landed on another branch and activated Defense before dropping down to the forest floor and began walking in the direction of the waterfall.
+
+The waterfall isn't much further than here and walking the rest of the way doesn't seem too bad. 
+
+I studied my eviroment as I walked and concluded that I was already in elven territory.
+
+There weren't much shrubery on the forest floor which allows makes the area walkable yet there's enough small bushes that defenders can easily use for ambush attacks.
+
+I was starting to understand why this location was highly prised by various tribes.
+
+Just then, something got stopped by my Defense ability.
+
+I turned around and noticed a dart on the floor and immediately looked towards the direction it came from.
+
+No abilities active from it's general direction.
+
+"I am..." 
+
+My self introduction was cut short as a group of  elf warriars jumped at me from different directions. 
+
+Various instances of physical type abilities were activated all around me as the group of elves rushed at me.
+
+One glance was all I need to know that they were all using Quicken.
+
+I quickly created a circle of fire around me using Pyromancer hoping to intimide but I didn't really expect it to do too much.
+
+Yet for some reason, the elven attackers all stopped in ther tracks.
+
+Feeling like I had a bit of time, I began my self introdution again.
+
+"I am Master Mikay. I am here on behalf of the Mastery League's school in Mountainpass. I am here to assess the applicants Amanda and Hannah for their elegibility to partake in the school's entrence exam." I announced in a commanding voice.
+
+After my announcement, I could hear whispers heard around me. 
+
+"a master..."
+
+"for real..."
+
+"he's just an old man..."
+
+But shortly after, one person stepped up before me and spoke.
+
+She was probably the one in charge here.
+
+"You claim to be a Master, can you prove it?"
+
+"Can you use Investigate?" I asked in return.
+
+"Yes" she replied.
+
+Sure enough, I could see her deactivating Quicken and activating an Observational type ability.
+
+As she did, she quickly became surprised at what she saw.
+
+"So many abilities at once..." she muttered in shock.
+
+But I didn't give her much thought.
+
+I already had Pyromancer activated to maintain the ring of fire around me so that was one active Innate Ability already.
+
+I activated Forgemaster and extruded a pillar of stone out of the ground beneeth me elevating me above the flames.
+
+Another active  Innate Ability.
+
+As that happened, I activated Twister and around my ring of fire to create a small flame vortex centered around me.
+
+"Th-Three Innate Abilities" the elf leader said in shock.
+
+As the elf leader made her observation, the other elves quickly gathered around her and deactivated their abilities in the process.
+
+I, too, deactivated most of my abilities in return keeping only Investigation active to show no ill intent.
+
+"Master Mikay, sorry for the attack earlier. Please accept our appolegy. I am Patrisha and this is my team."
+
+Patrisha bowed deeply as she spoke then turned to her team.
+
