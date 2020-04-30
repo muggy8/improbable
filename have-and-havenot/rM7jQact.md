@@ -258,5 +258,100 @@ I, too, deactivated most of my abilities in return keeping only Investigation ac
 
 "Master Mikay, sorry for the attack earlier. Please accept our appolegy. I am Patrisha and this is my team."
 
-Patrisha bowed deeply as she spoke then turned to her team.
+Patrisha bowed deeply as she spoke then turned to her team and instructed them to return to their tasks while she escorts me to their main camp.
 
+After Patrisha escorted me to the camp, she began giving orders to some of the other elves who were around.
+
+She didn't leave my side so I felt a bit uneasy looking around but I did anyways.
+
+I could tell that this camp wasn't where the main camp. 
+
+For one, it was way too far from the waterfall. second, there were far too few tents around to support a tribe big enough to successfully capture and hold such a large area. 
+
+That's why I concluded that this place was likely an outpost of some kind.
+
+The trees branches seemed to have smooth bark on many areas suggesting that those branches were climbed on often.
+
+Shortly after, a group of elves jumpped down from the tree tops and landed in front of me.
+
+"Hello Master Mikay, myname is Amanda. One of the applicants you have come to test." said one of the girls in the group.
+
+"I am pleased to make your acquantance Master Mikay, I am Hannah, the other applicant." snid another girl standing by Amanda's side.
+
+The two of them looks remarkibly similar, more so than any other elves.
+
+I was curious about why there were quite a few others around when Patrisha spoke up again.
+
+"Master Mikay, I hope it's fine with you but we have a number of others who would like to whitness the pre-exam trials would that be ok with you?"
+
+"Oh. ya that's fine."
+
+“Thank you very much!" Patrisha said as she bowed along with the rest of the elves in the groupd
+
+I turned my attention to wards the Hannah and Amanda as they finished their bow.
+
+"So which one of you would like to go first?"
+
+They were a bit surprised at my question.
+
+"You're going to test us both today?" Amanda asked.
+
+"Doesn't the school perform only one pre-exam trial per day?" Hannah added.
+
+"Well... you're not wrong. But that's mostly for the teacher's don't tire out. As for me, I'm not quiet like the avarage teacher at the school." I replied.
+
+The two took a look at each other for a bit before one of them walked forwards.
+
+it was amanda.
+
+"I'll go first then if you don't mind."
+
+"That's fine. lets begin then. First off, a few short questions." I said as I extruded a stone tablet out of the ground with Forgemaster.
+
+The elves around me whispered as I did this but I paid them no attention. 
+
+"lets start off with something easy. what are the skills you can use."
+
+"Quicken, Strengthen and Investigation" she answered.
+
+As she did, I marked her response down on the stone tablet with Forgemaster. 
+
+"Next question, which are you most farmiliar with?" 
+
+"Quicken"
+
+"How many can you keep active at once and for how long?"
+
+"Two abilities for about 3 minutes and a single one for about 8 minutes."
+
+I asked the questions one after another recording the answers on the stone tablet as I went.
+
+At this point, the questions just came out like pouring water. 
+
+It's as if time just dissapeared as the quesitions went on, one by one.
+
+After the questions were all answered, I quickly snapped out of my daze and placed the stone tablet on the ground and picked up a stick.
+
+"Alright now for the real trial. You ready Amanda?" 
+
+Amanda gave me a nod.
+
+I drew a small circle around me with the stick the tossed it to the side.
+
+"Do whatever you can make me step out of this circle no restrictions. Begin whenever you're ready and quit whenever you feel like" I said as I activated 3 instances of quicken and strengthen as well as Defense.
+
+I can see Patrisha's socked expression as I did this as she has also kept her Inspection ability activated this whole time too.
+
+With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumping at me right after. 
+
+Frontal attack to my gut, but I caught her strike in my palm.
+
+A spinning round house kick to follow up, but I caught that one with my forearm.
+
+Her foot bounced off my forearm so she tried a low sweep with her other foot.
+
+But I hopped over with a small jump. 
+
+Incoming back hand chop, but I push righ off it and planted myself on the ground within the cricle again.
+
+A driect tackle against me, but I pushed back and sent her flying in return.
