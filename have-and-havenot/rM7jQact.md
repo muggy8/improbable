@@ -16,7 +16,7 @@ Ethan's response to my question was also more or less what I expected.
 
 "R-Right!" Ethan snapped. 
 
-I know Ethan isn't suited for the front lines despite being a student of mine so I didn't continue this topic much further as there's were other things I wanted to talk to him about.
+I know Ethan isn't suited for the front lines despite being a student of mine so I didn't continue this topic much further.
 
 I walked over to the kitchen area by the fireplace at the corner of the living room and placed the tray into a bucket of water there.
 
@@ -34,21 +34,21 @@ Ethan was observing me as I did this.
 
 This trick was something Ethan passed on to me after he gained his Soprano ability and has saved me countless minutes every time I needed to clean tools.
 
-I took the food tray and returned it to the shelves before I sat down next to Ethan on the sofa.
+I took the clean food tray out of the water and returned it to the shelves before I sat myself down next to Ethan on the sofa.
 
 "Hey Ethan, are you sure it's ok for you to be here all the time and leave the school unatended?" I asked after sitting down
 
 I was worried about the school.
 
-The entrence exams for the next term will start a few days from now so I was sure there was a mountain of work that needed his presence.
+The entrence exams for the next term will be taking plnce a few days from now so I was sure there was a mountain of work that he needed to do.
 
 I remember from the days when Aurora used to be the principal of the school before she passed.
 
 The weeks leading up to the entrence exams where often the most busy.
 
-The other teachers were all tasked with pre-exam assessment of the exam applicants and the one in charge of managing the whole process was none other than the principal.
+The other teachers were all tasked with pre-exam assessments of the exam applicants and the one in charge of managing the whole process was none other than the principal.
 
-Depending on the number of applicants, sometimes, the principal might have to participate in the assessment of applicants too.
+Depending on the number of applicants, sometimes, the principal might even have to participate in the assessment of applicants too.
 
 That's why I knew Ethan definately didn't have the luxury of being away from his duties for this long.
 
@@ -88,13 +88,13 @@ Ethan quickly activated his communication bracelet and contacted someone who was
 
 "Mikay has just offered to help us with the pre-exam assessments!!!" Ethan shouted excitedly into his bracelet but I paid him no mind. 
 
-I don't know how many applicants I'll be nssessing but that was trivial to me at this point.
+I don't know how many applicants I'll be assessing but that was trivial to me at this point.
 
 As long as the exams would end up being properly conducted and the the duties of the school fulfilled, then a few extra applicant assessments were perfectly fine by me.
 
 Ethan spoke into his bracelet for a while before he finally turned to me again. 
 
-"I... I'm sorry Master Mikay but... we aren't able to re-order the assessment schedule this late into the assessment to have you assess the top applicants..." Ethan told me dissapointingly.
+"I... I'm sorry Master Mikay but... we aren't able to re-order the assessment schedule this late into the assessment process to allow you to assess the top applicants..." Ethan told me dissapointingly.
 
 "Ethan, please, enough with all this overcomplicating. I said I'd help assess the applicants, I didn't say I would assess the best applicants." I scolded. 
 
@@ -102,7 +102,7 @@ Ethan spoke into his bracelet for a while before he finally turned to me again.
 
 Shortly after, Ethan turned his attention to me again.
 
-"Master Mikay, I'm sorry to have to ask to do this for us, but, there's 2 applicants located in the northern mountains."
+"Master Mikay, I'm sorry to have to ask you to do this for us, but, there's 2 applicants located in the northern mountains."
 
 "Where in the northern mountains?"
 
@@ -523,4 +523,28 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 "Don't worry, just leave it to the teachers at the school." I said reasuringly. 
 
-"You're right Master Mikay."
+"You're right Master Mikay." Patrisha said looking abit relived. 
+
+"Will you be leaving now Master Mikay?" Patrisha asked after gaining her composure. 
+
+"Yes." I replied.
+
+"I see, let me walk you to the edge of our territory." 
+
+"Thanks."
+
+## <center>...<center>
+
+By the time I got home, Ethan had already passed out. 
+
+I had to light the way with fire created by Pyromancer. 
+
+I layed the stack of stone tablets and Melody's name tag on the ground in front of Ethan and went off to bed myself.
+
+For some reason, Phanna was still awake and tormenting Pillow. 
+
+Seeing this, I started getting the feeling that Phanna was probably nocternal. 
+
+That'd be bad...
+
+## <center>...<center>
