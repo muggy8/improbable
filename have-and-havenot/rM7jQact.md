@@ -355,3 +355,172 @@ But I hopped over with a small jump.
 Incoming back hand chop, but I push righ off it and planted myself on the ground within the cricle again.
 
 A driect tackle against me, but I pushed back and sent her flying in return.
+
+Not willing to give up, Amanda got up immediately and tried again this time with different tactics.
+
+Of course, that didn't change much and ended up flying again. 
+
+This continued again and again for almost an hour until she finally gave up with scratched scraped and brused all over her body by this time and could hardly get up.
+
+Honestly I felt bad for her but I had to do what I must. 
+
+She definately lasted longer than I had expected.
+
+Most applicants only try when they can keep their abilities active and only for a couple ability activation rounds. 
+
+I picked up the stone tablet again and noted down my thoughts before creating another one with Forgemaster again.
+
+I looked towards Hannah.
+
+"Ready?" I asked.
+
+"Yes" said Hannah looking at me a bit intimidated but stepping in front of me anyways.
+
+"Alright, lets begin with the questions then." I said.
+
+Hannah answered with a nod. 
+
+The questioning process was very similar as with Amanda and it all flew by quickly. 
+
+And then, the physical test, the exact same Physical test I had Amanda do.
+
+Hannah was shaking nerviousely when I told her the rules but she quickly shaken it off and made her attempt at pushing me out of the circle. 
+
+In almost all reguards, she was like a weaker version of Amanda. 
+
+Hanna can keep 2 abilities active at once yes but for far shorter than Amanda can.
+
+Her single ability activation duration wasn't that long either and she gave up around 10 minutes into her trial. 
+
+Hannah definately wasn't in the best shape but
+compaired to Amanda, Hannah was practically unscathed.
+
+I noted down my thoughts on her and picked up the other stone tablet.
+
+I waved to Patrisha once I was done noting down my thoughts but she was taking to someone on the side.
+
+Thinking that she was probably giving orders to someone, I decided to wait a bit until she was done. 
+
+I could return home on my own but doing that felt a bit awackard just leaving like this so I continued to wait. 
+
+Soon, Patrisha was done talking and came over to me.
+
+Beside her was an another elf girl who was the first to speek up.
+
+"Um... M-master Mikay... i-is it too late for me to apply as well?" she asked.
+
+I looked at this shy girl and something about her reminded me of Ethan.
+
+She had a piece of tree bark in her hands and she was shivering with fear. 
+
+"Sure why not." I said taking the tree bark from her hands. 
+
+'Melody' it read.
+
+Her name was carved into the inside of bark.
+
+I put her bark and the two tablets from earlier down and created a third tablet.
+
+"Well, since I'm here already, lets get this trial started." I said.
+
+Melody's eye lit up with happiness when I said that. 
+
+"what are the skills you can use."
+
+"Quicken, Strengthen, Investigation, heat and cool" she answered.
+
+"Which abiliey are you most farmiliar with?" 
+
+"Quicken"
+
+"How many can you keep active at once and for how long?"
+
+"One ability for about 4 minutes..."
+
+...
+
+Like with Amanda and Hannah before. I asked my question and marked them down.
+
+And like with the previous two, I'd place the tablet down after and stand in the circle and ask the applicant to try to push me out.
+
+Melody took a deep breath and came at me flailing.
+
+Her form was aweful, no doubt about that.
+
+Her hits were pitiful too despite her Using Quicken.
+
+Though despite that, she had a rare talent.
+
+She was able to change her ability fast enough that she might as well have been using two abilities.
+
+I noticed that she was using quicken to accelerate her approach then use Heat in an attempt to make up for her wake hits.
+
+However, she really wasn't making contact for long enough for this to work onme.
+
+By the 20 minute mark, Melody has fully used up her third ability activation duration and is now charging at me with no abilities active.
+
+I had fully expect her to give up right around here but she kept comming.
+
+by 40 minutes, Melody was looking like she was in just as bad a shape as Amanda was by this time or maybe even worse.
+
+Melody seemed like she could barely stand up but she kept comming.
+
+She had no abilities active anymore at this point yet somehow she kept charging and charging. 
+
+I caught her last tackle, took a step back and held on to her gently but she tried her best to shake me off.
+
+"Melody, stop" I said.
+
+But she didn't.
+
+"Melody, look down, stop." I said again.
+
+And she did.
+
+My heel was outside of the circle.
+
+"D-Did I do well"
+
+she asked.
+
+"Yes, yes you did" I answered.
+
+She definately tried as best she could. 
+
+Honestly, she reminded me of Ethan.
+
+I remember I did the same thing to Ethan when he was doing the pre-exam trials. 
+
+I felt like his life was in danger if he kept trying but he did. 
+
+At that point, I had no choice but to let him win.
+
+Melody too.
+
+This girl will probably go far.
+
+I carried Melody to Patrisha before noted down my thoughts on melody.
+
+After that, Patrisha came up to me with a concerned look on her face.
+
+"Is Melody Ok?" She asked.
+
+"Not sure, I can return tomorrow with clerk if you don't have a clerk in your camp" I answered.
+
+"N-no that's quite alright, we have clerks in the camp to help out too. I'm just worried about Melody." Patrisha continued.
+
+"About?"
+
+"Well... I was just have a bad feeling when I was watching the fight just now. Like, I felt like Melody might die."
+
+"I know how you feel because I felt the same. that's why I stepped out of the circle."
+
+"I... I see... what about the exams? Those are fights against other people who aren't teachers. I'm really worried that Melody might get herself killed like she almost did now." Patrisha plead.
+
+"Don't worry about that, we have plenty of teachers on site to stop anything before it gets too bad. Also, killing innocent people is the fastest way to lose an insane of karma. In fact, death by karma actually becomes a real concern for most at this point. That's why no one in their right mind would do that."
+
+"R-right..."
+
+"Don't worry, just leave it to the teachers at the school." I said reasuringly. 
+
+"You're right Master Mikay."
