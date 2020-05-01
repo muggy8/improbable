@@ -508,4 +508,4 @@ But quitting was never part of the plan anyway.
 
 ## <center>...<center>
 
-<center><a href="./dEUBB5Iq">Next Chapter</a></center>
+<center><a href="./rM7jQact">Next Chapter</a></center>

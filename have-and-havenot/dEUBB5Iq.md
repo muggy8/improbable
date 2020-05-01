@@ -14,11 +14,13 @@ Phanna is laying in bed.
 
 "When I'm awake..."
 
-Phanna is really not a morning person.
+Phanna might really be nocternal.
 
-I had suspected that over the past weeks when Phanna was sick.
+I had suspected that over the past weeks when Phanna was sick and I was performing a few entrence exam assessments.
 
-Fortunately, the illness is in the past now thanks to Ethan's hard work.
+No matter how late I returned, Phanna would always still be awake.
+
+Fortunately, Phanna's illness is in the past now thanks to Ethan's hard work.
 
 Ethan, on the other hand, was rather disappointed when Phanna fully recovered and he no longer had a reason to stay here every day. 
 
