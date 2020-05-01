@@ -24,7 +24,9 @@ The amount of random stuff in the kitchen area has grown significantly ever sinc
 
 Many of the things here, I wouldn't even have considered eating unless I was extremely desperate during a field mission.
 
-I activated the Vibration ability targeting the bucket of water and the tray and the uneaten bits and pieces quickly fell away from the tray.
+I activated the Vibration ability targeting the bucket of water and the tray.
+
+Soon enough, the uneaten bits and pieces of food quickly fell away from the tray.
 
 Ethan was observing me as I did this.
 
@@ -46,7 +48,9 @@ I remember from the days when Aurora used to be the principal of the school befo
 
 The weeks leading up to the entrance exams where often the busiest.
 
-The other teachers were all tasked with pre-exam assessments of the exam applicants and the one in charge of managing the whole process was none other than the principal.
+The other teachers were all tasked with performing pre-exam assessments on the exam applicants.
+
+The one in charge of managing this whole process was none other than the principal.
 
 Depending on the number of applicants, sometimes, the principal might even have to participate in the assessment of applicants too.
 
@@ -66,7 +70,7 @@ I gave Ethan a nod to continue.
 
 "What about the paperwork?" I asked.
 
-"Well no one would care if they're late by a bit so..."
+"Well, no one would care if they're late by a bit so..."
 
 Ethan didn't finish his sentence as I glared at him.
 
@@ -148,9 +152,9 @@ That fact particularly annoyed me, and I had a feeling that Ethan knew this.
 
 "M-Master Mikay, you're heading out now?"
 
-"Of course, after dinner time is the prime time for the teachers participating in exam applicant assessment to start heading over to the applicants for their assessment right?"
+"Of course, after dinner is the prime time for the teachers participating in exam applicant assessments to start heading over to where the applicants are located and perform these assessments right?"
 
-"I... well... err... no, you're right. I wish you the best of luck." Ethan said as he salutes.
+"I... well... err... no, you're right. I wish you the best of luck." Ethan said with a salute.
 
 Now that's an action I haven't seen in quite a while.
 
@@ -164,33 +168,33 @@ It didn't take me too long to start closing in on the waterfall area in the nort
 
 I made myself easily visible as I made my high-speed approach jumping from treetop to treetop.
 
-I missed the days where I only needed to have a  single instance of strengthen and a single instance of quicken active to move like this.
+I missed the days where I only needed to have a  single instance of Strengthen and a single instance of Quicken active to move like this.
 
 But my body just isn't what it used to be.
 
-Leaping off another branch, I was finally was able to make eye contact with the waterfall.
+Leaping off another branch, I was finally able to make eye contact with the waterfall.
 
-Investigation had been active since long before I reached the base of the mountain and I have yet to notice any active abilities yet.
+Investigation had been active since long before I reached the base of the mountain but I have yet to notice any active abilities.
 
 I was fully confident that my Sphere of Influence was larger than anyone else's here which means my detection radius should trump anyone else's as well.
 
-yet, I have yet to detect any attempts to attack me.
+But somehow, I have not detected any attempts to attack me yet.
 
 I landed on a branch and took another leap. 
 
 Maybe I should wait for an ambush?
 
-After all, I didn't actually know where around the waterfall the elven colony was.
+After all, I didn't actually know where around the waterfall the elven base was.
 
-The elven territorial defenders would surely escort me to their base after surely.
+The elven territorial defenders would surely escort me to their base after.
 
 I landed on another branch and activated Defense before dropping down to the forest floor and began walking in the direction of the waterfall.
 
-The waterfall isn't much further than here and walking the rest of the way doesn't seem too bad. 
+The waterfall isn't much further from here and walking the rest of the way doesn't seem too bad. 
 
 I studied my environment as I walked and concluded that I was already in elven territory.
 
-There wasn't much shrubbery on the forest floor which allows makes the area walkable yet there are enough small bushes that defenders can easily use for ambush attacks.
+There wasn't much shrubbery on the forest floor which makes the area walkable yet there are enough small bushes that defenders can easily use them for ambush attacks.
 
 I was starting to understand why this location was highly prised by various tribes.
 
@@ -208,15 +212,15 @@ Various instances of physical type abilities were activated all around me as the
 
 One glance was all I need to know that they were all using Quicken.
 
-I quickly created a circle of fire around me using Pyromancer hoping to intimidate but I didn't really expect it to do too much.
+I quickly created a circle of fire around me using Pyromancer hoping to intimidate them but I didn't really expect it to do too much.
 
 Yet for some reason, the elven attackers all stopped in their tracks.
 
 Feeling like I had a bit of time, I began my self-introduction again.
 
-"I am Master Mikay. I am here on behalf of the Mastery League's school in Mountainpass. I am here to assess the applicants Amanda and Hannah for their eligibility to partake in the school's entrance exam." I announced in a commanding voice.
+"I am Master Mikay. I am here on behalf of the Mastery League's school in Mountain Pass. I am here to assess the applicants Amanda and Hannah for their eligibility to partake in the school's entrance exam." I announced in a commanding voice.
 
-After my announcement, I could hear whispers heard around me. 
+After my announcement, I could hear whispers all around me. 
 
 "a master..."
 
@@ -264,7 +268,7 @@ After Patrisha escorted me to the camp, she began giving orders to some of the o
 
 She didn't leave my side so I felt a bit uneasy looking around but I did anyway.
 
-I could tell that this camp wasn't where the main camp. 
+I could tell that this camp wasn't the main camp. 
 
 For one, it was way too far from the waterfall. second, there were far too few tents around to support a tribe big enough to successfully capture and hold such a large area. 
 
@@ -274,7 +278,7 @@ The trees branches seemed to have smooth bark on many areas suggesting that thos
 
 Shortly after, a group of elves jumped down from the treetops and landed in front of me.
 
-"Hello Master Mikay, myname is Amanda. One of the applicants you have come to test." said one of the girls in the group.
+"Hello Master Mikay, my name is Amanda. One of the applicants you have come to test." said one of the girls in the group.
 
 "I am pleased to make your acquaintance Master Mikay, I am Hannah, the other applicant." said another girl standing by Amanda's side.
 
@@ -282,7 +286,7 @@ The two of them look remarkably similar, more so than any other elves.
 
 I was curious about why there were quite a few others around when Patrisha spoke up again.
 
-"Master Mikay, I hope it's fine with you but we have a number of others who would like to whiteness the pre-exam trials would that be ok with you?"
+"Master Mikay, I hope it's fine with you but we have a number of others who would like to witness the pre-exam trials would that be ok with you?"
 
 "Oh. ya, that's fine."
 
@@ -298,7 +302,7 @@ They were a bit surprised at my question.
 
 "Doesn't the school perform only one pre-exam trial per day?" Hannah added.
 
-"Well... you're not wrong. But that's mostly for the teacher's don't tire out. As for me, I'm not quite like the average teacher at the school." I replied.
+"Well... you're not wrong. But that's mostly to prevent the teachers from tiring out. As for me, I'm not quite like the average teacher at the school." I replied.
 
 The two took a look at each other for a bit before one of them walked forwards.
 
@@ -316,7 +320,7 @@ The elves around me whispered as I did this but I paid them no attention.
 
 As she did, I marked her response down on the stone tablet with Forgemaster. 
 
-"Next question, which are you most familiar with?" 
+"Next question, which ability are you most familiar with?" 
 
 "Quicken"
 
@@ -324,9 +328,9 @@ As she did, I marked her response down on the stone tablet with Forgemaster.
 
 "Two abilities for about 3 minutes and a single one for about 8 minutes."
 
-I asked the questions one after another recording the answers on the stone tablet as I went.
+I continued to ask questions one after another and recorded the answers on the stone tablet as I went.
 
-At this point, the questions just came out like pouring water. 
+At this point, the questions just came out like flowing water. 
 
 It's as if time just disappeared as the questions went on, one by one.
 
@@ -338,11 +342,11 @@ Amanda gave me a nod.
 
 I drew a small circle around me with the stick the tossed it to the side.
 
-"Do whatever you can make me step out of this circle no restrictions. Begin whenever you're ready and quit whenever you feel like" I said as I activated 3 instances of quicken and strengthen as well as Defense.
+"Do whatever you can to make me step out of this circle, no restrictions. Begin whenever you're ready and quit whenever you feel like" I said as I activated 3 instances of each of Quicken, Strengthen and Defense.
 
 I can see Patrisha's shocked expression as I did this as she has also kept her Inspection ability activated this whole time too.
 
-With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumping at me right after. 
+With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumped at me right after. 
 
 Frontal attack to my gut, but I caught her strike in my palm.
 
@@ -358,13 +362,11 @@ A direct tackle against me, but I pushed back and sent her flying in return.
 
 Not willing to give up, Amanda got up immediately and tried again this time with different tactics.
 
-Of course, that didn't change much and ended up flying again. 
+Of course, that didn't change much and she ended up flying again. 
 
 This continued again and again for almost an hour until she finally gave up with scratches scrapes and bruises all over her body.
 
-Amanda looked like she
-
- could hardly get up.
+Amanda looked like she could hardly get up.
 
 Honestly, I felt bad for her but I had to do what I must. 
 
@@ -392,7 +394,7 @@ Hannah was shaking nervously when I told her the rules but she quickly shook it 
 
 In almost all regards, she was like a weaker version of Amanda. 
 
-Hanna can keep 2 abilities active at once yes but for far shorter than Amanda can.
+Hanna can keep 2 abilities active at once, yes, but for far shorter than Amanda can.
 
 Her single ability activation duration wasn't that long either and she gave up around 10 minutes into her trial. 
 
@@ -421,7 +423,7 @@ She had a piece of tree bark in her hands and she was shivering with fear.
 
 'Melody' it read.
 
-Her name was carved into the inside of the bark.
+Her name was carved into the inside of the bark along with some other application info.
 
 I put her bark and the two tablets from earlier down and created a third tablet.
 
@@ -443,9 +445,9 @@ Melody's eye lit up with happiness when I said that.
 
 ...
 
-Like with Amanda and Hannah before. I asked my question and marked them down.
+Like with Amanda and Hannah before. I continued to ask my questions and marked down Melody's answers.
 
-And like with the previous two, I'd place the tablet down after and stand in the circle and ask the applicant to try to push me out.
+And like with the previous two, I'd place the tablet down after and stood in the circle and asked Melody to try and push me out.
 
 Melody took a deep breath and came at me flailing.
 
@@ -457,9 +459,9 @@ Though despite that, she had a rare talent.
 
 She was able to change her ability fast enough that she might as well have been using two abilities.
 
-I noticed that she was using quicken to accelerate her approach then use Heat in an attempt to make up for her wake hits.
+I noticed that she was using Quicken to accelerate her approach, then, she'd switch to using Heat or Cool when she was in striking distance.
 
-However, she really wasn't making contact for long enough for this to work onme.
+However, she really wasn't making contact with me for long enough for this to work onme.
 
 By the 20 minute mark, Melody has fully used up her third ability activation duration and is now charging at me with no abilities active.
 
@@ -503,7 +505,7 @@ Melody too.
 
 This girl will probably go far.
 
-I carried Melody to Patrisha before I noted down my thoughts on melody.
+I carried Melody to Patrisha before I noted down my thoughts on the stone tablet.
 
 After that, Patrisha came up to me with a concerned look on her face.
 
@@ -515,13 +517,13 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 "About?"
 
-"Well... I just had a bad feeling when I was watching the fight just now. Like, I felt like Melody might die."
+"Well... I just had a bad feeling when I was watching the fight just now. You know, I felt like Melody might die."
 
 "I know how you feel because I felt the same. that's why I stepped out of the circle."
 
 "I... I see... what about the exams? Those are fights against other people who aren't teachers. I'm really worried that Melody might get herself killed like she almost did now." Patrisha plead.
 
-"Don't worry about that, we have plenty of teachers on-site to stop anything before it gets too bad. Also, killing innocent people is the fastest way to lose an insane of karma. In fact, death by karma actually becomes a real concern for most at this point. That's why no one in their right mind would do that."
+"Don't worry about that, we have plenty of teachers on-site to stop anything before it gets too bad. Also, killing innocent people is the fastest way to lose an insane amount of karma. In fact, death by karma actually becomes a real concern for most people at this point. That's why no one in their right mind would do that."
 
 "R-right..."
 
@@ -541,7 +543,7 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 By the time I got home, Ethan had already passed out. 
 
-I had to light the way with fire created by Pyromancer. 
+It was dark too, so dark in fact that I had to light the way home with fire created by Pyromancer. 
 
 I placed the stack of stone tablets and Melody's name tag on the ground in front of Ethan and went off to bed myself.
 
