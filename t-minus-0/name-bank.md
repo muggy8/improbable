@@ -45,7 +45,6 @@ Trisha
 Salina
 Sasha
 Lynda
-Emily
 Metiorican
 Alisha
 Patrisha 
@@ -57,6 +56,8 @@ Ryan
 Erica
 Fuchsia
 Ellen
+Maroon
+Monty
 
 ## Used:
 Phanna (isekai'd)
@@ -70,4 +71,4 @@ Patricia (elf squad leader)
 Adrian
 Casandra (elven ace)
 Leon
- 
+Emily (older teacher friend)
