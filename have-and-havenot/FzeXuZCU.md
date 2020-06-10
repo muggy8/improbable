@@ -30,13 +30,13 @@ Why isMelody doing this?
 
 I Instinctively activated 3 instances of Quicken and 3 instances of Strengthen and dashed towards Phanna's platform.
 
-The world around me blured but the center of my vision stayed constant.
+The world around me blurred but the center of my vision stayed constant.
 
 Phanna.
 
 I have to make it to Phanna.
 
-Phanna flipped over mid air and landed on their legs.
+Phanna flipped over mid-air and landed on their legs.
 
 Wait how is that possible?
 
@@ -44,7 +44,7 @@ Is Phanna still conscious?
 
 But I didn't get a chance to think as Melody was already following up with a spinning kick.
 
-Phanna didn't seem to budge as Melody appronched.
+Phanna didn't seem to budge as Melody approached.
 
 I felt as if the world slowed down.
 
@@ -62,7 +62,7 @@ My dash slowed, my hope shattered.
 
 But as I slowed down, the most unexpected happened, Phanna counter attacked.
 
-Phanna's jaw was still fully connected, head still attached, and arms on melody's leg.
+Phanna's jaw was still fully connected, head still attached, and their arms were holding on to Melody's leg.
 
 And then, a strong overhead swing.
 
@@ -70,7 +70,7 @@ I watched in horror as Melody collided with the floor.
 
 Blood and bones splattered everywhere.
 
-A significant amount got splattered onto me but I was stunned, mentally and physically.
+A significant amount got splattered onto me but I was stunned, mentally, and physically.
 
 It was that moment, I realized...
 
@@ -80,7 +80,7 @@ I don't know how much time has passed but I saw Phanna fall over and I quickly s
 
 "Phanna are you ok?" I shouted.
 
-But Phanna didn't give me a proper responce
+But Phanna didn't give me a proper response
 
 I placed my hand on Phanna's shoulder again and tried again.
 
@@ -112,7 +112,7 @@ But my mind was only on Phanna.
 
 Melody? she's already dead.
 
-Why would you care about Melody.
+Why would you care about Melody?!
 
 Phanna's still alive and injured. 
 
@@ -120,7 +120,9 @@ Phanna needs youmore than Melody.
 
 A torrent of thoughts and emotions raced across my mind yet for some reason, I didn't voice any of them.
 
-Perhaps I already knew why, perhaps I knew Ethan's decision is correct.
+Perhaps I already knew why.
+
+Perhaps I knew Ethan's decision is correct.
 
 But all I felt right now was betrayed.
 
@@ -150,7 +152,7 @@ I couldn't help but feel a bit saddened by both Melody and Ethan.
 
 Ethan and I both knew that Melody was beyond saving.
 
-Yet his duties as the cleric and as the principal of the school demands that he at least try to do something for Melody.
+Yet his duties as the cleric and as the principal of the school demanded that he at least try to do something for Melody.
 
 A fruitless struggle that must continue.
 
@@ -162,7 +164,7 @@ Her drive to give 100% all the time, to keep pushing despite the odds.
 
 I felt like I've failed her, not only her but also Ethan and the future of the school and the Mastery League and the northern mountain elven tribe...
 
-I shoudn't have slowed down, I should have kept running, maybe I could have made it in time to save her.
+I shouldn't have slowed down, I should have kept running, maybe I could have made it in time to save her.
 
 Maybe I could have saved Phanna too if I had realized sooner.
 
@@ -172,7 +174,7 @@ Was Phanna right all along and that coming to this exam was a mistake?
 
 I don't have the answer but all I have now is my lingering regrets.
 
-"M-Master Mikay, w-what should we do?" asked a teacher beside me interupting my thoughts.
+"M-Master Mikay, w-what should we do?" asked a teacher beside me interrupting my thoughts.
 
 I recognized her.
 
@@ -188,25 +190,25 @@ I glanced down to Phanna laying on the ground beside me and then to the panicked
 
 Emily seemed like she was barely holding it together herself.
 
-"Contact the Mastery League home base to inform them of the situation and ask for assistance and guidance. The long range communicator should be in the principal's office. Do you know what it looks like?"
+"Contact the Mastery League home base to inform them of the situation and ask for assistance and guidance. The long-range communicator should be in the principal's office. Do you know what it looks like?"
 
 Emily gave me a nod and ran off. 
 
 As she did, Ethan stood up from next to Melody shaking his head.
 
-I knew that he couldn't do anything for Melody at that point but he had to give it a shot anyways.
+I knew that he couldn't do anything for Melody at that point but he had to give it a shot anyway.
 
-Amanda was nearby too and Ethan spoke to her quickly before coming to to Phanna's side.
+Amanda was nearby too and Ethan spoke to her quickly before coming to Phanna's side.
 
 "M-Master Mikay.. M-my apology.." Ethan said in a shaking voice as he started examining Phanna.
 
-I wanted to complain to Ethan that he should have came sooner but I held back my words.
+I wanted to complain to Ethan that he should have come sooner but I held back my words.
 
-We both knew the proper procedure is to check on the most injuried examenees first despite both of us also knowing full well that Melody was beyond saving.
+We both knew the proper procedure is to check on the most injured examinees first despite both of us also knowing full well that Melody was beyond saving.
 
-Without a nother word, Ethan began examining Phanna with his Soprano ability as I stood up to get out of the way.
+Without another word, Ethan began examining Phanna with his Soprano ability as I stood up to get out of the way.
 
-I glanced at Ethan impatiently as he performed his the usual checkup routien. 
+I glanced at Ethan impatiently as he performed his usual checkup routine. 
 
 What normally would have been a brief moment felt like forever as I waited eagerly for the results of Phanna's checkup.
 
@@ -216,35 +218,35 @@ Finally, Ethan spoke up.
 
 "Now's not the time to joke around!" I said in frustration.
 
-"N-No I-I would never joke about something like this to you M-MasterMikay. B-But it's true, other than a bruse, Phanna's completely unharmed."
+"N-No I-I would never joke about something like this to you M-MasterMikay. B-But it's true, other than a bruise, Phanna's completely unharmed."
 
 "Phanna received a Quicken empowered punch and kick to the head. How do you expect me to believe that they're completely unharmed?!"
 
-"I... um... I... I really don't know... I checked over Phanna's whole body twice and I can't find anything other than a bruse..."
+"I... um... I... I really don't know... I checked over Phanna's whole body twice and I can't find anything other than a bruise..."
 
 I was shocked. 
 
 I knew Ethan had no reason to lie to me about this.
 
-Especially with his reputation as a claric on theline.
+Especially with his reputation as a cleric on the line.
 
-He also seemed to be completely ernest in the way he's speaking.
+He also seemed to be completely earnest in the way he's speaking.
 
 Yet for some reason, I just can't bring myself to believe what he's saying.
 
-Afterall, the type of attack that Phanna received would have killed any undefended person.
+After all, the type of attack that Phanna received would have killed any undefended person.
 
 Even if Phanna was physically as strong and durable as a giant, there's no way they'd be completely unharmed by an attack like that. 
 
-All the more so when taking into consideration that Phanna's fighting style is very similar to the common rabbitmen fighting style which suggest that Phanna's body must have rabbitmen like characteristics. 
+All the more so when taking into consideration that Phanna's fighting style is very similar to the common rabbitmen fighting style which suggests that Phanna's body must have rabbitmen like characteristics. 
 
-"M-Maybe Phanna managed to defelct most of the attack?" Ethan said meekly as he tried to come up with an explanation for the rather unbelieveable situation.
+"M-Maybe Phanna managed to deflect most of the attack?" Ethan said meekly as he tried to come up with an explanation for the rather unbelievable situation.
 
-"We both saw how what happened and we both know that that's impossiable." I said glacing at Ethan
+"We both saw how what happened and we both know that that's impossible," I said glancing at Ethan
 
-I checked over Phanna myself trying to see if there's any external signs of injury and sure enough, there was nothing.
+I checked over Phanna myself trying to see if there are any external signs of injury and sure enough, there was nothing.
 
-How is this possiable?
+How is this possible?
 
 "M-master Mikay... I-if you'd like, I can use your Sphere of Influence to perform an examination on Phanna and show you what I can see..."
 
@@ -252,17 +254,17 @@ Without a second thought, I instantly snapped a reply.
 
 "Do it."
 
-Ethan was a bit startled by my snappy responce and but quickly regained his posture and began the process of controlling another person's Sphere of Influence.
+Ethan was a bit startled by my snappy response and but quickly regained his posture and began the process of controlling another person's Sphere of Influence.
 
 "Permission for Influence Extention" Ethan chanted.
 
 "Granted" I chanted in return.
 
-As soon as those words left my mouth, an unfarmiliar feeling of losing controle over a part of myself washed over the area that normally would have been part of my Sphere of Influence.
+As soon as those words left my mouth, an unfamiliar feeling of losing control over a part of myself washed over the area that normally would have been part of my Sphere of Influence.
 
 "M-master Mikay, please place Phanna on the ground and place your hands over their body" Ethan requested.
 
-I've seen Ethan perform the examination a couple times before so I had a pretty good idea what this position was supposed look like.
+I've seen Ethan perform the examination a couple of times before so I had a pretty good idea what this position was supposed to look like.
 
 I quickly got Phanna and myself into position but without the assistance of Strengthen, this task became much harder than I was used to.
 
@@ -272,9 +274,9 @@ It was a very strange feeling to have someone else activate abilities that I did
 
 Soon enough though, I was able to see inside of Phanna's body.
 
-Phanna's bones were fuzzy at some parts but increadibly sharp in others just like ethan described during his first examination of Phanna.
+Phanna's bones were fuzzy at some parts but incredibly sharp in others just like Ethan described during his first examination of Phanna.
 
-Fortunately, Phanna's skull was not fuzzy unlike their arms and legs.
+Fortunately, Phanna's skull was not fuzzy, unlike their arms and legs.
 
 "Master Mikay, are you able to see?"
 
@@ -288,29 +290,29 @@ Fortunately, Phanna's skull was not fuzzy unlike their arms and legs.
 
 I examined Ethan's claims as he spoke and it turns out what he said is completely true.
 
-"And if you follow along the spine, you can see that there's no difference between the left and the right side of Phanna's bones. If Phanna sustained any damage to their bone structure, it should be very appearent but there's nothing that breaks the mirror patern of Phanna's left and right side..."
+"And if you follow along the spine, you can see that there's no difference between the left and the right side of Phanna's bones. If Phanna sustained any damage to their bone structure, it should be very apparent but there's nothing that breaks the mirror pattern of Phanna's left and right side..."
 
 I continued to examine Phanna as much as I can with Ethan's assistance but it seems like everything that Ethan is saying is completely correct as he continued to explain.
 
-"What gets a bit more difficult to examin is Phanna's organs. Since you don't have any reference to what Phanna's internals looks like, it's hard to explain what should or shouldn't look any particular way but you can clearly see Phanna breathing and their heartbeat here." Ethan said pointing towards Phanna's chest before continueing.
+"What gets a bit more difficult to examine is Phanna's organs. Since you don't have any reference to what Phanna's internals looks like, it's hard to explain what should or shouldn't look any particular way but you can clearly see Phanna breathing and their heartbeat here." Ethan said pointing towards Phanna's chest before continuing.
 
-"However One that we can gather is that because Phanna's rib cage is undammaged, we can assume that anything protected by it is also undamaged and since Melody's attack hit Phanna's upper body we can assume that there's no damage to anything below the rib cage."
+"However One that we can gather is that because Phanna's rib cage is undamaged, we can assume that anything protected by it is also undamaged and since Melody's attack hit Phanna's upper body we can assume that there's no damage to anything below the rib cage."
 
 Ethan stopped explaining at this point to look at me.
 
-I can see fully well that everything that he said is completely true. 
+I can see full well that everything that he said is completely true. 
 
 It really doesn't look like Phanna has taken any damage at all.
 
 Seeing this with my eyes first hand gave me a sense of relief but also a strange feeling of discomfort not knowing exactly what or why.
 
-"Thanks Ethan..." Was the only thing I could say at this point as I dropped myself back down onto the floor to sit next to Phanna.
+"Thanks, Ethan..." Was the only thing I could say at this point as I dropped myself back down onto the floor to sit next to Phanna.
 
-Seeing me leaving the examination position, Ethan responsibly stopped his control of my Sphear of Influence.
+Seeing me leaving the examination position, Ethan responsibly stopped his control of my Sphere of Influence.
 
 "Terminate Influence Extention" Ethan whispered.
 
-I felt my Sphere of Influence return to my controle but that wasn't where my mind was.
+I felt my Sphere of Influence return to my control but that wasn't where my mind was.
 
 The only thing on my mind was Phanna.
 
@@ -330,27 +332,27 @@ He gave me a slow nod and then retreated from my side.
 
 What should I do now?
 
-I wanted to take Phanna home immediately but as the highest ranking member of the Mastery League present, I technically have the responsibility to take charge during emergencies.
+I wanted to take Phanna home immediately but as the highest-ranking member of the Mastery League present, I technically have the responsibility to take charge during emergencies.
 
-However, Ethan is the Principal of the school and has athority over his school not to mention that he's much more suited for leadership and administration than I am.
+However, Ethan is the Principal of the school and has authority over his school not to mention that he's much more suited for leadership and administration than I am.
 
-Afterall, other than cleanup and checking on the other students before sending them home, there really isn't anything else to do.
+After all, other than clean up and checking on the other students before sending them home, there really isn't anything else to do.
 
-I guess the only thing I could do is to keep an eye of the area incase anyone wanted to use the uproar to cause trouble.
+I guess the only thing I could do is to keep an eye on the area in case anyone wanted to use the uproar to cause trouble.
 
 Following that line of logic, I re-activated 3 instances of Investigation and Observation each.
 
 That was when I noticed that Emily and Ethan were making their way back to me.
 
-They were carrying the long range communicator with them too.
+They were carrying the long-range communicator with them too.
 
-"What's wrong" I asked upon their arrival.
+"What's wrong," I asked upon their arrival.
 
-"M-Master Mikay, home base would like to speak to you." Emily stuttered as she handed me the long range communicator.
+"M-Master Mikay, home base would like to speak to you." Emily stuttered as she handed me the long-range communicator.
 
-"This is Master Mikay." I called out to the communicator that I received from Emily.
+"This is Master Mikay," I called out to the communicator that I received from Emily.
 
-"Master Mikay, we will be needing your cooperation in an important mission regarding the recent death of an examenee." said the person on the other side of the communicator.
+"Master Mikay, we will be needing your cooperation in an important mission regarding the recent death of an examinee." said the person on the other side of the communicator.
 
 What? Isn't the only thing that's left to do cleanup and checking on the students? 
 
@@ -358,9 +360,9 @@ I didn't really know what was going on but I do know that I am obligated to help
 
 "Sure, what's the mission?" I replied.
 
-"Since you have the largest Sphear of Influence in the area, we will be using your Sphear of Influence to observe the suroundings and then alter the memories of all those who have whitnessed the event."
+"Since you have the largest Sphere of Influence in the area, we will be using your Sphere of Influence to observe the surroundings and then alter the memories of all those who have witnessed the event."
 
-"Y-You cant be serious? Is that even possiable?"
+"Y-You can't be serious? Is that even possible?"
 
 "Yes, absolutely. Now please keep a firm grip on the communicator. I will now begin Influence Extention. Permission for Influence Extention."
 
@@ -368,5 +370,5 @@ I was doubtful of what this person was suggesting but it is a direct communicati
 
 I didn't really have a good reason to refuse this request either.
 
-"G-Granted..." I said reluctantly and as I did, the strange feeling of a part of my body leaving my control graced me yet again.
+"G-Granted..." I said reluctantly and as I did, the strange feeling of a part of my body leaving my control washed over me yet again.
 
