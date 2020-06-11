@@ -469,3 +469,5 @@ Something echoed in my mind, but I couldn't comprehend it over the sound of crac
 "Someone, something, anything.. please.. save me..."
 
 ## <center>~<center>
+
+<center><a href="./FzeXuZCU">Next Chapter</a></center>
