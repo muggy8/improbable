@@ -110,5 +110,26 @@ I was lost for words.
 
 "Master Mikay, thank you for your cooperation ---" 
 
-I dropped the communicator as I looked in awe towards Phanna's direction resulting in dissconnecting my communicator link to the person on the other side of the communicator.
+Before the person on the other side of the communicator can finish, I noticed Phanna sitting up in the middle of the platform. 
 
+I released the communicator as I was stunned not knowing what I should feel.
+
+As I released my grip on the communicator, my connection with the person on the other side of the communicator broke.
+
+But the sound of the communicator hitting the gravel beneath my feet snapped me back into my senses.
+
+I quickly rushed over to Phanna's side.
+
+"Phanna! Phanna! Are you alright?!" I shouted as I got to Phanna's side.
+
+But what I got back was just some groaning sounds and the tipical noises phanna would make to try to get me to go away in the morning.
+
+The way Phanna does this made me feel complicated. 
+
+It's hard to argue that Phanna's anything but fine giving the responce just now but the way Phanna is behaving is making things seem too fine.
+
+To the point where I felt like maybe Phanna wasn't fine.
+
+Phanna looked around blankly and quickly ended up scratching their head as they looked back at me sleepily before making one of those completely random and out of nowhere remarks.
+
+"I see... "
