@@ -112,7 +112,7 @@ I was lost for words.
 
 Before the person on the other side of the communicator can finish, I noticed Phanna sitting up in the middle of the platform. 
 
-I released the communicator as I was stunned not knowing what I should feel.
+I dropped the communicator as I was stunned not knowing what I should feel.
 
 As I released my grip on the communicator, my connection with the person on the other side of the communicator broke.
 
@@ -126,10 +126,32 @@ But what I got back was just some groaning sounds and the tipical noises phanna 
 
 The way Phanna does this made me feel complicated. 
 
-It's hard to argue that Phanna's anything but fine giving the responce just now but the way Phanna is behaving is making things seem too fine.
+It's hard to argue that Phanna's anything but fine given the responce just now but the way Phanna is behaving is making things seem too fine.
 
 To the point where I felt like maybe Phanna wasn't fine.
 
-Phanna looked around blankly and quickly ended up scratching their head as they looked back at me sleepily before making one of those completely random and out of nowhere remarks.
+Phanna looked around blankly and quickly ended up scratching their head as they looked back at me sleepily.
 
-"I see... "
+"What am I doing here..." Phanna asked in h half asleep way
+
+Oh right, Phanna must not remember anything since everyone's memories were altered just now.
+
+"Um, Phanna, what do you remember?" I asked trying to find out what was the new sequence of events that everyone is supposed to remember now.
+
+"I'm not quite sure... I'm getting this memory alteration warning right now... actually... let me just get that warning to go away first. User memory merge backup overwrite."
+
+I felt speechless, I wasn't sure fully understood Phanna.
+
+Phanna might as well be speaking complete gibrish by the end.
+
+Though it's not the first time I've heard Phanna say something strange like that, it feels increadibly strange each time it happens.
+
+The only thing I really understood was that Phanna's memories are messed up.
+
+Shortly after the strange remark, Phana gripped their forehead with their hand.
+
+I could see discomfort in Phanna's face.
+
+"Are you alright?!" I shouted as I quickly grabbed onto Phanna's shoulders.
+
+But the responce I got was much less comforting this time around.
