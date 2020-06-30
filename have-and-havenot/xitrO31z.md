@@ -1,4 +1,4 @@
-# Cold Truth
+# Possession
 
 "Master Mikay, thank you for your cooperation, the preparation is complete." Said the voice on the other end of the communicator.
 
@@ -8,9 +8,9 @@
 
 "Thank you."
 
-"Alright then, I shall now begin the process of altering the memories of those who are currently within your Sphere of Influence."
+"Alright then, I will begin the process of altering the memories of those who are currently within your Sphere of Influence."
 
-As the person on the other side of the communicator finished those words, I could feel numerous abilities being activated.
+As the person on the other side of the communicator finished those words, I could feel myself activating numerous Abilities.
 
 I didn't recognize many of these Abilities.
 
@@ -18,7 +18,7 @@ I didn't even know what type of Abilities the ones I didn't recognize were.
 
 All I know is that among the set that I didn't recognize, 4 of those were Innate Abilities.
 
-Not surprising considering the person on the other end of this communicator was likely at the very least a Grandmaster.
+It wasn't that surprising considering the person on the other end of this communicator was likely, at the very least, a Master or even a Grandmaster.
 
 There were a few Abilities that I did recognize such as Observe and Investigate.
 
@@ -84,7 +84,7 @@ Until...
 
 There was no one left standing.
 
-I felt a tear run down my cheeks.
+I felt something wet running down one of my cheeks.
 
 It's over...
 
@@ -92,7 +92,7 @@ Allover...
 
 Again, I stand alone in a sea of corpses.
 
-"Terminate Influence Extention," the voice on the other side of the communicator said and I could feel my Sphere of Influence returning to my control.
+"Terminate Influence Extention," the voice on the other side of the communicator said as I felt my Sphere of Influence return to my control.
 
 "Wha... What happened...?"
 
@@ -108,11 +108,11 @@ Again, I stand alone in a sea of corpses.
 
 I was lost for words.
 
-"Master Mikay, thank you for your cooperation ---" 
+"Master Mikay, thank you for your cooperation. I will now ---" 
 
 Before the person on the other side of the communicator can finish, I noticed Phanna sitting up in the middle of the platform. 
 
-I dropped the communicator as I was stunned not knowing what I should feel.
+I dropped the communicator as I was stunned with relief.
 
 As I released my grip on the communicator, my connection with the person on the other side of the communicator broke.
 
@@ -122,33 +122,39 @@ I quickly rushed over to Phanna's side.
 
 "Phanna! Phanna! Are you alright?!" I shouted as I got to Phanna's side.
 
-But what I got back was just some groaning sounds and the typical noises phanna would make to try to get me to go away in the morning.
+But what I got back was just some groaning sounds and the typical noises Phanna would make to try to get me to go away in the morning.
 
 The way Phanna does this made me feel complicated. 
 
-It's hard to argue that Phanna's anything but fine given the response just now but the way Phanna is behaving is making things seem too fine.
+It's hard to argue that Phanna isn't fine given the response just now, but the way Phanna is behaving is making things seem too fine.
 
 To the point where I felt like maybe Phanna wasn't fine.
 
 Phanna looked around blankly and quickly ended up scratching their head as they looked back at me sleepily.
 
-"What am I doing here..." Phanna asked in h half-asleep way
+"What am I doing here..." Phanna asked in a half-asleep way
 
 Oh right, Phanna must not remember anything since everyone's memories were altered just now.
 
 "Um, Phanna, what do you remember?" I asked trying to find out what was the new sequence of events that everyone is supposed to remember now.
 
-"I'm not quite sure... I'm getting this memory alteration warning right now... actually... let me just get that warning to go away first. User memory merges backup overwrite."
+"I'm not quite sure... I'm getting this memory alteration warning right now... actually... let me just get that warning to go away first. User memory merge backup overwrite."
 
-I felt speechless, I wasn't sure fully understood Phanna.
+I wasn't sure if I understood much of what Phanna said at all.
+
+This definately wasn't the first time I felt this way.
 
 Phanna might as well be speaking complete gibberish by the end.
 
-Though it's not the first time I've heard Phanna say something strange like that, it feels incredibly strange each time it happens.
+I've gotten really good at ignoring Phanna's nonsense most of the time now, but even I knew this wasn't the time and place to just ignore the gibberish.
 
 The only thing I really understood was that Phanna's memories are messed up.
 
-Shortly after the strange remark, Phanna gripped their forehead with their hand.
+Should I ask Phanna to actually explain and risk an even more messy answer?
+
+But Phanna has given understandable explanations before...
+
+Before I can make up my mind on what to do, Phanna gripped their forehead with their hand.
 
 I could see the discomfort in Phanna's face.
 
