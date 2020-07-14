@@ -1,4 +1,18 @@
-# Epilogue
+# Memories or Dreams
+
+Red...
+
+Blood...
+
+Black...
+
+Dark...
+
+Endless...
+
+Everything...
+
+Voice...?
 
 "N4, the experiment is all set up for you now. "
 
@@ -242,6 +256,44 @@ Was this a tear or was this something else.
 
 Before long, our eye contact was broken and the mortality agent began retreating to the back of the service room with the trolley.
 
-It wasn't until much later that this whole sequence of events sank in and started to make sense.
+All that's left is me and my thoughts at this table slowly fading away...
+
+_Warning: Memory alteration detected. Please restore memory backup_
+
+...
+
+_Warning: Memory alteration detected. Please restore memory backup_
+
+...
+
+_Warning: Memory alteration detected. Please restore memory backup_
 
 ## <center>...<center>
+
+The Memory Warning buzzed relentlessly at my consciousness until I found myself waking up in a stone platform.
+
+I sat myslef up to observe my surroundings unsure of what just happened exactly.
+
+Everything felt fuzzy and I could barely keep my eyes open.
+
+My eyelids felt heavy and I my body felt the same too.
+
+It was as if I had been forched to abruptly wake up at an ungodly hour.
+
+I rubbed my eyes with my hands trying to clear my vision.
+
+"Phanna... You..."
+
+Something that sounded like Mikay called at me, but I wasn't too sure.
+
+After clearing my eyes, I made an attempt too look around again and indeed Mikay was there.
+
+The last thing I remember clearly was going to bed last night. 
+
+Everything else that I can remembe was a fuzzy and hazy dream.
+
+Yet here I am in the middle of a stone platform.
+
+So... why am I here...
+
+"What am I doing here..." I mumbled.
