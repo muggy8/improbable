@@ -58,6 +58,8 @@ Fuchsia
 Ellen
 Maroon
 Monty
+Toby
+Mason
 
 ## Used:
 Phanna (isekai'd)
