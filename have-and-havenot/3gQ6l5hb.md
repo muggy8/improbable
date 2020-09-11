@@ -290,10 +290,185 @@ After clearing my eyes, I made an attempt too look around again and indeed Mikay
 
 The last thing I remember clearly was going to bed last night. 
 
-Everything else that I can remembe was a fuzzy and hazy dream.
+Everything else that I can remember felt fuzzy, hazy and dreamy.
 
 Yet here I am in the middle of a stone platform.
 
 So... why am I here...
 
 "What am I doing here..." I mumbled.
+
+Yet before I can even finish my own thought, error warnings flooded my consciousness.
+
+_Warning: Memory alteration detected. Please restore memory backup_
+  
+The warning was loud, forceful, attention demanding, and unrelenting.
+ 
+It echoed through my mind booming and resonating against my every thought.
+ 
+It was nagging, hurted in a way only thoughts could.
+
+This definately wasn't the first time I received this warning recently. 
+
+"Um, Phanna, what do you remember?" Mikay asked oblivious to what is happening in my mind. 
+
+"I'm not quite sure... I'm getting this memory alteration warning right now... actually... let me just get that warning to go away first. User memory merge backup overwrite."
+
+_Restoring memory backup_/n
+_No backup version specified. default will be used,_/n
+_Backup restored_
+
+And like that, my memories flooded back to me like a torrent of pain.
+
+The trauma controle system is doing it's job
+
+Every still felt hazy and dreamy as expected, but the memories were unmistakable. 
+
+This wasn't the first time I had experienced this.
+
+In fact, I knew this feeling quite well since I had experienced it once not too long ago.
+
+"Are you alright?!" Mikay shouted near by, but my mind was racing and Mikay's the last thing on my mind. 
+
+I pushed Mikay off of me and began franticly looked around trying to find something.
+
+What was I looking for?
+
+I don't know.
+
+But I needed to take in my surroundings.
+
+People laying on the ground by the school.
+
+The platform empty except for me and Mikay.
+
+The air was humid and calm.
+
+What was I looking for?
+
+Was this fear?
+
+And then it hit me as I calmed down
+
+"Mikay... where's Melody..."
+
+Mikay's response was a look of disbelief.
+
+But he answered anyways pointing to a spot on the stone platform I was sitting on as he softly spoke a single word:
+
+"There"
+
+I allowed my gaze to follow his finger towards the spot on the platform... 
+
+But I saw nothing...
+
+That's when it all struck me again...
+
+This, all of this, is real...
+
+I knew this situation.
+
+I have felt it before.
+
+Those around me being able to see something I can't. 
+
+I don't know where or when it happened, but I knew it happened before.
+
+How did this happen?
+
+Where in the universe am I?
+
+What could have caused this?
+
+I had to know!
+
+"User locate" I commanded in desperation.
+
+_..._/n
+_..._/n
+_..._/n
+_Error: no reference detected beacon detected_
+
+What, just where the heck am I? 
+
+Deep space?
+
+Did I get tossed out of my home planet somehow and ended up on another plant? 
+
+But isn't that insanely improbable?
+
+What time is it? 
+
+Maybe it's been trillions of years already?
+
+"user's date's format ( date's now, y-m-d )". 
+
+_64A72B93-9-1A_
+
+Less than a month?!
+
+Have I been moving at relativistic speeds??
+
+This makes no sense at all!!!
+
+My mind raced trying desperately to come up with some kind of reasonable explanation.
+
+There's no way I'd survive a landing of any sort from relativistic speeds.
+
+Was I orbiting a super masive black hole?
+
+Then how did I escape?
+
+This is a simulation has already been ruled out...
+
+Maybe a software bug?
+
+But the locator algorithm and time keeper doesn't rely on external services and there's no way such core functions could be broken with so many users...
+
+Then... 
+
+How...
+
+...
+
+Faster Than Light?
+
+There's no way right...
+
+I looked over to Mikay and asked:
+
+"Where... Am I?" 
+
+I knew full well I wouldn't be getting an answer that made any sense in this situation.
+
+But some how, I still had to asked.
+
+This was the only thing left that'd make sense at this point,
+
+I was hoping this was a joke, a prank, that Mikay orchistrated this whole thing, hacked my computers to mess with me. 
+
+The reason didn't matter, all that mattered was the truth.
+
+"Ethan's Master Academy" Mikay answered fully to my expectations. 
+
+"No! I mean WHERE are we?" I snapped back.
+
+"M-Mountainpass?" Mikay answered a little bit shocked. 
+
+"No! My location service is returning an error saying there's no beacon detectable and my clock says it's not even been a month since the last time I was was for sure on 9M6GB4A5! Either you or someone else is playing a prank on me or I somehow traveled faster than light. Which do you thing I'd rather believe!?"
+
+But Mikay didn't answer.
+
+He looked stunned, worried, confused, scared, and maybe even regretful.
+
+But still, I didn't get any answers.
+
+"Phanna... I have no idea what you're talking about but please calm down. Whatever problem you're having, I'm sure we can work it out together." Mikay said sincerly.
+
+That's when I realized, Mikay is not the one.
+
+I let out a sigh as I stood up.
+
+"Wait, Phanna, what are you doing?"
+
+"Leaving. I want to be somewhere, anywhere, as long as it's not here. I need some time and space to think." I answered as I engaged my leg tendons and took off as soon as I finished speaking.

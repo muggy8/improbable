@@ -60,9 +60,12 @@ Maroon
 Monty
 Toby
 Mason
+Quincy
+Sharon
+Noah
 
 ## Used:
-Phanna (isekai'd)
+Phanna (isekai'd code: A244X0Z4305PHAN4)
 Mikay (summoner)
 Hickory (strongest)
 Ethan (Principal)
@@ -74,3 +77,5 @@ Adrian
 Casandra (elven ace)
 Leon
 Emily (older teacher friend)
+
+9M6GB4A5 (Phanna's home)

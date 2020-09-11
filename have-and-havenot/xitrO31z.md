@@ -158,6 +158,6 @@ Before I can make up my mind on what to do, Phanna gripped their forehead with t
 
 I could see the discomfort in Phanna's face.
 
-"Are you alright?!" I shouted as I quickly grabbed onto Phanna's shoulders.
+"Are you alright?!"  I shouted as I quickly grabbed onto Phanna's shoulders.
 
 But the response I got was much less comforting this time around.
