@@ -142,7 +142,7 @@ Oh right, Phanna must not remember anything since everyone's memories were alter
 
 I wasn't sure if I understood much of what Phanna said at all.
 
-This definately wasn't the first time I felt this way.
+This definitely wasn't the first time I felt this way.
 
 Phanna might as well be speaking complete gibberish by the end.
 

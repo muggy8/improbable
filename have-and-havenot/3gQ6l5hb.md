@@ -42,7 +42,7 @@ As the feeling became clearer and clearer, the voice from within the darkness ca
 
 Not a second later, several large disturbances were felt against the ambient background, 2 of them in fact; both round.
 
-There's no orientation to locate where these disruptions happened, the only thing for sure is the distance from the center, their relationship to each other and their mass.
+There's no orientation to locate where these disruptions happened, the only thing for sure is the distance from the center, their relationship to each other, and their mass.
 
 "54.33 meters, 98.87 meters, 0.54π." Called the voice in the darkness.
 
@@ -64,13 +64,13 @@ After what must have been an eternity of disturbances and call outs, the disturb
 
 "Alright, we're all clear N4."
 
-"Thanks FF3."
+"Thanks, FF3."
 
 "I'll be getting you out of the pod now."
 
 "That'd be great."
 
-A minor disturbances can be felt against the fuzzy background as the owner of that voice on the other side began to approach.
+A minor disturbance can be felt against the fuzzy background as the owner of that voice on the other side began to approach.
 
 44.87 meters
 
@@ -104,21 +104,21 @@ Click, the blinding beam of light disappeared.
 
 "Oh snap... you're right... our last anniversary celebration was... 10 years ago right"
 
-"12 actually. we decided to go with 12 year cycles cause somebody kept insisting 'base 12 is the way to go'..."
+"12 actually. we decided to go with 12-year cycles cause somebody kept insisting 'base 12 is the way to go'..."
 
-"Oh right... hehe my bad... oh and before I forget... user wave_receivers stop." The fuzzy feeling in the far off distance slowly faded away.
+"Oh right... hehe, my bad... oh and before I forget... user wave_receivers stop." The fuzzy feeling in the far off distance slowly faded away.
 
 After a short pause, simultaneous utterances were made.
 
-"I guess a few long all nighters are in order"
+"I guess a few long all-nighters are in order"
 
 "I guess we'll all be averaging less than ideal amounts of sleep for the next while"
 
 ## <center>...</center>
 
-<img src="~" width="600px" height="250px" alt="(Image: 3 people are sitting at a table. Two of them have their backs towards the point of view one on each side of the image while the third in the middle is facing towards the point of view. The chairs the three are sitting at is a long couch like chair with soft cushions that match the length of the rectangular table which seemed to be designed for a group of 4. There is a window to the left of the scene right up against the table and and what appears to be moon light or street lamp light is shining through. The light inside the room is dim to induce a romantic atmosphere; or at least that's what it feels like it's trying to do. The person sitting in the middle across the table has 2 sets of ears, long pointy ones near the eyes extruding out and long fox like ones on top of their head. The expression on the 4 eared person seems unhappy.)"/>
+<img src="~" width="600px" height="250px" alt="(Image: 3 people are sitting at a table. Two of them have their backs towards the point of view one on each side of the image while the third in the middle is facing towards the point of view. The chairs the three are sitting at is a long couch like chair with soft cushions that match the length of the rectangular table which seemed to be designed for a group of 4. There is a window to the left of the scene right up against the table and what appears to be moonlight or street lamp light is shining through. The light inside the room is dim to induce a romantic atmosphere, or at least that's what it feels like it's trying to do. The person sitting in the middle across the table has 2 sets of ears, long pointy ones near the eyes extruding out and long fox-like ones on top of their head. The expression on the 4 eared people seems unhappy.)"/>
 
-"I think this is the worst anniversary we've ever had... like ever" said QF3 who's voice was flat and monotonous.
+"I think this is the worst anniversary we've ever had... like ever," said QF3 who's voice was flat and monotonous.
 
 "I'm past 1000 years old at this point. I should be eligible for mortality at this point" said FF3 with a voice that matched QF3's
 
@@ -130,7 +130,7 @@ The energetic optimism in everyone's voices from before was now replaced by a fl
 
 "You don't seem like the serial killer type" FF3 scoffed while QF3 pursued the other topic.
 
-"Speaking of simulations, I heard that a number of people who spend enough time in them sometimes make new discoveries because of the change in perspective it brings. Both me and FF3 have spent a couple centuries in them before with no real results. I remember U4 was saying something along the lines of there being a better chance of making new discoveries in a simulation than there is by sticking around us before quitting."
+"Speaking of simulations, I heard that some people who spend enough time in them sometimes make discoveries because of the change in perspective it brings. Both me and FF3 have spent a couple of centuries in them before with no real results. I remember U4 was saying something along the lines of there being a better chance of making discoveries in a simulation than there is by sticking around us before quitting."
 
 "Ya, maybe you'll discover something new!"
 
@@ -166,9 +166,9 @@ The three drank in silence as if mulling over something as the server once again
 
 Once again the server began reciting the orders as before, and as they did, they also began transferring the plates on the tray to locations in front of the people sitting at the table.
 
-"One order of Ram stake with mixed grains and a side of Vacuum Chips, one order of Fungus Salad with squid ink dressing and a side of assorted jerky, finally, one order of Assorted Sushi consisting of jellyfish, lobster, puffer fish, and sting ray rolls and a side of Miso Soup"
+"One order of Ram stake with mixed grains and a side of Vacuum Chips, one order of Fungus Salad with squid ink dressing and a side of assorted jerky, finally, one order of Assorted Sushi consisting of jellyfish, lobster, pufferfish, and stingray rolls and a side of Miso Soup"
 
-As the server continued moving food and reciting orders, there was an ever looming sense that something important is happening.
+As the server continued moving food and reciting orders, there was an ever-looming sense that something important is happening.
 
 But nothing happened.
 
@@ -178,7 +178,7 @@ The server finished placing the food and was just about to turn around and leave
 
 "Sure thing." Replied the server.
 
-"Why do you work this job? What keeps you here? you're clearly not an android despite your appearance. I can tell by your voice."
+"Why do you work at this job? What keeps you here? you're clearly not an android despite your appearance. I can tell by your voice."
 
 As the server pondered over how to answer the question, FF3 and QF3 gulp down the last of their drinks in preparation for the main course.
 
@@ -204,7 +204,7 @@ The server gestured towards FF3 and QF3 sitting across the table.
 
 They both seem to be passed out with their food barely touched.
 
-The server who was serving food just a little while earlier is now dragging QF3 like some kind of rag doll and shoving them into the service trolley that the food was brought out on.
+The server who was serving food just a little while earlier is now dragging QF3 like some kind of ragdoll and shoving them into the service trolley that the food was brought out on.
 
 Pretty soon it was FF3's turn to be shoved into the serving trolley.
 
@@ -228,11 +228,11 @@ Somehow such a small trolley was able to fit two adult persons onto it.
 
 "Then the answers you gave me earlier about helping people and chatting with me... Were they all just lies?"
 
-"No, it's all true. I'm a very honest person after all. It's not every day that you get to see or talk to the friends, acquaintances, and/or family of mortality applicants and even less common to have the execution carried out in front of said people... What? Did you actually believe that mortality agents are all just a bunch of serial killers that are given a job to keep busy do you? After all, there's no such thing as an unarmed civilian so your garden variety serial killer won't really get too far."
+"No, it's all true. I'm a very honest person after all. It's not every day that you get to see or talk to the friends, acquaintances, and/or family of mortality applicants, and even less common to have the execution carried out in front of said people... What? Did you actually believe that mortality agents are all just a bunch of serial killers that are given a job to keep busy do you? After all, there's no such thing as an unarmed civilian so your garden variety serial killer won't really get too far."
 
 "..."
 
-"To be honest, it's probably for the best that you believe that. There's a pretty good reason for that rumor to exist. In my 8 or so centuries of being a mortality agent, I've only ran into a hand full of instances where someone in your position thought otherwise, and they're all people who has had experienced interacting with another mortality agent before."
+"To be honest, it's probably for the best that you believe that. There's a pretty good reason for that rumor to exist. In my 8 or so centuries of being a mortality agent, I've only run into a hand full of instances where someone in your position thought otherwise, and they're all people who have had experience interacting with another mortality agent before."
 
 "Right... that'd lead to too many agents if people knew better..."
 
@@ -252,7 +252,7 @@ The mortality agent disguised as a server closed the door on the trolley and loo
 
 The agent said nothing but a glimmer could be seen in their eyes.
 
-Was this a tear or was this something else.
+Was this a tear or was this something else?.
 
 Before long, our eye contact was broken and the mortality agent began retreating to the back of the service room with the trolley.
 
@@ -272,13 +272,13 @@ _Warning: Memory alteration detected. Please restore memory backup_
 
 The Memory Warning buzzed relentlessly at my consciousness until I found myself waking up in a stone platform.
 
-I sat myslef up to observe my surroundings unsure of what just happened exactly.
+I sat myself up to observe my surroundings unsure of what just happened exactly.
 
 Everything felt fuzzy and I could barely keep my eyes open.
 
-My eyelids felt heavy and I my body felt the same too.
+My eyelids felt heavy and my body felt the same too.
 
-It was as if I had been forched to abruptly wake up at an ungodly hour.
+It was as if I had been forced to abruptly wake up at an ungodly hour.
 
 I rubbed my eyes with my hands trying to clear my vision.
 
@@ -286,11 +286,11 @@ I rubbed my eyes with my hands trying to clear my vision.
 
 Something that sounded like Mikay called at me, but I wasn't too sure.
 
-After clearing my eyes, I made an attempt too look around again and indeed Mikay was there.
+After clearing my eyes, I attempted to look around again and indeed Mikay was there.
 
 The last thing I remember clearly was going to bed last night. 
 
-Everything else that I can remember felt fuzzy, hazy and dreamy.
+Everything else that I can remember felt fuzzy, hazy, and dreamy.
 
 Yet here I am in the middle of a stone platform.
 
@@ -302,13 +302,13 @@ Yet before I can even finish my own thought, error warnings flooded my conscious
 
 _Warning: Memory alteration detected. Please restore memory backup_
   
-The warning was loud, forceful, attention demanding, and unrelenting.
+The warning was loud, forceful, attention-demanding, and unrelenting.
  
 It echoed through my mind booming and resonating against my every thought.
  
-It was nagging, hurted in a way only thoughts could.
+It was nagging in my mind and hurted in a way only thoughts could.
 
-This definately wasn't the first time I received this warning recently. 
+This definitely wasn't the first time I received this warning recently. 
 
 "Um, Phanna, what do you remember?" Mikay asked oblivious to what is happening in my mind. 
 
@@ -320,7 +320,7 @@ _Backup restored_
 
 And like that, my memories flooded back to me like a torrent of pain.
 
-The trauma controle system is doing it's job
+The trauma control system is doing its job
 
 Every still felt hazy and dreamy as expected, but the memories were unmistakable. 
 
@@ -328,7 +328,7 @@ This wasn't the first time I had experienced this.
 
 In fact, I knew this feeling quite well since I had experienced it once not too long ago.
 
-"Are you alright?!" Mikay shouted near by, but my mind was racing and Mikay's the last thing on my mind. 
+"Are you alright?!" Mikay shouted nearby, but my mind was racing and Mikay's the last thing on my mind. 
 
 I pushed Mikay off of me and began franticly looked around trying to find something.
 
@@ -415,7 +415,7 @@ My mind raced trying desperately to come up with some kind of reasonable explana
 
 There's no way I'd survive a landing of any sort from relativistic speeds.
 
-Was I orbiting a super masive black hole?
+Was I orbiting a supermassive black hole?
 
 Then how did I escape?
 
@@ -423,7 +423,7 @@ This is a simulation has already been ruled out...
 
 Maybe a software bug?
 
-But the locator algorithm and time keeper doesn't rely on external services and there's no way such core functions could be broken with so many users...
+But the locator algorithm and timekeeper doesn't rely on external services and there's no way such core functions could be broken with so many users...
 
 Then... 
 
@@ -441,11 +441,11 @@ I looked over to Mikay and asked:
 
 I knew full well I wouldn't be getting an answer that made any sense in this situation.
 
-But some how, I still had to asked.
+But somehow, I still had to ask.
 
 This was the only thing left that'd make sense at this point,
 
-I was hoping this was a joke, a prank, that Mikay orchistrated this whole thing, hacked my computers to mess with me. 
+I was hoping this was a joke, a prank, that Mikay orchestrated this whole thing, hacked my computers to mess with me. 
 
 The reason didn't matter, all that mattered was the truth.
 
@@ -455,7 +455,7 @@ The reason didn't matter, all that mattered was the truth.
 
 "M-Mountainpass?" Mikay answered a little bit shocked. 
 
-"No! My location service is returning an error saying there's no beacon detectable and my clock says it's not even been a month since the last time I was was for sure on 9M6GB4A5! Either you or someone else is playing a prank on me or I somehow traveled faster than light. Which do you thing I'd rather believe!?"
+"No! My location service is returning an error saying there's no beacon detectable and my clock says it's not even been a month since the last time I was for sure on 9M6GB4A5! Either you or someone else is playing a prank on me or I somehow traveled faster than light. Which do you think I'd rather believe!?"
 
 But Mikay didn't answer.
 
@@ -463,7 +463,7 @@ He looked stunned, worried, confused, scared, and maybe even regretful.
 
 But still, I didn't get any answers.
 
-"Phanna... I have no idea what you're talking about but please calm down. Whatever problem you're having, I'm sure we can work it out together." Mikay said sincerly.
+"Phanna... I have no idea what you're talking about but please calm down. Whatever problem you're having, I'm sure we can work it out together." Mikay said sincerely.
 
 That's when I realized, Mikay is not the one.
 
