@@ -472,3 +472,5 @@ I let out a sigh as I stood up.
 "Wait, Phanna, what are you doing?"
 
 "Leaving. I want to be somewhere, anywhere, as long as it's not here. I need some time and space to think." I answered as I engaged my leg tendons and took off as soon as I finished speaking.
+
+## <center>~<center>
