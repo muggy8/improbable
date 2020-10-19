@@ -34,13 +34,13 @@ As the initiation process continued, something in the far off distance came into
 
 This new thing in the far off distance was a static fuzzy feeling, like a low audible buzz that can also be seen or felt, and just slightly within the threshold of cognition.
 
-This feeling extends in all directions as if surrounding everything in all directions far off in the infinite distance.
+This feeling came from all directions and felt infinitely far away, like the inside surface of an infinitely large sphere.
 
 As the feeling became clearer and clearer, the voice from within the darkness called out once again.
 
 "QF3 and FF3, you're both clear to begin the experiment."
 
-Not a second later, several large disturbances were felt against the ambient background, 2 of them in fact; both round.
+Not a second later, several large disturbances were felt against the static fuzzy ambient background, 2 of them in fact; both round.
 
 There's no orientation to locate where these disruptions happened, the only thing for sure is the distance from the center, their relationship to each other, and their mass.
 
@@ -98,11 +98,11 @@ Click, the blinding beam of light disappeared.
 
 "Think you can get the changes in before the 23rd?"
 
-"Hmm? that like a week away... why the hurry?"
+"Hmm? that's like a week away... why the hurry?"
 
 "Well, on the 23rd, it's the 240th anniversary of the founding of this team. Even though we lost a few members along the way, this is still a momentous occasion. That's why I was hoping we can get it finished and published on that day."
 
-"Oh snap... you're right... our last anniversary celebration was... 10 years ago right"
+"Oh snap... you're right... our last anniversary celebration was... 10 years ago... right?"
 
 "12 actually. we decided to go with 12-year cycles cause somebody kept insisting 'base 12 is the way to go'..."
 
@@ -232,7 +232,7 @@ Somehow such a small trolley was able to fit two adult persons onto it.
 
 "..."
 
-"To be honest, it's probably for the best that you believe that. There's a pretty good reason for that rumor to exist. In my 8 or so centuries of being a mortality agent, I've only run into a hand full of instances where someone in your position thought otherwise, and they're all people who have had experience interacting with another mortality agent before."
+"To be honest, it's probably for the best that you believe that. There's a pretty good reason for that rumor to exist. In my 8 or so centuries of being a mortality agent, I've only ran into a hand full of instances where someone in your position thought otherwise, and they're all people who have had experience interacting with another mortality agent before."
 
 "Right... that'd lead to too many agents if people knew better..."
 
@@ -256,7 +256,7 @@ Was this a tear or was this something else?.
 
 Before long, our eye contact was broken and the mortality agent began retreating to the back of the service room with the trolley.
 
-All that's left is me and my thoughts at this table slowly fading away...
+And then, there was silence as all that was left now is me, my thoughts, and this table that was slowly fading away...
 
 _Warning: Memory alteration detected. Please restore memory backup_
 
@@ -270,15 +270,15 @@ _Warning: Memory alteration detected. Please restore memory backup_
 
 ## <center>...<center>
 
-The Memory Warning buzzed relentlessly at my consciousness until I found myself waking up in a stone platform.
+The Memory Alteration Warning buzzed relentlessly at my consciousness until I found myself waking up in the middle of a stone platform.
 
-I sat myself up to observe my surroundings unsure of what just happened exactly.
+I sat myself up to observe my surroundings unsure of what exactly just happened.
 
 Everything felt fuzzy and I could barely keep my eyes open.
 
 My eyelids felt heavy and my body felt the same too.
 
-It was as if I had been forced to abruptly wake up at an ungodly hour.
+It was as if I had been forced to wake up at an ungodly hour.
 
 I rubbed my eyes with my hands trying to clear my vision.
 
@@ -314,15 +314,15 @@ This definitely wasn't the first time I received this warning recently.
 
 "I'm not quite sure... I'm getting this memory alteration warning right now... actually... let me just get that warning to go away first. User memory merge backup overwrite."
 
-_Restoring memory backup_/n
-_No backup version specified. default will be used,_/n
+_Restoring memory backup_  
+_No backup version specified. default will be used._  
 _Backup restored_
 
 And like that, my memories flooded back to me like a torrent of pain.
 
 The trauma control system is doing its job
 
-Every still felt hazy and dreamy as expected, but the memories were unmistakable. 
+Everything still felt hazy and dreamy as expected, but the memories were unmistakable. 
 
 This wasn't the first time I had experienced this.
 
@@ -334,13 +334,13 @@ I pushed Mikay off of me and began franticly looked around trying to find someth
 
 What was I looking for?
 
-I don't know.
+I didn't know.
 
-But I needed to take in my surroundings.
+But I felt an uncontrollable urge to take in my surroundings.
 
-People laying on the ground by the school.
+People were laying on the ground by the school.
 
-The platform empty except for me and Mikay.
+The platform was empty except for me and Mikay.
 
 The air was humid and calm.
 
@@ -372,7 +372,7 @@ I have felt it before.
 
 Those around me being able to see something I can't. 
 
-I don't know where or when it happened, but I knew it happened before.
+I don't know where or when it happened, but I knew it was the work of the trauma control system at work.
 
 How did this happen?
 
@@ -384,10 +384,10 @@ I had to know!
 
 "User locate" I commanded in desperation.
 
-_..._/n
-_..._/n
-_..._/n
-_Error: no reference detected beacon detected_
+_..._  
+_..._  
+_..._  
+_Error: no reference beacon detected_
 
 What, just where the heck am I? 
 
@@ -419,7 +419,7 @@ Was I orbiting a supermassive black hole?
 
 Then how did I escape?
 
-This is a simulation has already been ruled out...
+This being a simulation has already been ruled out...
 
 Maybe a software bug?
 
@@ -449,7 +449,7 @@ I was hoping this was a joke, a prank, that Mikay orchestrated this whole thing,
 
 The reason didn't matter, all that mattered was the truth.
 
-"Ethan's Master Academy" Mikay answered fully to my expectations. 
+"Ethan's Mastery Academy" Mikay answered fully to my expectations. 
 
 "No! I mean WHERE are we?" I snapped back.
 

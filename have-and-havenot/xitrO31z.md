@@ -22,7 +22,9 @@ It wasn't that surprising considering the person on the other end of this commun
 
 There were a few Abilities that I did recognize such as Observe and Investigate.
 
-However, the events that followed felt like they came straight out of my nightmares to the point where I felt my stomach turning and my strength failing.
+I wanted to get a feel for what these abilities were and maybe learn one of the ones I didn't recognize.
+
+But my wishful thinking was cut short as the events that followed felt like they came straight out of my nightmares to the point where I felt my stomach turning and my strength failing.
 
 One by one, people around me fell to the floor unconscious.
 
@@ -58,11 +60,11 @@ My mind flashed back to my earliest days of learning about Abilities and how to 
 
 I would often play with the other kids at the time 
 
-When we got into fights with the older kids, our group would use Influence Extention to fight the older kids.
+When we got into fights with the older kids, my friend group would make use of Influence Extention and sometimes, we'd come out on top.
 
-"letting others use your Sphere of Influence as their own is a very powerful and dangerous tool. Just make sure the person you lend your Influence to is trustworthy." my teacher would often scold after these fights.
+"letting others use your Sphere of Influence as their own is a very powerful but also dangerous tool. Just make sure the person you lend your Influence to is trustworthy." my teacher would often scold after these fights.
 
-I later understood why that was the case but when did I become so careless again?
+I later understood why that was the case, but, when did I become so careless again?
 
 I should have asked who this person was and why this procedure needed to be done. 
 
@@ -88,7 +90,7 @@ I felt something wet running down one of my cheeks.
 
 It's over...
 
-Allover...
+All over...
 
 Again, I stand alone in a sea of corpses.
 
@@ -124,7 +126,7 @@ I quickly rushed over to Phanna's side.
 
 But what I got back was just some groaning sounds and the typical noises Phanna would make to try to get me to go away in the morning.
 
-The way Phanna does this made me feel complicated. 
+The way Phanna responded made me feel complicated. 
 
 It's hard to argue that Phanna isn't fine given the response just now, but the way Phanna is behaving is making things seem too fine.
 
@@ -161,3 +163,7 @@ I could see the discomfort in Phanna's face.
 "Are you alright?!"  I shouted as I quickly grabbed onto Phanna's shoulders.
 
 But the response I got was much less comforting this time around.
+
+## <center>~<center>
+
+<center><a href="./3gQ6l5hb">Next Chapter</a></center>
