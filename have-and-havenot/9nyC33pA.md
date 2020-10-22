@@ -116,7 +116,7 @@ I mean, how does a village even function without names?
 
 As I was pondering this, the summoned spoke up again.
 
-"My universal Identification Code is A244X0Z4305PHAN4"
+"My Universal Identification Code is A244X0Z4305PHAN4"
 
 "A2… What? How?"
 
