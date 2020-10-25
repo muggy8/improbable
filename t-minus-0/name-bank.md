@@ -64,6 +64,7 @@ Quincy
 Sharon
 Noah
 Cassidy
+Jason
 
 ## Used:
 Phanna (isekai'd code: A244X0Z4305PHAN4)
