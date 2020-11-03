@@ -87,3 +87,44 @@ I'm sure I'll eventually find my resolve to try yet another summoning but right 
 "Thanks Ethan" I murmured in response as I turned around and left the school grounds.
 
 ## <center>...</center>
+
+The following days after the exam didn't go by easy.
+
+I tried my best to look for Phanna but, as I expected, they were nowhere to be found.
+
+There's a pretty high chance that Phanna has already left the Mountainpass area.
+
+But judging from how Phanna moved around the school campus on the exam day, Phanna being able to evade my detection is not impossible as well.
+
+The only thing I have left of Phanna's is the strange clothing that they were wearing.
+
+I wasn't exactly sure what to do with them but I had a feeling that if I were to ever meet Phanna again, I should at least return those clothing.
+
+I felt bad that I now held the only thing Phanna has left of their old life before I summoned them.
+
+However, what shattered my spirit the most was the fact that I now have failed two whole summonings.
+
+I didn't know what to do now.
+
+To perform another summoning would mean to permanently give up a portion of my Influence.
+
+Yet continuing my attempts to summon more champions feels like the most likely path to success for me.
+
+But will it really be though?
+
+There's also the chance that I could become stronger and maybe one day face her myself.
+
+Yet there's no telling if that's possible either.
+
+I didn't know what the right choice was and I definitely didn't want to make the wrong one.
+
+I have made too many wrong decisions already and there's no longer any room for more mistakes.
+
+...
+
+Should I maybe just accept this fate that has befallen my family?
+
+Is this karma giving me punishment for the mistakes I have made in my past?
+
+I didn't know. I wanted to know. Even though I know that this isn't something that I could ever know.
+

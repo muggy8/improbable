@@ -38,7 +38,7 @@ But to my surprise, it looks like the summoning ritual had worked normally. Noth
 
 This one's got long pointy ears growing where normal humans would have ears. In fact, these ears are so similar to elf ears that I would have just assumed that I had summoned an elf had it not been for the other set of black fox like ears that seems to blend right into the summoned's shiny black hair.
 
-This is the first time I've ever seen such a strange setup in any humanoid ever. 
+This is the first time I've ever seen such a strange setup in any humanoid ever.
 
 Though if this person is a Chimera, it would totally explain the apparent fox like ears on the body of, what would otherwise have been, a mostly normal looking elf.
 
@@ -268,7 +268,7 @@ I guess the summoning did end in failure.
 
 As far as I know, this is the first time in my knowledge where the summoning ritual called forth someone who's actually unwilling to help.
 
-I even had to permanently give up a portion of my own P-Particles to perform the summoning.
+I even had to permanently give up a portion of my own Influence to perform the summoning.
 
 As I thought this, I could feel my facial expression change to match how I feel.
 
@@ -280,7 +280,7 @@ I really didn't have many options left to begin with and just when I thought the
 
 I'm physically able to perform a few more summoning but is that even worth it at this point?
 
-One more would lower the number of P-Particles I have to the range of just above level 4 and at that point, the only thing I can do is to rely on successfully summoning a champion to save my daughter.
+Just one more summoning would put my Influence at just above level 4 and at that point, the only thing I can do is to rely on successfully summoning a champion to save my daughter.
 
 But given how risky summoning rituals can be, is it even worth it to continue?
 
