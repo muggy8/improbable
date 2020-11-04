@@ -90,19 +90,19 @@ I'm sure I'll eventually find my resolve to try yet another summoning but right 
 
 The following days after the exam didn't go by easy.
 
-I tried my best to look for Phanna but, as I expected, they were nowhere to be found.
+I tried my best to find Phanna but, as I expected, they were nowhere to be found.
 
 There's a pretty high chance that Phanna has already left the Mountainpass area.
 
-But judging from how Phanna moved around the school campus on the exam day, Phanna being able to evade my detection is not impossible as well.
+But judging from how Phanna moved around the school campus on the exam day, Phanna being able to evade my detection is a possibility.
 
 The only thing I have left of Phanna's is the strange clothing that they were wearing.
 
-I wasn't exactly sure what to do with them but I had a feeling that if I were to ever meet Phanna again, I should at least return those clothing.
+I wasn't exactly sure what to do with them but I felt like it was my duty to keep them in decent condition since if I were to ever meet Phanna again, I could at least return those clothing.
 
-I felt bad that I now held the only thing Phanna has left of their old life before I summoned them.
+These clothes were likely the only thing Phanna has left in this world that have a connection to their old life before I summoned them.
 
-However, what shattered my spirit the most was the fact that I now have failed two whole summonings.
+However, what truly shattered my spirit the most was the fact that I now have failed two whole summonings.
 
 I didn't know what to do now.
 
@@ -112,7 +112,7 @@ Yet continuing my attempts to summon more champions feels like the most likely p
 
 But will it really be though?
 
-There's also the chance that I could become stronger and maybe one day face her myself.
+There's also the chance that I could become stronger and maybe one day, I could face her myself.
 
 Yet there's no telling if that's possible either.
 
@@ -127,4 +127,22 @@ Should I maybe just accept this fate that has befallen my family?
 Is this karma giving me punishment for the mistakes I have made in my past?
 
 I didn't know. I wanted to know. Even though I know that this isn't something that I could ever know.
+
+The most logical decision is to just perform one last summon. If that fails then I should probably conserve my Influence and attempt to get stronger to face my daughter one day...
+
+But will I even have the energy or motivation to keep going with that plan after a third failure?
+
+Yet what Phanna said to me in our first conversation echoed in my mind: "What's your plan?"
+
+I didn't know the answer to that question.
+
+Thinking back, Phanna was probably correct.
+
+Without a plan, it makes sense that I can't hope for too much...
+
+Maybe I should summon someone who can help me with a planning out the next steps?
+
+That thought made me feel even more uneasy about the my chances of success.
+
+The more I thought about it, the more it felt like the right choice is just to let accept the fate that has given to my family.
 
