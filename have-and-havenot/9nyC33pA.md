@@ -206,7 +206,7 @@ That's why I decided to continue questioning the current summoned despite me pre
 
 I gave 4 a confused look and quickly looked down at the palm of my hand to run through the scenario.
 
-If the number A was the same as the number 10 then the number 10 under this scenario would be the same as 11 right? That would mean 10 + A would make 1A which is the be the same as 11 + 10 and yah that would indeed make 21.
+If the number A was the same as the number 10 then the number 10 under this scenario would be the same as 11 right? That would mean 10 + A would make 1A which is the same as 11 + 10 and yah that would indeed make 21.
 
 After confirming this, I looked back up.
 
