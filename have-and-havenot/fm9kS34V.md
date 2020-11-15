@@ -98,15 +98,17 @@ But judging from how Phanna moved around the school campus on the exam day, Phan
 
 The only thing I have left of Phanna's is the strange clothing that they were wearing.
 
-I wasn't exactly sure what to do with them but I felt like it was my duty to keep them in decent condition since if I were to ever meet Phanna again, I could at least return those clothing.
+This was the only thing I have left of my second failed summoning.
 
-These clothes were likely the only thing Phanna has left in this world that had a connection to their old life before I summoned them.
+Yet another portion of my influence is now gone,
 
-However, what truly shattered my spirit the most was the fact that I now have failed two whole summonings.
+And all i have left now is this strange clothing that Phanna was wearing.
+
+I wasn't exactly sure what to do with them but they were the only thing I have of Phanna now.
 
 I didn't know what to do now.
 
-To perform another summoning would mean to permanently give up yet another portion of my Influence.
+Do I perform another summoning would mean to permanently give up yet another portion of my Influence.
 
 Yet, continuing to summon champions feels like the most likely path to success.
 
@@ -181,3 +183,72 @@ These thoughts flowed in and out of my mind.
 I was frozen by the decisions ahead.
 
 Yet somewhere in the back of my mind, I knew that my time was finite and I couldn't afford to be indecisive.
+
+I was still unsure of what to do.
+
+But this voice urged me on calling me to act while I still cam.
+
+Eventually, I gave in.
+
+I knew my time is limited, I have to act soon, every day that goes by is a day closer to Hickoy's potential confrontation against the Mastery League.
+
+And then...
+
+I didn't want to think about that.
+
+I have to hurry.
+
+I collected myself and made my way over to Pillow's aquarium.
+
+Pillow was swimming obliviously inside the aquarium as usual but I'd have to fish it out and drain it again.
+
+I felt sorry to have to do this to Pillow once more but at this point, it was all I could do.
+
+Should I call Ethan over first?
+
+But there's no telling how long the ritual will be and he's probably busy with cleaning up the mess at the school right now.
+
+I felt bad but I didn't want to take up his time like that and especially not now.
+
+After placing Pillow into the mini aquarium in Hickory's room. emptied the large aquarium.
+
+I looked inside it and recalled the first time I saw Phanna sleeping inside and how it filled me with hope and unease.
+
+I didn't know what lies ahead but this was what I must do now.
+
+I took a deep breath to calm myself the best I can and began the ritual process.
+
+Using Forgemaster, I created a sharp stick out of rock and stabbed my arm with it,
+
+Sharp pain erupted from where the object stabbed but this wasn't my first time but I do hope it will be my last.
+
+No.
+
+I know it will be my last.
+
+There's no more additional chances after this.
+
+I focused my influence into the blood that now flowed from my arm and I began activating various abilities and inscribing the aquarium walls with my blood.
+
+I felt a numbing sensation in my fingers as the process continued but I pushed on.
+
+Not the first time. I thought to myself.
+
+Once it was all over. I took a step back and covered my bleeding arm with some cloth.
+
+I've seen other cleric's do this to treat this kinds of injuries so I knew it was at least somewhat effective.
+
+I looked towards the aquarium again and wondered what kind of champion would come next.
+
+Hopefully not someone who has a strong accent that I could hardly understand.
+
+That was my final thought as I passed out on the bed inside the room.
+
+## <center>...</center>
+
+Another 2 weeks passed since I started the summoning.
+
+I had been sleeping in what used to be Phanna's room entirely but nothing happened.
+
+Thinking back, Phanna wasn't summoned for 4 or 5 weeks.
+
