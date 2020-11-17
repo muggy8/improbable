@@ -250,5 +250,18 @@ Another 2 weeks passed since I started the summoning.
 
 I had been sleeping in what used to be Phanna's room entirely but nothing happened.
 
-Thinking back, Phanna wasn't summoned for 4 or 5 weeks.
+Thinking back, it took 4 or 5 weeks after I finished the initial prep to finally summon Phanna.
 
+However, I still cant shake the feeling of unease.
+
+After all, this would be my last summoning.
+
+I didn't have any other chances.
+
+Not only that, I don't even know if getting stronger myself is even possible.
+
+I'm way past my prime now.
+
+And even if I wasn't, Getting strong enough to face my daughter is just wishful thinking for most people in their prime.
+
+feelings like these filled each passing day with anxiety.
