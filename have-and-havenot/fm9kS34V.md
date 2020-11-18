@@ -262,6 +262,104 @@ Not only that, I don't even know if getting stronger myself is even possible.
 
 I'm way past my prime now.
 
-And even if I wasn't, Getting strong enough to face my daughter is just wishful thinking for most people in their prime.
+Not only that, Getting strong enough to face my daughter is just wishful thinking for most people, even those who are in their prime.
 
-feelings like these filled each passing day with anxiety.
+Feelings like these filled each passing day with anxiety.
+
+Today was no exception.
+
+But there was something else that increased my unease today.
+
+Since I wanted to watch over the aquarium as often as I possiable, I've been reducing how often I went outside to forage or hunt and only in the area near my home.
+
+I also had to store supplies at home and ate whatever I had on hand.
+
+But today, I noticed that my supplies are running low which meant that I have no choice but to go out and gather resources today.
+
+Today, I would need to build up my food supply at home so I can avoid leaving the aquarium alone for the next few days.
+
+After finishing breakfast, I started packing equipment for hunting and foraging.
+
+There wasn't truely a need for me to carry things like a foraging bag or such since I can craft them with Forgemaster once I get to the foraging location.
+
+However, looking like I'm going on a foraging trip has it's various advantages.
+
+Which is why I am carrying Foraging bags and hunting tools with me. 
+
+After collecting all my hunting tools and foraging bag, I went back to the aquarium room to check if the summoning has progressed much before leaving.
+
+Of course, nothing changed.
+
+Feeling a bit dissapointed, I turned around to leave.
+
+But just as I was about to...
+
+CRASH
+
+What?!
+
+I quickly turned around ready for battle with Strengthen and Quicken activated.
+
+I was able to catch sight of the invader crashing through the roof of the room.
+
+I barely had time to get myself into a fighting stance as my attacker landed on the floor under the newly created hole in the roof.
+
+"I BELIEVED YOU!!! I THOUGHT YOU WERE INNOCENT! AND WHAT DO I FIND? EVIDENCE OF QUANTUM COMMUNICATION RIGHT HERE IN YOUR ROOM! AND RIGHT IN FRONT OF YOU TOO! WHAT DO YOU HAVE TO SAY FOR YOURSELF MIKAY?!"
+
+The voice was unmistakable.
+
+Even though dust and falling debris obscured the speaker, The speaker's identity was obvious.
+
+"P-Phanna?" I stuttered.
+
+"WHO ELSE WHOULD I BE? NOW ANSWER ME! WHAT HAVE YOU DONE? AND WHY?"
+
+I was scared, speechless, confused, anxious...
+
+What did I do to deserve this?
+
+Why me?
+
+What is Phanna takling about?
+
+Is the aquarium ok?
+
+Why now?
+
+All I had were questions, and none of them were answers. 
+
+What do I say?
+
+What do I do?.
+
+I'm pretty sure I can win a fight if it came down to that but I didn't want to damage the aquarium. 
+
+"I... I'm sorry..."
+
+That was the only thing I could say.
+
+As the dust and debris continued to settle, I could start to see Phanna's figure and the reflections of the glass aquarium behind them.
+
+it made me feel a bit better knowing that the aquarium was probably safe.
+
+"I... I am unable to answer your questions." I said knowing full well that that sounded like an invatation for Phanna to attack.
+
+But I have to protect the Aquarium and I was confident in my chances of winning a fight against Phanna. 
+
+But, for some reason, Phanna didn't attack.
+
+Phanna didn't even move towards me.
+
+Instead, Phanna pulled away from me. 
+
+And then... I realized...
+
+Phanna was heading towards the aquarium.
+
+"NO!!" I shouted as I sprited towards Phanna and the aquarium.
+
+I didn't know what Phanna was going to do. 
+
+I didn't know what is going to happen.
+
+But the only thing I had on my mind now, was the aquarium.
