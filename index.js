@@ -2,6 +2,8 @@ let fs = require("fs")
 let marked = require("marked")
 let http = require('http')
 let readFile = promisify(fs.readFile)
+let pathStats = promisify(fs.lstat)
+let readDir = promisify(fs.readdir)
 let url = require("url")
 let htmlTemplate = `
 <html>
@@ -13,6 +15,7 @@ let htmlTemplate = `
 				max-width: 100%;
 				height: auto;
 			}
+			body {background-color: #000; font-family: sans-serif; color: #fff;}
 		</style>
 	</head>
 	<body>uwu</body>
@@ -22,23 +25,45 @@ let htmlTemplate = `
 http.createServer(async function (req, res) {
 	let path = url.parse(req.url).pathname
 	let isMarkdown = false
-	if (/\/([^\/\.]*\.[^\/\.]+)?$/.test(path)){
-		// uwu
-	}
-	else{
-		path += ".md"
+	
+	if (/\/([^\/\.]*\.md)$/){
 		isMarkdown = true
+	}
+	else if (/\/([^\/\.]*\.[^\/\.]+)?$/.test(path)){
+		// has file extention and isn't directory
 	}
 	
 	try{
-		let contents = await readFile(__dirname + path, "utf-8")
-		if (isMarkdown){
-			contents = marked(contents)
-			contents = htmlTemplate.replace("uwu", contents)
-		}
+		let stats = await pathStats(__dirname + path)
 		
-		res.writeHead(200)
-		res.write(contents)
+		if (stats.isDirectory()){
+			
+			let directoryItems = (await readDir(__dirname + path)).map(async function(subPath){
+				let maybePath = __dirname + path + "/" + subPath
+				let stats = await pathStats(maybePath)
+				return stats.isFile() 
+					? `<li><a href="./${subPath}">${subPath}</a></li>`
+					: `<li><a href="./${subPath}/">${subPath}/</a></li>`
+			})
+			
+			directoryItems = (await Promise.all(directoryItems)).join("")
+			
+			let ele = `<ul>${directoryItems}</ul>`
+			let contents = htmlTemplate.replace("uwu", ele)
+			
+			res.writeHead(200)
+			res.write(contents)
+		}
+		else{
+			let contents = await readFile(__dirname + path, "utf-8")
+			if (isMarkdown){
+				contents = marked(contents)
+				contents = htmlTemplate.replace("uwu", contents)
+			}
+			
+			res.writeHead(200)
+			res.write(contents)
+		}
 	}
 	catch(uwu){
 		res.writeHead(404, {'Content-Type': 'text/plain'})
