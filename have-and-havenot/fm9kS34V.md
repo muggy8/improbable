@@ -18,7 +18,7 @@ Where did it go wrong?
 
 What did I do wrong?
 
-I wanted to go home and forget all this.
+I wanted to go home and forget all about this.
 
 I wanted to give up.
 
@@ -26,7 +26,7 @@ What's the point in trying if the odds of success are so small.
 
 Phanna was my second summon and I can say for sure that this is probably the end of our cooperation.
 
-I could summon 2 maybe 3 more, but would that even be worth it?
+I could summon 2, maybe 3 more champions, but would that even be worth it?
 
 What should I do...
 
@@ -36,9 +36,9 @@ I had no idea how much time had passed but Ethan's panicked voice behind me snap
 
 I turned my head towards the school to find a panicked Ethan looking around.
 
-This brought little relief to my heart seeing him back on his feet.
+This brought a little relief to my heart seeing him back on his feet.
 
-He seemed to have noticed me just as fast as well and quickly came to my side.
+He seemed to have noticed me just as fast and quickly came to my side.
 
 "Thank goodness you're alright Master Mikay!" he exclaimed.
 
@@ -212,21 +212,23 @@ But there's no telling how long the ritual will be and he's probably busy with c
 
 I felt bad but I didn't want to take up his time like that and especially not now.
 
-After placing Pillow into the mini aquarium in Hickory's room. emptied the large aquarium.
+After placing Pillow into the mini aquarium in Hickory's room, I emptied the large aquarium.
 
 I looked inside it and recalled the first time I saw Phanna sleeping inside and how it filled me with hope and unease.
 
-I didn't know what lies ahead but this was what I must do now.
+I had no idea what lies ahead but this was what I must do now.
 
-I took a deep breath to calm myself the best I can and began the ritual process.
+I took a deep breath to calm myself the best I can and began the ritual process once more.
 
-Using Forgemaster, I created a sharp stick out of rock and stabbed my arm with it,
+Using Forgemaster, I created a sharp stick out of a chunk of rock and stabbed my arm with it,
 
-A sharp pain erupted from where the object stabbed but this wasn't my first time but I do hope it will be my last.
+A sharp pain erupted from where the object stabbed but this wasn't my first time experiancing this feeling. 
+
+But I did hope it will be my last.
 
 No.
 
-I know it will be my last.
+I know this is my last time experiancing it.
 
 There are no more additional chances after this.
 
@@ -250,7 +252,7 @@ That was my final thought as I passed out on the bed inside the room.
 
 Another 2 weeks passed since I started the summoning.
 
-I had been sleeping in what used to be Phanna's room entirely but nothing happened.
+I had been sleeping in what used to be Phanna's room all these past day but nothing happened.
 
 Thinking back, it took 4 or 5 weeks after I finished the initial prep to finally summon Phanna.
 
@@ -276,9 +278,9 @@ Since I wanted to watch over the aquarium as often as possible, I've been reduci
 
 I also had to store supplies at home and ate whatever I had on hand.
 
-But today, I noticed that my supplies are running low which meant that I have no choice but to go out and gather resources today.
+But, I noticed that my supplies are running low which meant that I have no choice but to go out and gather resources today.
 
-Today, I would need to build up my food supply at home so I can avoid leaving the aquarium alone for the next few days.
+I would need to quickly build up my food supply at home so I can watch over the aquarium in the next few days.
 
 After finishing breakfast, I started packing equipment for hunting and foraging.
 
@@ -340,7 +342,7 @@ I'm pretty sure I can win a fight if it came down to that but I didn't want to d
 
 That was the only thing I could say.
 
-As the dust and debris continued to settle, I could start to see Phanna's figure and the reflections of the glass aquarium behind them.
+As the dust and debris continued to settle, I could start to make out Phanna's figure and the reflections of the glass aquarium behind them.
 
 it made me feel a bit better knowing that the aquarium was probably safe.
 
@@ -362,6 +364,6 @@ Phanna was heading towards the aquarium.
 
 I didn't know what Phanna was going to do. 
 
-I didn't know what is going to happen.
+I didn't know what was going to happen.
 
 But the only thing I had on my mind now, was the aquarium.
