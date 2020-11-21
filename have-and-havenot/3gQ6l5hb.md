@@ -474,3 +474,6 @@ I let out a sigh as I stood up.
 "Leaving. I want to be somewhere, anywhere, as long as it's not here. I need some time and space to think." I answered as I engaged my leg tendons and took off as soon as I finished speaking.
 
 ## <center>~<center>
+
+<center><a href="./fm9kS34V">Next Chapter</a></center>
+
