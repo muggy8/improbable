@@ -24,6 +24,7 @@ let htmlTemplate = `
 
 http.createServer(async function (req, res) {
 	let path = url.parse(req.url).pathname
+	console.log(path)
 	let isMarkdown = false
 	
 	if (/\/([^\/\.]*\.md)$/){

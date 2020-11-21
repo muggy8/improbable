@@ -14,7 +14,7 @@ In front of me was my only hope for salvation fleeing from my sight.
 
 I collapsed onto the floor unsure of anything anymore.
 
-Were did it go wrong?
+Where did it go wrong?
 
 What did I do wrong?
 
@@ -22,7 +22,7 @@ I wanted to go home and forget all this.
 
 I wanted to give up.
 
-What's the point in trying if the odds of success is so small.
+What's the point in trying if the odds of success are so small.
 
 Phanna was my second summon and I can say for sure that this is probably the end of our cooperation.
 
@@ -50,15 +50,15 @@ He seemed to have noticed me just as fast as well and quickly came to my side.
 
 Before I finished I remembered that everyone's memories were altered.
 
-"O-Oh right. Ah ha no problem. Just... um... doing my job..."
+"O-Oh right. Ah ha, no problem. Just... um... doing my job..."
 
 "No really! It's all thanks to you. There were 3 Protégé level attackers among the bandits! We would have suffered much more casualties if it wasn't for you!"
 
-"No no, It's really not that big of a deal..." I pleaded
+"No no, It's not that big of a deal..." I pleaded
 
 "Modest as always I see! Take some credit Master Mikay! You are invaluable to our village!" Ethan laughed.
 
-But I didn't really feel the way he did.
+But I didn't feel the way he did.
 
 After all, I had just lost someone incredibly important to me.
 
@@ -84,13 +84,13 @@ I'm sure I'll eventually find my resolve to try yet another summoning but right 
 
 "I... I understand Master Mikay... I'll take care of things from here. Please get some rest and take care of yourself." Ethan answered.
 
-"Thanks Ethan" I murmured in response as I turned around and left the school grounds.
+"Thanks, Ethan" I murmured in response as I turned around and left the school grounds.
 
 ## <center>...</center>
 
 The following days after the exam didn't go by easy.
 
-I tried my best to find Phanna but, as I expected, they were no where to be found.
+I tried my best to find Phanna but, as I expected, they were nowhere to be found.
 
 There's a pretty high chance that Phanna has already left the Mountainpass area.
 
@@ -102,13 +102,15 @@ This was the only thing I have left of my second failed summoning.
 
 Yet another portion of my influence is now gone,
 
-And all i have left now is this strange clothing that Phanna was wearing.
+And all I have left now is this strange clothing that Phanna was wearing.
 
 I wasn't exactly sure what to do with them but they were the only thing I have of Phanna now.
 
 I didn't know what to do now.
 
-Do I perform another summoning would mean to permanently give up yet another portion of my Influence.
+Do I perform another summoning?
+
+ But that would mean I have to permanently give up yet another portion of my Influence.
 
 Yet, continuing to summon champions feels like the most likely path to success.
 
@@ -142,7 +144,7 @@ Thinking back, Phanna was probably correct.
 
 Without a plan, it makes sense that I can't hope for too much...
 
-Maybe I should summon someone who can help me with a planning out the next steps?
+Maybe I should summon someone who can help me with planning out the next steps?
 
 But that thought made me feel even more uneasy about my chances of success.
 
@@ -160,7 +162,7 @@ The only thing I could remember was the night I lost everything.
 
 But looking back, the right choice was obvious. I should have fled.
 
-But i didn't.
+But I didn't.
 
 I gave up on that night.
 
@@ -176,7 +178,7 @@ Does that mean fate itself wants me to fight against what's yet to happen?
 
 Would that mean the right decision is to make the most logical decision?
 
-What If I fail again?
+What if I fail again?
 
 These thoughts flowed in and out of my mind.
 
@@ -190,7 +192,7 @@ But this voice urged me on calling me to act while I still cam.
 
 Eventually, I gave in.
 
-I knew my time is limited, I have to act soon, every day that goes by is a day closer to Hickoy's potential confrontation against the Mastery League.
+I knew my time is limited, I have to act soon, every day that goes by is a day closer to Hickory's potential confrontation against the Mastery League.
 
 And then...
 
@@ -220,15 +222,15 @@ I took a deep breath to calm myself the best I can and began the ritual process.
 
 Using Forgemaster, I created a sharp stick out of rock and stabbed my arm with it,
 
-Sharp pain erupted from where the object stabbed but this wasn't my first time but I do hope it will be my last.
+A sharp pain erupted from where the object stabbed but this wasn't my first time but I do hope it will be my last.
 
 No.
 
 I know it will be my last.
 
-There's no more additional chances after this.
+There are no more additional chances after this.
 
-I focused my influence into the blood that now flowed from my arm and I began activating various abilities and inscribing the aquarium walls with my blood.
+I focused on moving my influence into the blood that now flowed from my arm and I began activating various abilities and inscribing the aquarium walls with my blood.
 
 I felt a numbing sensation in my fingers as the process continued but I pushed on.
 
@@ -236,7 +238,7 @@ Not the first time. I thought to myself.
 
 Once it was all over. I took a step back and covered my bleeding arm with some cloth.
 
-I've seen other cleric's do this to treat this kinds of injuries so I knew it was at least somewhat effective.
+I've seen other clerics do this to treat these kinds of injuries so I knew it was at least somewhat effective.
 
 I looked towards the aquarium again and wondered what kind of champion would come next.
 
@@ -252,7 +254,7 @@ I had been sleeping in what used to be Phanna's room entirely but nothing happen
 
 Thinking back, it took 4 or 5 weeks after I finished the initial prep to finally summon Phanna.
 
-However, I still cant shake the feeling of unease.
+However, I still can't shake the feeling of unease.
 
 After all, this would be my last summoning.
 
@@ -270,7 +272,7 @@ Today was no exception.
 
 But there was something else that increased my unease today.
 
-Since I wanted to watch over the aquarium as often as I possiable, I've been reducing how often I went outside to forage or hunt and only in the area near my home.
+Since I wanted to watch over the aquarium as often as possible, I've been reducing how often I went outside to forage or hunt and only in the area near my home.
 
 I also had to store supplies at home and ate whatever I had on hand.
 
@@ -280,17 +282,17 @@ Today, I would need to build up my food supply at home so I can avoid leaving th
 
 After finishing breakfast, I started packing equipment for hunting and foraging.
 
-There wasn't truely a need for me to carry things like a foraging bag or such since I can craft them with Forgemaster once I get to the foraging location.
+There wasn't truly a need for me to carry things like a foraging bag or such since I can craft them with Forgemaster once I get to the foraging location.
 
-However, looking like I'm going on a foraging trip has it's various advantages.
+However, looking like I'm going on a foraging trip has its various advantages.
 
-Which is why I am carrying Foraging bags and hunting tools with me. 
+This is why I am carrying Foraging bags and hunting tools with me. 
 
 After collecting all my hunting tools and foraging bag, I went back to the aquarium room to check if the summoning has progressed much before leaving.
 
 Of course, nothing changed.
 
-Feeling a bit dissapointed, I turned around to leave.
+Feeling a bit disappointed, I turned around to leave.
 
 But just as I was about to...
 
@@ -312,7 +314,7 @@ Even though dust and falling debris obscured the speaker, The speaker's identity
 
 "P-Phanna?" I stuttered.
 
-"WHO ELSE WHOULD I BE? NOW ANSWER ME! WHAT HAVE YOU DONE? AND WHY?"
+"WHO ELSE WOULD I BE? NOW ANSWER ME! WHAT HAVE YOU DONE? AND WHY?"
 
 I was scared, speechless, confused, anxious...
 
@@ -320,7 +322,7 @@ What did I do to deserve this?
 
 Why me?
 
-What is Phanna takling about?
+What is Phanna talking about?
 
 Is the aquarium ok?
 
@@ -342,7 +344,7 @@ As the dust and debris continued to settle, I could start to see Phanna's figure
 
 it made me feel a bit better knowing that the aquarium was probably safe.
 
-"I... I am unable to answer your questions." I said knowing full well that that sounded like an invatation for Phanna to attack.
+"I... I am unable to answer your questions." I said knowing full well that that sounded like an invitation for Phanna to attack.
 
 But I have to protect the Aquarium and I was confident in my chances of winning a fight against Phanna. 
 
@@ -356,7 +358,7 @@ And then... I realized...
 
 Phanna was heading towards the aquarium.
 
-"NO!!" I shouted as I sprited towards Phanna and the aquarium.
+"NO!!" I shouted as I sprinted towards Phanna and the aquarium.
 
 I didn't know what Phanna was going to do. 
 
