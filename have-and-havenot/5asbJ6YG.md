@@ -208,5 +208,84 @@ The recoil from the impact echoed thorugh my body and I could feel pain explode 
 
 I caughed up some blood but I didn't care.
 
-The next striked will be it I'm sure.
+The next striked will be the last I'm sure.
 
+With all my might, I redirected my body's motion towards the way Phanna flew and by the time my eyes caught up with him, he was somehow standing on his feet again.
+
+I didn't know how but I there's no stopping now.
+
+I let my body flow though the motion as I my heel approached Phanna's neck.
+
+The entire motion caused a burning sensation in my chest but that was a small price to pay for freedom.
+
+And then, finally, impact.
+
+My kick laned.
+
+The recoil reverbrated across my body again.
+
+My chest knew it all too well.
+
+But I payed it no attention.
+
+But the unthinkinkable happened.
+
+Not only did Phanna withstand the entire kick, he has also managed to grab a hold of my leg.
+
+"huh?"
+
+Before I could fully comprehend what was happening, my body was already flying though the air.
+
+I felt blood rushing to my head and then everything went black.
+
+...
+
+...
+
+...
+
+"M\*lo\*y! \*\*l\*dy!!"
+
+Ahh someone's calling me...
+
+I should answer...
+
+But I coudln't.
+
+I tried to call out with everything I had... but nothing came out.
+
+Ahh... what's happening...
+
+I wanted to see but my eyes wont open.
+
+My eye lids felt heavy, it was as if they were frozen shut.
+
+What's happening...
+
+Ahh whatever...
+
+...
+
+...
+
+...
+
+When I awaken again, I was in a bed.
+
+Ethan was in the room with me. and so was Mikay and Phanna.
+
+Sleeping in a room was an unusual feeling but I didn't dislike it.
+
+"Whj-what happened...?" I asked meekly
+
+"You triggered my self defense system" Phanna answered.
+
+But that was the only thing anyone said for a while.
+
+"You were lucky that Master Mikay got to you in time or else you would have been dead by now!"
+
+Ethan was the next to speek up after an ucomfortable pause.
+
+What did I do to deseve such a sorry fate I thought as tears ran down my cheeks.
+
+"I'm not mad at you but, why did you want me to die?" Phanna asked.
