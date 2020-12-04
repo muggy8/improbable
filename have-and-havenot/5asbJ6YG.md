@@ -272,20 +272,48 @@ Ahh whatever...
 
 When I awaken again, I was in a bed.
 
-Ethan was in the room with me. and so was Mikay and Phanna.
+Ethan was in the room with me. and so was Mikay, Phanna and Amanda.
 
 Sleeping in a room was an unusual feeling but I didn't dislike it.
 
-"Whj-what happened...?" I asked meekly
+"Wh-what happened...?" I asked meekly
 
 "You triggered my self defense system" Phanna answered.
 
-But that was the only thing anyone said for a while.
+An uncomfortable pause then came after Phanna's comment.
 
-"You were lucky that Master Mikay got to you in time or else you would have been dead by now!"
+"Oh..." I exhailed unsure of what to make of Phanna's comment.
 
-Ethan was the next to speek up after an ucomfortable pause.
+"You were lucky that Master Mikay got to you in time or else you would have been dead by now!" said Ethan after an ucomfortable pause.
 
-What did I do to deseve such a sorry fate I thought as tears ran down my cheeks.
+What did I do to deseve such a sorry fate I thought as I felt tears ran down my cheeks.
 
 "I'm not mad at you but, why did you want me to die?" Phanna asked.
+
+"I... I..." I couldn't answer.
+
+I didn't want to answer.
+
+The sharp pain in my chest I felt before was now replaced with a dull pain in my chest.
+
+Tears were now flowing like a river down my face as I turned my face away from Phanna and the others.
+
+"I... I'm sorry... I have nothing to say... I'm sorry... I'm sorry..."
+
+I kept repeating "I'm sorry" over and over and over.
+
+I didn't know what to say, no, I truely don't have anything to say.
+
+"If you want to kill me, you have 3 seconds before my self defense system fully kicks in." 
+
+"Phanna!" Mikay interjected but Phanna didn't seem to care and continue.
+
+"The self defense system is loaded dynamically which means I get progressively stronger till the 3 seconds mark. Your best bet is to try to kill me before I realize what's happening, though that's easier said than done since you'd either have to hack my computers or completely vaporize my skeletal structure."
+
+"W-Why are you telling me all this?"
+
+"Remember when you asked me what I wanted in the future... well what I truely wanted was to stop existing."
+
+I was in shock. 
+
+"W-Why!?" was the only thing I could say.
