@@ -272,11 +272,11 @@ Ahh whatever...
 
 When I awaken again, I was in a bed.
 
-Ethan was in the room with me. and so was Mikay, Phanna and Amanda.
+Ethan was in the room with me. and so was Mikay, Phanna and also...
 
-Sleeping in a room was an unusual feeling but I didn't dislike it.
+"Oh thank god you're alright Melody!!" Amanda exclaimed holding my hand with tears in her eyes.
 
-"Wh-what happened...?" I asked meekly
+"Wh-what happened...?" I asked meekly.
 
 "You triggered my self defense system" Phanna answered.
 
@@ -286,7 +286,7 @@ An uncomfortable pause then came after Phanna's comment.
 
 "You were lucky that Master Mikay got to you in time or else you would have been dead by now!" said Ethan after an ucomfortable pause.
 
-What did I do to deseve such a sorry fate I thought as I felt tears ran down my cheeks.
+What did I do to deseve such a sorry fate I thought as I felt tears ran down my cheeks as well.
 
 "I'm not mad at you but, why did you want me to die?" Phanna asked.
 
@@ -294,7 +294,7 @@ What did I do to deseve such a sorry fate I thought as I felt tears ran down my 
 
 I didn't want to answer.
 
-The sharp pain in my chest I felt before was now replaced with a dull pain in my chest.
+The sharp pain in my chest I felt before was now replaced with a dull ache in my chest.
 
 Tears were now flowing like a river down my face as I turned my face away from Phanna and the others.
 
@@ -306,14 +306,103 @@ I didn't know what to say, no, I truely don't have anything to say.
 
 "If you want to kill me, you have 3 seconds before my self defense system fully kicks in." 
 
-"Phanna!" Mikay interjected but Phanna didn't seem to care and continue.
+"Phanna!?" Mikay interjected but Phanna didn't seem to care and continue.
 
-"The self defense system is loaded dynamically which means I get progressively stronger till the 3 seconds mark. Your best bet is to try to kill me before I realize what's happening, though that's easier said than done since you'd either have to hack my computers or completely vaporize my skeletal structure."
+"The self defense system is loaded dynamically which means I get progressively stronger till the 3 seconds mark. Your best bet is to try to kill me before I realize what's happening, though that's easier said than done since you'd either have to disable my computer systems. In the absence of hacking capabilities, completely vaporize my spinal column is likely the only way to achieve that."
 
 "W-Why are you telling me all this?"
 
 "Remember when you asked me what I wanted in the future... well what I truely wanted was to stop existing."
 
-I was in shock. 
+I was in shock.
+
+no, not just me, Amanda as well.
 
 "W-Why!?" was the only thing I could say.
+
+"Because... there's nothing left for me to live for."
+
+I didn't know what to say.
+
+Phanna was the last person I'd expect to hear this from. 
+
+Yet I can tell that Phanna was completely serious based on the tone in his voice.
+
+Somehow, Mikay and Ethan didn't seem too surprised. 
+
+I guess this is just the difference between Masters and us nobodies.
+
+But just as I thought that, Mikay spoke up in a way which completely shattered that belief.
+
+"Phanna, I thought we agreed that you'd try to forget that..." Mikay said indicating he already knew about Phanna's wishes.
+
+"And then what? I'm already trapped on this prison Planet."
+
+"Prison? But no one is locking you up, you can go wherever you want" 
+
+Phanna sighed and gave a dissapointed explanation. 
+
+"What I mean is this whole world is a prison for me. If I wanted to go to visit the sun, I can't. if I wanted to visit the moon, I can't. If I wanted to go home, I can't. do you understand now?"
+
+Phanna's strange declration made very little sense to me but somehow, both Ethan and Mikay seemed to have understood something from Phanna's comments and fell silent. 
+
+"I need some space to myself to think for a bit." Phanna declared before leaving the room.
+
+An uncomfortable silence once again filled the room as I closed my eyes in confusion, disbelief and dissapointment.
+
+"Dear champion, I am in dire nead of assistance to rescue my daughter from her fate. I know it may sound strange anl ufare of me to ask but I desperately need your help. Will you be willing to abandon the life you have now to assist me in this quest?" Mikay asked.
+
+The wording was strange and so was the tone that Mikay spoke in.
+
+I had already considered mylife over to begin with so I guess I wouldn't be abandoning much now anyways.
+
+I took a small breath and answered "Sure."
+
+"Thank you." Mikay answered back.
+
+Silence once again returned to the room but that didn't last long.
+
+"I... I'm sorry..." Mikay said once again.
+
+I wasn't sure what Mikay was sorry about but this time, his voice sounded further away, as if he was in another room.
+
+That's when I noticed, Amanda was no longer holding my hand and the soft bed I was in was now a strangely uncomfortable hard surface.
+
+I lazily opend my eyes again as Mikay spoke again.
+
+"I... I am unable to answer your questions."
+
+To my horror, I was now in a glass box of some kind and just beyond the glass box, was dust and falling debis.
+
+A figure walked towards be with another further away...
+
+"NO!!" shouted one of them in the same voice as Mikay's.
+
+Panic began to set in.
+
+"W-What's happening!?"
+
+I tried to move but I could barely get any of my limbs to move.
+
+What was happening.
+
+I was fearing for my life.
+
+But then, a thought came over me.
+
+I guess this is my karma punishment.
+
+Ready to accept whatever fate has befallen me, I reaxed myself and looked on at the 2 approaching figures as they stepped close enough to be seen...
+
+"M-Melody??!" 
+
+The one who called my name was none other than Mikay, or at least someone who looked like Mikay, sounded like Mikay and had someone who looked exactly like Phanna next to him. 
+
+"H-How" the Phanna lookalike said in desbelief with a palm held up to his head indicating some sort of headache.
+
+Nothing about this scene made sense to me but one thing was for clear, these Phanna and Mikay lookalikes were completely different from the Phanna and Mikay I knew.
+
+"H-hello..." I said in a frightened tone.
+
+"Just what in the world is happening here?!" Shouted Phanna in what sounded like a mix of anger, confusion and disbelief.
+
