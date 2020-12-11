@@ -369,3 +369,6 @@ I didn't know what was going to happen.
 But the only thing I had on my mind now, was the aquarium.
 
 ## <center>~<center>
+
+<center><a href="./5asbJ6YG">Next Chapter</a></center>
+
