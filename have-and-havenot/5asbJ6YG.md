@@ -1,4 +1,4 @@
-# Summoning
+# Disappointment
 
 "Good work to our round 5 contestants, now, would numbers 1, 4, 5 and 9 please come up," called Ethan.
 
@@ -6,7 +6,7 @@ Against my body's request, I stood up and made my way to Ethan in agony.
 
 I could hear Amanda's disappointment as I stood up and left the benches.
 
-At this point, this feeling was all too familiar.
+This feeling was all too familiar to me.
 
 I tried my best but my best was never enough. 
 
@@ -16,7 +16,7 @@ The sharp pain in my chest radiated but at this point, my mind was elsewhere, oc
 
 All I've ever been was a waste of resources.
 
-I was never able to produce and results no matter how hard I tried.
+I was never able to produce any results no matter how hard I tried.
 
 Even this exam, I didn't even deserve to be here.
 
@@ -28,7 +28,7 @@ He gave me a concerned look and pointed to the closest platform.
 
 "I won't stop you but do try to take care of yourself ok?" 
 
-I weakly nodded back to him and made my way away from him.
+I weakly nodded back to him and made my way to the platform he pointed to.
 
 What's left to take care of? I thought to myself.
 
@@ -36,7 +36,7 @@ If I got accepted into the school of Mastery and worked hard, I'd be able to bec
 
 Then I'd be appreciated, valued, and I'd be looked at as more than just some burden.
 
-Yet deep down, I knew that all that was just wishful thinking.
+Yet deep down, I knew that that thought was just my wishful thinking.
 
 This whole exam thing was over for me before it even began.
 
@@ -50,7 +50,7 @@ Soon enough, my opponent for this round was before me climbing onto the stage.
 
 He was the strange half-elf boy named Phanna.
 
-He doesn't seem to use Abilities at all yet he is somehow able to fight on even footing against Amanda. 
+He doesn't seem to use Abilities at all, yet, he is somehow able to fight on even footing against Amanda. 
 
 I felt like there was a world of difference between us.
 
@@ -60,11 +60,11 @@ And then, there was me, a total failure who can't even keep up with basic field 
 
 I was jealous, why can't I be like Phanna, why am I such a failure, why am I even here...
 
-"Begin when ready," called Ethan after Phanna gotten onto the platform. 
+"Begin when ready," called Ethan after Phanna had gotten onto the platform. 
 
 "Mr. Phanna, I want to chat with you for a bit before we start," I asked firmly but softly.
 
-Phanna's reacted with a bit of surprise at my question but he quickly replied.
+Phanna reacted with a bit of surprise at my question but he quickly replied.
 
 "Oh perfect, I wanted to chat too. What do you want to talk about?" 
 
@@ -76,7 +76,7 @@ I was a total failure.
 
 Phanna was the exact opposite.
 
-Yet here I am, using Phanna as a tool for finding my own escape from my own existence. 
+Yet here I am, using Phanna as a tool to find an escape from my own existence. 
 
 The least I can do is to get to know him before we start this.
 
@@ -136,7 +136,7 @@ That sounded like crazy talk to me.
 
 "Because of that, 2 of my dearest friends died... Friends closer than family... and I lost them both..."
 
-Phanan's words were shaky.
+Phanna's words were shaky.
 
 Despite Phanna's odd answer, I could feel the emotions in his words.
 
@@ -156,7 +156,7 @@ Yet here I am planning to bring an end to both of us.
 
 W-why was Phanna asking me of this?
 
-"I guess telling you is fine... This exam is me trying my best to become the person I should be." I said bitterly.
+"I guess telling you is fine... This exam was me trying my best to become the person I wishd I had been." I said bitterly.
 
 Was...
 
@@ -164,9 +164,7 @@ That's no longer what this exam is for me anymore.
 
 "I've been trying my hardest for all my life and coming up short every time. I thought if I just tried a little harder, I'd be less of a burden to those around me."
 
-The only reason I even exist today is because my tribe didn't want to get rid of me in fear of Karma related reasons.
-
-I'm sure of it.
+The only reason I even exist today is because my tribe didn't want to get rid of me in fear of Karma related reasons I'm sure.
 
 I knew this and they knew that I knew.
 
@@ -186,7 +184,7 @@ As if you would. I thought to myself.
 
 You're perfect in every way, and I'm the exact opposite.
 
-Phanan took up a strange fighting stance and I did too.
+Phanna took up a strange fighting stance and I did too.
 
 The sharp pain in my chest was still there and yet I ignored it.
 
@@ -210,7 +208,7 @@ The recoil from the impact echoed through my body and I could feel pain explode 
 
 I coughed up some blood but I didn't care.
 
-The next struck will be the last I'm sure.
+The next strike will be the last I'm sure.
 
 With all my might, I redirected my body's motion towards the way Phanna flew and by the time my eyes caught up with him, he was somehow standing on his feet again.
 
@@ -222,7 +220,7 @@ The entire motion caused a burning sensation in my chest but that was a small pr
 
 And then, finally, impact.
 
-My kick laned.
+My kick landed.
 
 The recoil reverberated across my body again.
 
@@ -230,9 +228,9 @@ My chest knew it all too well.
 
 But I paid it no attention.
 
-But the unthinkable happened.
+Yet somehow, the unthinkable happened.
 
-Not only did Phanna withstand the entire kick, but he has also managed to grab a hold of my leg.
+Not only did Phanna withstand the entire kick, but he had also managed to grab a hold of my leg.
 
 "huh?"
 
@@ -272,7 +270,7 @@ Ahh, whatever...
 
 ...
 
-When I awaken again, I was in a bed.
+When I awakened again, I was in a bed.
 
 Ethan was in the room with me. and so was Mikay, Phanna and also...
 
@@ -296,7 +294,9 @@ What did I do to deserve such a sorry fate I thought as I felt tears ran down my
 
 I didn't want to answer.
 
-The sharp pain in my chest I felt before was now replaced with a dull ache in my chest.
+The sharp pain in my chest I felt during the exam was now gone.
+
+In its place, however, was the dull ache of regret and remorse. 
 
 Tears were now flowing like a river down my face as I turned my face away from Phanna and the others.
 
@@ -308,9 +308,9 @@ I didn't know what to say, no, I truly don't have anything to say.
 
 "If you want to kill me, you have 3 seconds before my self-defence system fully kicks in." 
 
-"Phanna!?" Mikay interjected but Phanna didn't seem to care and continue.
+"Phanna!?" Mikay interjected but Phanna didn't seem to care and continued.
 
-"The self-defence system is loaded dynamically which means I get progressively stronger till the 3 seconds mark. Your best bet is to try to kill me before I realize what's happening, though that's easier said than done since you'd either have to disable my computer systems. In the absence of hacking capabilities, completely vaporize my spinal column is likely the only way to achieve that."
+"My self-defence system is loaded dynamically which means I get progressively stronger till the 3 seconds mark. Your best bet is to try to kill me before I realize what's happening, though that's easier said than done since you'd have to disable my computer systems. In the absence of hacking capabilities, complete vaporization of my spinal column is likely the only way to achieve that."
 
 "W-Why are you telling me all this?"
 
@@ -338,13 +338,13 @@ But just as I thought that, Mikay spoke up in a way that completely shattered th
 
 "Phanna, I thought we agreed that you'd try to forget that..." Mikay said indicating he already knew about Phanna's wishes.
 
-"And then what? I'm already trapped on this prison planet."
+"And then what? I'm already trapped on this prison planet and I doubt anyone on this world is capable of actually killing me."
 
 "Prison? But no one is locking you up, you can go wherever you want" 
 
-Phanna sighed and gave a disappointing explanation. 
+Phanna sighed and gave us a disappointed explanation. 
 
-"What I mean is this whole world is a prison for me. If I wanted to go to visit the sun, I can't. if I wanted to visit the moon, I can't. If I wanted to go home, I can't. do you understand now?"
+"What I mean is this whole world is a prison for me. If I wanted to go and visit the sun, I can't. If I wanted to visit the moon, I can't. If I wanted to go home, I can't. The least I can do is to try to improve my odds of getting murdered. do you understand now?"
 
 Phanna's strange declaration made very little sense to me but somehow, both Ethan and Mikay seemed to have understood something from Phanna's comments and fell silent. 
 
@@ -356,7 +356,7 @@ An uncomfortable silence once again filled the room as I closed my eyes in confu
 
 The wording was strange and so was the tone that Mikay spoke in.
 
-I had already considered mylife over to begin with so I guess I wouldn't be abandoning much now anyway.
+I had already considered my life over to begin with so I guess I wouldn't be abandoning much now anyway.
 
 I took a small breath and answered "Sure."
 
@@ -370,7 +370,7 @@ I wasn't sure what Mikay was sorry about but this time, his voice sounded furthe
 
 That's when I noticed, Amanda was no longer holding my hand and the soft bed I was in was now a strangely uncomfortable hard surface.
 
-I lazily opened my eyes again as Mikay spoke again.
+I lazily opened my eyes again as Mikay spoke once more.
 
 "I... I am unable to answer your questions."
 
