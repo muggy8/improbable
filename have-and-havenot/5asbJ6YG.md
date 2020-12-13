@@ -296,7 +296,7 @@ I didn't want to answer.
 
 The sharp pain in my chest I felt during the exam was now gone.
 
-In its place, however, was the dull ache of regret and remorse. 
+In its place, however, was the dull ache of regret and dissapointment. 
 
 Tears were now flowing like a river down my face as I turned my face away from Phanna and the others.
 
