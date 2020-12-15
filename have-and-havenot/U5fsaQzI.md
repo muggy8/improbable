@@ -1,4 +1,4 @@
-# What's done is done
+# Another
 
 Melody, the meek elf girl who Phanna killed during the Ethan's school's entrance exam, was looking at us with confusion and terror from within the aquarium.
 
@@ -14,7 +14,7 @@ Don't tell me...
 
 "I'm not lying!"
 
-"How do you expect me to believe that? First I find you performing Quantum Communication and now I see you reviving the dead! How can you be so unethical?!" Phanna yelled.
+"How do you expect me to believe that? First I find you performing Quantum Communication and now I see you reanimating the dead! How can you be so unethical?!" Phanna yelled.
 
 "Unethical? Me? Do you even know what you're talking about?"
 
@@ -68,6 +68,47 @@ Melody quivered in fear at the sight of our expressions but she couldn't pull he
 
 "I'm sorry..." Phanna finally spoke before slowly walking to the bed and sitting down.
 
-The dust and debris from Phanna's entrance has largely settled by now but the bed that Phanna was sitting on now has turned into a complete mess.
+Phanna must have realized that the stuff that Melody just spoke was something that never happened, at least in front of us the way that Melody had described.
 
-"I... I'm sorry too. The two of us has been through alot. Don't worry we wont hurt you" I said turning back to face Melody.
+I wasn't too surprised by this but Phanna seemed to find this situation extremely uncomfortable.
+
+"I'm sorry Melody. The two of us has been through alot. Don't worry we wont hurt you" I said turning back to face Melody.
+
+Melody gave me a meek nod and but she didn't seem to relax at all.
+
+Wanting to show the sincerity behind my statement I turned around and made my way to the desk opposite to the bed Phanna was sitting on now, took the chair out and seated myself on the chair.
+
+The falling debris and dust has mostly cleared by now allowing us to see each other better.
+
+Seeing this, Melody relaxed a little.
+
+"Melody, can I ask you a few questions?" I asked.
+
+Melody gave me yet another meek nod.
+
+Seeing this, I continued.
+
+I wanted to ask her if she'd be willing to help me with rescuing my daughter Hickory but I knew that in her current state she'd agree to anything.
+
+However, more importantly, if this Melody was anything like the Melody that Phanna killed, then there's little to no chance of her being able to help in any way.
+
+Knowing this, I was feeling a bit uncomfortable about my current summoning already.
+
+But that aside, I needed to confirm anyways.
+
+"Melody, you said you were sorry for trying to kill Phanna." I spoke gesturing to Phanna sitting on the bed before continuing. "Can you tell me what happened after and why?"
+
+"I... I... The reason I wanted to kill Mr. Phanna is... b... Because I... I wanted to die... My... My plan was to die to karma... But I almost died to Mr. Phanna instead... I heard from Master Ethan that... that... you... you were the one who saved me... As for what happened after my... my attempt on Mr. Phanna's life... I... I don't know... I woke up in a room... with you, Mr, Phanna, my sister Amanda and Master Ethan together..."
+
+Melody's words were shaky and uneven.
+
+But I could hardly blame her since I can still see the fear in her eyes.
+
+Not wanting to scare melody any further, I looked away towards Phanna sitting on the bed seemingly lost in thought.
+
+One thing was now clear to me.
+
+I now have another failed summoning.
+
+Melody is more or less the same Melody that Phanna killed except somehow, she had survived Phanna's counter attack.
+
