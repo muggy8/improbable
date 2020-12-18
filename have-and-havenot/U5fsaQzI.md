@@ -1,4 +1,4 @@
-# Another
+# Another Way Forward
 
 Melody, the meek elf girl who Phanna killed during the Ethan's school's entrance exam, was looking at us with confusion and terror from within the aquarium.
 
@@ -110,5 +110,106 @@ One thing was now clear to me.
 
 I now have another failed summoning.
 
-Melody is more or less the same Melody that Phanna killed except somehow, she had survived Phanna's counter attack.
+Melody is more or less the same Melody that Phanna killed except that, somehow, she had survived Phanna's counter attack.
 
+But I know Melody's strengths and weaknesses pretty well after seeing her in action during the exam and more so considering I was her pre-exam inspector.
+
+What do I do?
+
+I had expected that I would need to teach the champions I've summoned but Melody is definitely not a fighter and Phanna... is a lost cause...
+
+It was at this time, that Phanna spoke up and broke me out of my thought spiral, this time, before I could even start spiraling.
+
+How very Phanna like, I thought to myself as I found comfort in something I used to find annoying.
+
+"Mikay, it seems like Faster than Light travel is the only possibility left to explain what is happening here. Tell me, how exactly did you manage it?"
+
+Of course, the things that Phanna said doesn't make a lick of sense but somehow, I still found comfort hearing these nonsensical things from Phanna for some reason.
+
+"I'm not sure what you're saying Phanna but I'm guessing you mean with Melody right?"
+
+Phanna gave me a condescending look but nodded to my question anyways.
+
+"It's the same thing that happened to you. I performed a summoning ritual and she answered my call just like you did."
+
+"I guess even you have no idea what you've done." Phanna sighed before continuing.
+
+"It's hard to believe but the only explanation for what is happening to me and Melody over there is faster than light travel which should be all but impossible except under very specific circumstances."
+
+My gut instinct is telling me to just ignore Phanna but for some reason, even this feeling still somehow brought me some relief.
+
+"I'm sorry, I have absolutely no idea what you're talking about" I said back to Phanna
+
+"I see. You clearly have no idea the significance of what you've done I take it?"
+
+"It's just a normal summoning ritual. That's all, you accepted my call and this Melody here did too." I rebutted.
+
+"This 'Summoning' ritual that you've done, teach it to me." Phanna demanded.
+
+"what?" I blurted out in surprise.
+
+"This isn't something I can just teach you like nothing. It takes years for most people to learn how to use Influence comfortably and summoning rituals are some of the most advanced ways of using Influence. Teaching someone like you how to perform Summoning Rituals would take years maybe even decades."
+
+I found myself trying my best to turn down Phanna's request but Phanna didn't give me much care to my statements and just frowned at me a bit.
+
+I was no longer working with Phanna anymore and I'm sure they wouldn't want to work with me anymore either considering what happened during the exam.
+
+But despite this Phanna seemed adamant on learning the summoning ritual.
+
+Not wanting to give into Phanna's demands, I continued listing reasons why I teaching them the summoning rituals.
+
+"And beside, you'd need to be at least level 2 in terms of Sphere of Influence to even begin to perform summoning. Not to mention you don't have a single bit of Influence right now. And to top it off, we don't even know if you can get gain any Influence since it's something that people here are born with."
+
+Yet, event despite everything I've said, Phanna didn't even show the tiniest bit of hesitation but instead instead just looked at me with discontent.
+
+After a while, Phanna finally spoke up after a moment of silence.
+
+"Are you out of excuses now?" Phanna asked.
+
+Without skipping a beat, Phanna started refuting each of my points.
+
+"If you're worried about time, then don't. I have an unlimited lifespan so I could hardly care how long it takes to learn these skills even if I have to learn it manually. And if you're worried that you might wither away then I can grant you an unlimited lifespan too. If this 'influence' thing you speak of is of concern then again don't. I'm sure what you call influence and what I think of as influence are completely different things but even if no one knows what it is. I'm confident that I'll be able to figure out what it is using the scientific method ."
+
+That's right... Phanna did say they had an infinite lifespan or something like that before.
+
+But even then...
+
+"W...Why are you asking me for this? I thought you hated me." I questioned.
+
+"Hate is a strong word." Phanna replied before leaning back into the bed a bit and continuing.
+
+"I don't really hate you. I was very angry. To be honest, I'm still suspicious of you. But that doesn't change the fact that you might have done something that goes even beyond my understanding of the universe..."
+
+And then there was silence.
+
+Melody was still in the corner of the glass aquarium.
+
+I could tell she might have felt a bit better knowing our attention were no longer on her but I still felt a bit bad for pretending she didn't exist.
+
+"Mikay, I dont know if I've told you this before or not but my goal for the past couple hundred years was to discover or create something new, something no one knew about, to experience something unique, something that no one else has experienced. In other words, to be unique, to be more than just a nobody in the endless sea of people."
+
+Phanna then looked up toward the hole in the roof of the room we are now in and into the clear afternoon sky.
+
+"I didn't succeed in that goal and that's what got me here. At first I though this whole world was just a simulation... a dream of sorts. But now, not only did I find out this whole place is real, but I also found potential evidence of the fundamental laws of nature being broken."
+
+Then Phanna looked away from the sky and back at me, this time with much more fire in their eyes.
+
+"This is why I must have you teach me this summoning ritual."
+
+Phanna's words left me speechless.
+
+Refusing this request just felt like the wrong thing to do but for I cant just abandon my own goals.
+
+But then again, how do I proceed further on my own goals anyways?
+
+I felt like I was caught between a rock and a hard place.
+
+That was when Phanna spoke up one more time.
+
+"Hickory"
+
+"Hun?"
+
+"Your daughter Hickory is on your mind." Phanna said.
+
+"Of course she is."
