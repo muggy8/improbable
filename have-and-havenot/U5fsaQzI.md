@@ -212,4 +212,28 @@ That was when Phanna spoke up one more time.
 
 "Your daughter Hickory is on your mind." Phanna said.
 
-"Of course she is."
+It was as if Phanna was reading my mind but I didn't say anything and just looked away instead.
+
+Phanna seemed to have understood that as acknowledgment of their question and proceeded to speek.
+
+"I'm sorry. I made light of your goals before." Phanna apologized.
+
+This comment took me off guard.
+
+The normally confrontational and uncooperative Phanna has melted away and before me was a side of Phanna I've never seen before.
+
+"Does this mean..." I said in hesitation slowly turning back towards phanna.
+
+"...Yes, I'm willing to truly put in my effort to help you save your daughter now." Phanna answered with a bit of hesitation as well.
+
+This answer from Phanna made me feel bittersweet.
+
+I was happy to know that Phanna was back on my side now but I felt bitter for the time we spent earlier with Phanna barely caring for my goals.
+
+But judging from Phanna's hesitant expression and actions, I'm sure they knew this as well.
+
+But having Phanna throw me for a loop once, I wasn't as ready to just go along with whatever Phanna wanted this time around.
+
+"Lets... make a compromise." I said hesitantly. "After what happened before, I'm not as willing to just trust you completely just as you are suspicious of me. That said, I can agree to teach you what I can about Influence and in exchange, you help me in whatever way you can in terms of saving my daughter Hickory. If we are able to successful prevent my daughter's fate or if you are able to master the art of manipulating Influence then I shall teach you the Summoning Ritual. Sounds fair right?"
+
+"I guess that's only fair." Phanna said looking a little dissatisfied or maybe disappointing.
