@@ -1,4 +1,4 @@
-# Another Way Forward
+# What I Should Live For
 
 Melody, the meek elf girl who Phanna killed during the Ethan's school's entrance exam, was looking at us with confusion and terror from within the aquarium.
 
@@ -237,3 +237,189 @@ But having Phanna throw me for a loop once, I wasn't as ready to just go along w
 "Lets... make a compromise." I said hesitantly. "After what happened before, I'm not as willing to just trust you completely just as you are suspicious of me. That said, I can agree to teach you what I can about Influence and in exchange, you help me in whatever way you can in terms of saving my daughter Hickory. If we are able to successful prevent my daughter's fate or if you are able to master the art of manipulating Influence then I shall teach you the Summoning Ritual. Sounds fair right?"
 
 "I guess that's only fair." Phanna said looking a little dissatisfied or maybe disappointing.
+
+Phanna being reasonable? this was a rather surprising development as I was half expecting Phanna to keep pressing the issue.
+
+But it seems that Phanna really cares about learning the summoning ritual thing and willing to accept any condition.
+
+I really don't understand why but I was glad that this was the case.
+
+I took my attention off of Phanna and refocused it onto Melody as I said.
+
+"Hey Melody, since I'm already going to teach Phanna Influence Manipulation, I might as well teach you as well. I don't exect you to need the basic..."
+
+I couldn't finish my sentence as I realized that Melody, who had been silent for my entire conversation with Phanna, was silently crying in the corner of the Aquarium.
+
+Phanna, looking directly at melody as well, seemed to have also noticed this.
+
+"What's wrong?" Phanna asked.
+
+"Are you alright?" I found myself asking as well.
+
+But Melody just continued crying silently.
+
+Maybe she didn't realize that we were talking about her so I decided to get closer to her.
+
+That's when I realized.
+
+Melody has been whispering something this whole time.
+
+I stopped right by the glass and listened.
+
+"It's not fair... why me... it's not fair... why me... It's not fair..."
+
+Melody was repeating the same phrase over and over again as I stood there watching her.
+
+"Melody, are you alright?" I asked again.
+
+This time, it seemed that Melody had noticed me and looked up at me with tears still in her eyes.
+
+"Forget about me. I'll just be a burden to you." Melody said quietly and returned to hugging her knees.
+
+"Here hug this, it'll make you feel better" Phanna said sanding beside Melody on the outside of the glass aquarium.
+
+What? How?
+
+But before I could even finish my thought, Phanna pushed open the lid of the aquarium and dropped Pillow in.
+
+"Ah!!" Melody yelped
+
+"Phanna! What are you doing?!" I yelled.
+
+But Phanna ignored me.
+
+"Hug that. It's name is Pillow I think. It'll make you feel better."
+
+Seeming a bit caught off guard, Melody did as instructed and picked up Pillow and embraced it gently.
+
+"See, it feels really good right?" Phanna said confidently.
+
+But that didn't seem to help Melody much as she seemed to be crying more.
+
+"Melody, what's wrong?"
+
+This time, it was Phanna who asked this question.
+
+But instead of answering Phanna's question, Melody asked a question in response.
+
+"Tell me, Phanna, what should I live for."
+
+Melody's question stunned me.
+
+Where did this come from.
+
+Phanna however, doesn't seem too bothered by this but made no attempt to answer.
+
+Instead, Phanna knelt down and looked at Melody with compassion in their eyes as if telling Melody to continue.
+
+Unsure of what to do, I quickly followed suit and sat down cross legged to listen to the two of them.
+
+Before long, Melody began to speak again.
+
+"Tell me, Phanna, what should I live for? You say you have nothing to live for but you're perfect in every way. You seem confident enough to challenge a Master like Mikay despite not having any Influence, you're able to push Amanda to her limit without even trying, You took what should have been a lethal blow or at least a debilitating attack like it's nothing and counter attacked immediately. Then, after all that, you come around and tell me you have nothing to live for. So tell me, what should I live for? What should a failure like me life for? A failure who can't even keep up with basic field practice, who can barely use Abilities, who has to push myself to the limit to barely keep up with everyone else. What should a failure like me live for?"
+
+I couldn't say Phanna was in an enviable position right now.
+
+I had no idea how to answer Melody's question and I could only find relief in the fact that the question was not directed at me.
+
+I watched as Phanna stood up and got into the glass Aquarium.
+
+This time, Melody's reaction was completely different from before.
+
+Instead of trying to get away from us, she just sat there hugging Pillow.
+
+Soon enough, Phanna was kneeling in front of Melody looking her in the eyes.
+
+Then, before my eyes, Phanna slowly lifted their hands to Melody's neck and started choking her.
+
+"What are you doing!?" I gasped.
+
+But Phanna didn't respond.
+
+I quickly stood up and activated a couple instances of Strengthen.
+
+"I... I can't... breath..." Melody whispered.
+
+I need to stop Phanna! I thought to myself as I grabbed the glass lid from the aquarium and placed it down on the floor and jumped into the Aquarium.
+
+"Phanna!! What are you doing??" I screamed as I gripped Phanna's hands trying to pry them off of Melody's neck.
+
+But despite being strengthened by multiple instances of Strengthen, I was unable to pry Phanna's hands off of Melody's neck.
+
+"Phanna!! Stop this!!" I shouted in panic as I pulled harder onto Phanna's arms.
+
+"I... can't..." Melody whipped.
+
+I could see blood flowing at the place where my hands gripped Phanna's arms and yet, Phanna still didn't loosen their grip on Melody's neck.
+
+"Phanna, what's wrong with you!" I screamed in panic as I activated more instances of Strengthen to try to pry PHanna's hands off.
+
+But for some reason, even despite this, Phanna's hands remained locked on Melody's neck.
+
+I was sure I would have broken Phanna's bones by this point but nothing of the sort happened.
+
+The only effect my prying had on Phanna was the blood that was flowing from where my hands met their arm.
+
+Nothing else changed.
+
+Not even Phanna's expression.
+
+"Just what kind of monster are you!!!" I shouted.
+
+But, of course, Phanna gave me no reply.
+
+Is there anything I can do to stop Phanna?!
+
+Trying to pry Phanna's hands off of Melody is clearly not working.
+
+But what else can I do...
+
+Wait!
+
+Phanna doen't have any influence right now! that means I can influence and manipulate Phanna's internal body parts without requesting for permission...
+
+Maybe I can break Phanna's arms with Forgemaster...
+
+But something like that is irreversible right?
+
+And just as Phanna has agreed to help me...
+
+How is Phanna able to maintain such as strong grip without using strengthen?
+
+Is this how it is? I get to choose to enlist Phanna's help or to watch them kill Melody again.
+
+What kind of cruel joke is this?
+
+While admits my inner turmoil...
+
+"S... Stop..." Melody wheezed.
+
+And as if magic, Phanna released their grip on Melody's neck which was then quickly jerked away from Melody's body by my hands.
+
+"Melody! Melody! Are you alright?" I yelled trying too get a hold of Melody as she coughed and gasped.
+
+I then immediately turned to Phanna "Phanna, what is wrong with you!" I screamed.
+
+But I got nothing back.
+
+Phanna's arm was covered in blood yet somehow, it didn't seemed to be bothering them.
+
+"Melody, why did you ask me to stop." Phanna asked in a tone as if nothing had happened.
+
+"How could you ask Her that?" I immediately retorted.
+
+But despite regaining her breath, Melody didn't answer and just looked away.
+
+"If you truly have nothing to live for like me. you wouldn't have stopped me right." Phanna said.
+
+Realizing what had just happened, Melody immediately grabbed Phanna's hands and placed them right back on her neck.
+
+"Continue!" she demanded.
+
+But Phanna simply shook their head and pulled their hands back.
+
+"I can't tell you what you should live for. That's something for you to decide on your own, not me. But I can tell you that you do have something to live for, otherwise, you wouldn't have stopped me."
+
+I was speechless.
+
+Just who was this guy?
