@@ -24,17 +24,19 @@
 
 "I sure hope you're right and it's just a simple communication device malfunction."
 
-"I do too... So what about the rest of the people around?"
+"I do too..."
+
+"So what about the rest of the people around?"
 
 "Oh that, I've successfully managed to alter their memories. The only person left is Mikay."
 
-"phew.., I guess the most probable explanation is a device malfunction."
+"phew... I guess the most probable explanation is a device malfunction."
 
 "I'm feeling that way too. Lets hope we're right."
 
 "Me too. I really wish they made these things more reliable."
 
-"I mean, the communicators are as reliable as they come now."
+"I mean, the communicators are as reliable as they come."
 
 "Well I know that much. But I still feel like they could be made better."
 
