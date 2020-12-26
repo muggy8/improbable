@@ -1,4 +1,4 @@
-# What I Should Live For
+# Will to Live
 
 Melody, the meek elf girl who Phanna killed during Ethan's school's entrance exam, was looking at us with confusion and terror from within the aquarium.
 
@@ -50,9 +50,9 @@ In fact, I wasn't even sure how Melody got here in the first place.
 
 Something sounded strange about Melody's comment.
 
-I didn't recall something like that happening at all. In fact, I couldn't remember a time where all the people Melody named were together and having a chat.
+I didn't recall something like that happening at all. In fact, I couldn't remember a time where only the people Melody named were together and having a chat.
 
-Phanna seemed to have noticed it too as their face twisted.
+Phanna seemed to have noticed it too as their facial expression changed.
 
 "Do you remembered what you all were talking about?" I asked.
 
@@ -62,13 +62,13 @@ Phanna seemed to have noticed it too as their face twisted.
 
 "Y... You said that... You would get stronger over 3 seconds if attacked and... and that we had to vaporize your... spine..."
 
-Phanna's face twisted with discomfort at Melody's answer and I, too, can feel my own face twist in confusion.
+Phanna showed visable discomfort at Melody's answer.
 
 Melody quivered in fear at the sight of our expressions but she couldn't pull herself any further away from us in the aquarium.
 
 "I'm sorry..." Phanna finally spoke before slowly walking to the bed and sitting down.
 
-Phanna must have realized that the stuff that Melody just spoke about was something that never happened, at least in front of us the way that Melody had described.
+Phanna must have realized that the stuff that Melody just spoke about was something that never happened, at least to us the way that Melody had described.
 
 I wasn't too surprised by this but Phanna seemed to find this situation extremely uncomfortable.
 
@@ -88,13 +88,19 @@ Melody gave me yet another meek nod.
 
 Seeing this, I continued.
 
-I wanted to ask her if she'd be willing to help me with rescuing my daughter Hickory but I knew that in her current state she'd agree to anything.
+I wanted to ask her if she'd be willing to help me with rescuing my daughter Hickory, but, I knew that in her current state, she'd agree to anything.
 
-However, more importantly, if this Melody was anything like the Melody that Phanna killed, then there's little to no chance of her being able to help in any way.
+That just didn't feel like the right thing to do for someone like me.
+
+However, more importantly, if this Melody was similar to the Melody that Phanna killed, then there's little to no chance of her being able to help in any way.
 
 Knowing this, I was feeling a bit uncomfortable about my current summoning already.
 
 But I needed confirmation.
+
+Melody already mentioned about trying to kill Phanna and that matches what I remembered during the exam.
+
+Just this fact alone could be enough evidence to show that this was a very similar Melody to the Melody that died, but, part of me was still hoping that this Melody was a completely different person.
 
 "Melody, you said you were sorry that you tried to kill Phanna," I spoke gesturing to Phanna sitting on the bed before continuing. "Can you tell me what happened after and why?"
 
@@ -316,7 +322,7 @@ Unsure of what to do, I quickly followed suit and sat down cross-legged to liste
 
 Before long, Melody began to speak again.
 
-"Tell me, Phanna, what should I live for? You say you have nothing to live for but you're perfect in every way. You seem confident enough to challenge a Master like Mikay despite not having any Influence, you're able to push Amanda to her limit without even trying, You took what should have been a lethal blow or at least a debilitating attack like it's nothing and counter-attacked immediately. Then, after all that, you come around and tell me you have nothing to live for. So tell me, what should I live for? What should a failure like me live for? A failure who can't even keep up with basic field practice, who can barely use Abilities, who has to push myself to the limit to barely keep up with everyone else. What should a failure like me live for?"
+"Tell me, Phanna, what should I live for? You say you have nothing to live for but you're perfect in every way. You seem confident enough to confront a Master like Mikay despite not having any Influence, you're able to push Amanda to her limit without even trying, You took what should have been a lethal blow or at least a debilitating attack like it's nothing and counter-attacked immediately. Then, after all that, you come around and tell me you have nothing to live for. So tell me, what should I live for? What should a failure like me live for? A failure who can't even keep up with basic field practice, who can barely use Abilities, who has to push myself to the limit to barely keep up with everyone else. What should a failure like me live for?"
 
 I couldn't say Phanna was in an enviable position right now.
 
