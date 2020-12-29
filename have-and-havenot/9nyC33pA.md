@@ -86,7 +86,7 @@ What exactly is a simulation anyways?
 
 I noticed summoned looking at the horn sticking out of the middle of my forehead and blinking emptily.
 
-"If you're wondering about my horn, I'm an Ogre. I'm the single horn type."
+"If you're wondering about my horn, I'm an Oni. I'm the single horn type."
 
 "Oh… is that so."
 
