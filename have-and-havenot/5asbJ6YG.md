@@ -1,6 +1,6 @@
-# Disappointment
+# Farewell
 
-"Good work to our round 5 contestants, now, would numbers 1, 4, 5 and 9 please come up," called Ethan.
+"Good work to our round 5 contestants, now, would numbers 1, 4, 5 and 9 please come up," called Principal Ethan.
 
 Against my body's request, I stood up and made my way to Ethan in agony.
 
@@ -272,7 +272,7 @@ Ahh, whatever...
 
 When I awakened again, I was in a bed.
 
-Ethan was in the room with me. and so was Mikay, Phanna and also...
+Principal Ethan was in the room with me. and so was Mikay, Phanna and also...
 
 "Oh thank god you're alright Melody!!" Amanda exclaimed holding my hand with tears in her eyes.
 
@@ -330,7 +330,7 @@ Phanna was the last person I'd expect to hear this from.
 
 Yet I can tell that Phanna was completely serious based on the tone in his voice.
 
-Somehow, Mikay and Ethan didn't seem too surprised. 
+Somehow, Master Mikay and Principal Ethan didn't seem too surprised. 
 
 I guess this is just the difference between Masters and us nobodies.
 

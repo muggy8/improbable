@@ -252,7 +252,7 @@ I don't understand why but I was glad that this was the case.
 
 I took my attention off of Phanna and refocused it onto Melody as I said.
 
-"Hey Melody, since I'm already going to teach Phanna Influence Manipulation, I might as well teach you. I don't expect you to need the basic..."
+"Hey Melody, since I'm already going to teach Phanna Influence Manipulation, I might as well teach you too. I don't expect you to need the basic..."
 
 I couldn't finish my sentence as I realized that Melody, who had been silent for my entire conversation with Phanna, was silently crying in the corner of the Aquarium.
 
@@ -358,7 +358,7 @@ But despite being strengthened by multiple instances of Strengthen, I was unable
 
 I could see blood flowing at the place where my hands gripped Phanna's arms and yet, Phanna still didn't loosen their grip on Melody's neck.
 
-"Phanna, what's wrong with you!" I screamed in panic as I activated more instances of Strengthen to try to pry PHanna's hands-off.
+"Phanna, what's wrong with you!" I screamed in panic as I activated more instances of Strengthen to try to pry Phanna's hands-off.
 
 But for some reason, even despite this, Phanna's hands remained locked on Melody's neck.
 
@@ -392,7 +392,7 @@ And just as Phanna has agreed to help me...
 
 How is Phanna able to maintain such a strong grip without using strengthen?
 
-Is this how it is? I get to choose to enlist Phanna's help or to watch them kill Melody again.
+Is this how it is? I get to choose between getting Phanna's help by watching them kill Melody again or getting Melody's help by break Phanna myself.
 
 What kind of cruel joke is this?
 
