@@ -262,7 +262,7 @@ But judging from their mass, they definitely are stone.
 
 I guess Physics in this world doesn't really make sense.
 
-Not that I should expect otherwise allowing random chance to generate my simulated world and all.
+Not that I should expect otherwise when allowing random chance to generate my simulated world and all.
 
 After the stone platforms were raised out of the ground, Mikay and the other people he was with walked away to stand by the edge of the building where they were originally standing earlier.
 

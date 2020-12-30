@@ -188,7 +188,7 @@ After all, I didn't actually know where around the waterfall the elven base was.
 
 The elven territorial defenders would surely escort me to their base after.
 
-I landed on another branch and activated Defense before dropping down to the forest floor and began walking in the direction of the waterfall.
+I landed on another branch and activated Defense before dropping down to the forest floor as I had planned on walking the rest of the distance to the waterfall.
 
 The waterfall isn't much further from here and walking the rest of the way doesn't seem too bad. 
 
@@ -250,7 +250,7 @@ I already had Pyromancer activated to maintain the ring of fire around me so tha
 
 I activated Forgemaster and extruded a pillar of stone out of the ground beneath me elevating me above the flames.
 
-Another active  Innate Ability.
+Another active Innate Ability.
 
 As that happened, I activated Twister and around my ring of fire to create a small flame vortex centred around me.
 
@@ -407,7 +407,7 @@ I waved to Patrisha once I was done noting down my thoughts but she was talking 
 
 Thinking that she was probably giving orders to someone, I decided to wait a bit until she was done. 
 
-I could return home on my own but doing that felt a bit awkward just leaving like this so I continued to wait. 
+I could return home on my own but it felt a bit awkward just leaving like this so I continued to wait. 
 
 Soon, Patrisha was done talking and came over to me.
 
@@ -545,7 +545,7 @@ By the time I got home, Ethan had already passed out.
 
 It was dark too, so dark in fact that I had to light the way home with fire created by Pyromancer. 
 
-I placed the stack of stone tablets and Melody's name tag on the ground in front of Ethan and went off to bed myself.
+I placed the stack of stone tablets and Melody's application tree bark on the ground in front of Ethan and went off to bed myself.
 
 For some reason, Phanna was still awake and tormenting Pillow. 
 

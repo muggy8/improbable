@@ -354,13 +354,13 @@ Phanna then moved their gaze away from me and onto Pillow in the aquarium.
 
 Phanna pointed to their head with their finger and then continued.
 
-"On average, it takes about 500 years for one archiving cycle to complete; meaning the majority of the memories are now unused and are, consequently, extracted from my head and put into my bones. However, some extremely strong memories stay with me even after a few archiving cycles such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
+"On average, it takes about 500 years for one archiving cycle to complete. Each archiving cycle extracts majority of the unused memories from my brain and put them into my bones. However, some extremely strong memories stay with me even after a few archiving cycles such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
 
 I nodded in sympathy. 
 
 Although I don't fully understand what Phanna's saying, I feel like at least I'm understanding the general idea of it. 
 
-"Honestly, if I can just forget things on demand, things would be much easier, but, because of ethical and legal reasons, I have to wait for memories to fade away over time before they get archived in order to forget. Unfortunately, traumatic memories don't just go away that easily..."
+"Honestly, if I can just forget things on demand, things would be much easier, but, because of ethical and legal reasons, I have to wait for memories to fade away over time and get archived in order to forget. Unfortunately, traumatic memories don't just go away that easily..."
 
 "I... I see"
 

@@ -236,7 +236,7 @@ By the time I was talking to Ethan, I already knew who I was facing since 3 of t
 
 I honestly didn't want to and I think my facial expression showed it as Ethan immediately followed up his comment.
 
-"Think of it this way Phanna, you'd be fighting against a completely new way of fighting."
+"Think of it this way Phanna, you'd be facing against a completely new fighting style you've never seen before."
 
 "Fine fine" I sighed. 
 
@@ -358,7 +358,7 @@ I blinked.
 
 Still spinning with the momentum, I grabbed Amanda as she fell and made an attempt to throw her in the direction of my spin.
 
-But my shock at my own body's movements slowed by just enough that Amanda was able to plant her feet into the ground, avoiding the throw and only got flipped over.
+But the shock at my own body's movements slowed my movements by just enough that Amanda was able to plant her feet into the ground, avoiding the throw and only got flipped over.
 
 Amanda's face was rapidly approaching the floor now as regret washed over me.
 
