@@ -14,15 +14,15 @@ I've been moving the bed around to test out different places that would fit nice
 
 I leaned towards my pet slime, Pillow, who was lazing around on the ground next to my bed and began poking at it's silky smooth surface.
 
-"Still nothing?" I asked as if expecting a reply but who am I kidding, Pillow's a slime blob with no way of communicating. It can't possibly reply.
+"Still nothing?" I asked as if expecting a reply, but, who am I kidding, Pillow's a slime blob with no way of communicating. It can't possibly reply.
 
 Though that may be the case, having it on watch is probably still a good idea since it'll surely cause a ruckus if someone did show up.
 
 Or so I had thought as I looked over to the aquarium that was located by the wall directly across from the door of the room.
 
-I was fully expecting it to be empty but I noticed a slender person sleeping in there.
+I was fully expecting it to be empty but I noticed a slender androgynous looking person sleeping in there.
 
-Pillow normally lives in that aquarium and swims around happily within it but a few days earlier, I had the aquarium drained to prepare for the summoning ritual.
+Pillow normally lives in that aquarium and swims around happily within it but a few weeks earlier, I had the aquarium drained to prepare for the summoning ritual.
 
 After draining and cleaning the aquarium, I inscribed the summoning inscriptions onto it as I had done before with the usual cry for help.
 
@@ -40,7 +40,7 @@ This one's got long pointy ears growing where normal humans would have ears. In 
 
 This is the first time I've ever seen such a strange setup in any humanoid ever.
 
-Though if this person is a Chimera, it would totally explain the apparent fox like ears on the body of, what would otherwise have been, a mostly normal looking elf.
+Though if this person is a Chimera, it would totally explain the fox like ears on the body of a mostly normal looking elf.
 
 That said, what kind of world would a Chimera like this come from? I've only ever heard of Chimeras in legends.
 
@@ -56,7 +56,7 @@ Thinking about it, I haven't really fed Pillow in a few days so maybe it's just 
 
 Maybe a bit of food will help it out.
 
-Thinking this, I picked Pillow up and placed it inside a glass garbage bin by the table that's across from the bed.
+Thinking this, I picked up Pillow and placed it inside a glass garbage bin by the table that's across from the bed.
 
 "Eat up Pillow."
 
@@ -68,9 +68,9 @@ I lifted Pillow out of the trash bin and caught sight of the summoned sitting up
 
 I walked over to the aquarium making sure to make my presence known.
 
-The last time I approached carelessly, I got accused of being a "jump scare".
+The last time I approached carelessly, I got accused of being a "jump scare" or something to that effect.
 
-I don't know what that is, but it definitely doesn't sound like something I'd want to get associated with.
+I don't know what that is, but it definitely doesn't sound like something I'd want to be associated with.
 
 "Hi there my name is Mikay, how are you feeling?" I introduced.
 
@@ -84,7 +84,7 @@ I wasn't exactly sure what to expect with this comment but it definitely didn't 
 
 What exactly is a simulation anyways?
 
-I noticed summoned looking at the horn sticking out of the middle of my forehead and blinking emptily.
+I noticed the summoned looking at the horn sticking out of the middle of my forehead and blinking emptily.
 
 "If you're wondering about my horn, I'm an Oni. I'm the single horn type."
 
@@ -134,7 +134,7 @@ I stared blankly back… something's not right and I wasn't exactly sure what to
 
 And to top it off, that statement made way too little sense to me.
 
-Still, though, I was not quite sure what I was supposed to call the summoned so I once again began my questioning.
+Still though, I was not quite sure what I was supposed to call the summoned so I once again began my questioning.
 
 "So… what am I supposed to call you?"
 
@@ -176,9 +176,9 @@ That was what happened to my previous summon. Since his accent was so thick, I w
 
 I started imagining a future scenario where I had to recount the events of right now and of my recent past and the prospect of having to use Unnamed Summon #1 and Unnamed Summon #2 to explain who did what and what happened to whom.
 
-Yah, that's definitely not going to work out. Having 1 unnamed summon is already one too many already.
+Yah, that's definitely not going to work out. Having 1 unnamed summon is already one too many.
 
-That's why I decided to continue questioning the current summoned despite me pretty much already labelling this summoning a failure.
+That's why I decided to continue questioning the current summoned despite me pretty much already labelling this summoning a failure in my heart.
 
 "What do people normally call you in your homeworld?"
 
@@ -242,7 +242,7 @@ I mean, a world where names are literally just numbers? What sort of hell world 
 
 I guess there's at least a usable name I can use for Phanna now.
 
-I mean I still can't imagine what a world without names is like and how different it'd be too.
+I mean I still can't imagine what a world without names is like and how different it would be.
 
 Maybe I shouldn't call Phanna a failure just yet.
 
@@ -276,7 +276,7 @@ I looked away from Phanna and down at Pillow who's snugly wrapped around my arms
 
 The current summoning ended in failure, the previous summoning ended in death by illness.
 
-I really didn't have many options left to begin with and just when I thought there was hope when I found the champion summoning ritual, the whole plan started falling apart with 2 back-to-back failures right from the start.
+I really didn't have many options left to begin with and just as I started feeling like there was some hope left for me when I found the champion summoning ritual, the whole plan started falling apart with 2 back-to-back failures.
 
 I'm physically able to perform a few more summoning but is that even worth it at this point?
 
@@ -286,13 +286,13 @@ But given how risky summoning rituals can be, is it even worth it to continue?
 
 I, again, looked back up at Phanna who's sitting there being lost in thought.
 
-Just as I did that, Phanna seemed to have also noticed my gaze and quickly snapped back to reality and returning my gaze.
+Just as I did that, Phanna seemed to have also noticed my gaze and quickly snapped back to reality and returned my gaze.
 
 "What do you need to save your daughter from anyways? I still don't understand."
 
 I was flabbergasted
 
-Phanna isn't rejecting to help me?
+Phanna isn't declining to help me?
 
 "What do you mean?"
 
@@ -308,7 +308,7 @@ I cleared my throat and began to explain.
 
 "Your world must be incredibly peaceful then."
 
-"Not really, it's actually quite the organized chaos. I mean, as an example, on average, every couple thousand years or so, we have a crazy group of people who decides to engineer a superbug to wipe out all complex biological life and one in every couple thousand of these groups manage to actually succeed for the most part. But it always fails to actually do any lasting damage as some other person or group's anti extinction contingency measures would restart biological life after without fail. It might cause a couple hundred to thousand years of decreased productivity but because technology is never truly lost, eventually, things will return to normal. That's why I really don't see what the big deal is with losing a strong ability user or two."
+"Not really, it's actually quite the organized chaos. I mean, as an example, on average, every couple thousand years or so, there would be a crazy group of people who would decide to engineer some superbug to wipe out all complex biological life and one in every couple thousand of these groups manage to actually succeed for the most part. But it always fail to actually do any lasting damage as some other person or group's anti extinction contingency measures would restart biological life after without fail. It might cause a couple hundred to thousand years of decreased productivity, but, because technology is never truly lost, eventually, things will return to normal. That's why I really don't see what the big deal is with losing a strong ability user or two."
 
 I was shocked. I didn't know how to respond. I was searching for words to say but all that came out was:
 
@@ -342,7 +342,7 @@ I didn't want to.
 
 I couldn't.
 
-I feel like the stuff that Phanna was saying has stopped making sense a long time ago yet somehow I'm still here trying to piece together some semblance of meaning from Phanna's words.
+I felt like the stuff that Phanna was saying had stopped making sense a long time ago yet somehow I'm still here trying to piece together some semblance of meaning from Phanna's words.
 
 My mind drifted around in it's shattered state unsure of what to do when Phanna spoke up again.
 
@@ -358,7 +358,7 @@ I shook my head violently trying to clear my mind before finally looking back at
 
 "What sort of danger is she actually in?"
 
-"A-ah right. the Grandmasters in the Guild of Mastery are seen as the protectors of humanity and those who are able to match the Grandmasters in power but isn't a Grandmaster themselves are considered to be a major threat to all of humanity and are therefore known as Phantom Lords. I know that you don't really see that as a problem but in our world, we are absolutely unable to accept the total destruction of all humanity nor do we believe we can recover from such a disaster. That's why all those who are seen as major threats to humanity are hunted down by the Mastery League and that fate is the fate I would like to save my daughter from."
+"A-ah right. The Grandmasters in the Guild of Mastery are seen as the protectors of humanity. Those who are able to match the Grandmasters in power but isn't a Grandmaster themselves are considered to be a major threat to all of humanity and are therefore known as Phantom Lords. I know that you don't really see that as a problem but in our world, we are absolutely unable to accept the total destruction of all humanity nor do we believe we can recover from such a disaster. That's why all those who are seen as major threats to humanity are hunted down by the Mastery League and that fate is the fate I would like to save my daughter from."
 
 "Oh… that's quite the conundrum you have going on. So what's your plan for saving her from the life of being hunted?"
 
