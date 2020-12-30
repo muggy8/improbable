@@ -26,52 +26,67 @@ http.createServer(async function (req, res) {
 	let path = url.parse(req.url).pathname
 	console.log(path)
 	let isMarkdown = false
-	
+
 	if (/\/([^\/\.]*\.md)$/){
 		isMarkdown = true
 	}
 	else if (/\/([^\/\.]*\.[^\/\.]+)?$/.test(path)){
 		// has file extention and isn't directory
 	}
-	
+
+	let stats
 	try{
-		let stats = await pathStats(__dirname + path)
-		
-		if (stats.isDirectory()){
-			
-			let directoryItems = (await readDir(__dirname + path)).map(async function(subPath){
-				let maybePath = __dirname + path + "/" + subPath
-				let stats = await pathStats(maybePath)
-				return stats.isFile() 
-					? `<li><a href="./${subPath}">${subPath}</a></li>`
-					: `<li><a href="./${subPath}/">${subPath}/</a></li>`
-			})
-			
-			directoryItems = (await Promise.all(directoryItems)).join("")
-			
-			let ele = `<ul>${directoryItems}</ul>`
-			let contents = htmlTemplate.replace("uwu", ele)
-			
-			res.writeHead(200)
-			res.write(contents)
-		}
-		else{
-			let contents = await readFile(__dirname + path, "utf-8")
-			if (isMarkdown){
-				contents = marked(contents)
-				contents = htmlTemplate.replace("uwu", contents)
-			}
-			
-			res.writeHead(200)
-			res.write(contents)
-		}
+		stats = await pathStats(__dirname + path)
 	}
 	catch(uwu){
-		res.writeHead(404, {'Content-Type': 'text/plain'})
-		res.write('404: Not Found')
-		console.log(uwu)
+		try{
+			stats = await pathStats(__dirname + path + ".md")
+			res.writeHead(308, {
+				'Content-Type': 'text/plain',
+				"Location": path + ".md"
+
+			})
+			res.write('redirect')
+			res.end()
+
+		}
+		catch(UwU){
+			res.writeHead(404, {'Content-Type': 'text/plain'})
+			res.write('404: Not Found')
+			res.end()
+		}
+		return
 	}
-	
+
+	if (stats.isDirectory()){
+
+		let directoryItems = (await readDir(__dirname + path)).map(async function(subPath){
+			let maybePath = __dirname + path + "/" + subPath
+			let stats = await pathStats(maybePath)
+			return stats.isFile()
+				? `<li><a href="./${subPath}">${subPath}</a></li>`
+				: `<li><a href="./${subPath}/">${subPath}/</a></li>`
+		})
+
+		directoryItems = (await Promise.all(directoryItems)).join("")
+
+		let ele = `<ul>${directoryItems}</ul>`
+		let contents = htmlTemplate.replace("uwu", ele)
+
+		res.writeHead(200)
+		res.write(contents)
+	}
+	else{
+		let contents = await readFile(__dirname + path, "utf-8")
+		if (isMarkdown){
+			contents = marked(contents)
+			contents = htmlTemplate.replace("uwu", contents)
+		}
+
+		res.writeHead(200)
+		res.write(contents)
+	}
+
 	// res.writeHead(200, {'Content-Type': 'text/plain'})
 	// res.write('Hello World!')
 	res.end()
