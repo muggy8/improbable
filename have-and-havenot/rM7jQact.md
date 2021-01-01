@@ -511,9 +511,9 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 "Is Melody Ok?" She asked.
 
-"Not sure, I can return tomorrow with a clerk if you don't have a clerk in your camp" I answered.
+"Not sure, I can return tomorrow with a healer if you don't have a clerk in your camp" I answered.
 
-"N-no that's quite alright, we have clerks in the camp to help out too. I'm just worried about Melody." Patrisha continued.
+"N-no that's quite alright, we have healers in the camp to help out too. I'm just worried about Melody." Patrisha continued.
 
 "About?"
 
