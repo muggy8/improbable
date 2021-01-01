@@ -20,7 +20,7 @@ That said, he does seem to be very sincere.
 
 That much is obvious. 
 
-To be honest, I kind of feel bad for him and the school.
+To be honest, I kind of felt bad for him and the school.
 
 I had initially thought that he would just come over for a few hours after school every day.
 
@@ -188,7 +188,7 @@ I felt bad for them.
 
 I kind of understand why they're always hugging Pillow now.
 
-I breathed deeply.
+I took a deep breath.
 
 I didn't know if Phanna was crying or not but if they were, I wouldn't be surprised.
 
@@ -228,7 +228,7 @@ Then again, absolute refusal to partake in the entrance exams sure doesn't seem 
 
 I know Phanna just explained the reason but I still honestly don't understand any of it.
 
-Actually, I don't really understand Phanna's reasons for doing anything I felt.
+Actually, I felt like I didn't really understand Phanna's reasons for doing anything.
 
 Maybe if I can understand Phanna's reason for becoming a champion, I'd be able to better find a way to talk them into taking the exams.
 
@@ -354,7 +354,7 @@ Phanna then moved their gaze away from me and onto Pillow in the aquarium.
 
 Phanna pointed to their head with their finger and then continued.
 
-"On average, it takes about 500 years for one archiving cycle to complete. Each archiving cycle extracts majority of the unused memories from my brain and put them into my bones. However, some extremely strong memories stay with me even after a few archiving cycles such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
+"On average, it takes about 500 years for one archiving cycle to complete. Each archiving cycle extracts majority of the unused memories from my brain and puts them into my bones. However, some extremely strong memories stay with me even after a few archiving cycles such as the memories of the pet. Though much of it is gone now, I still have vague memories of it."
 
 I nodded in sympathy. 
 
@@ -420,7 +420,7 @@ Phanna's answers hurt as if they were cutting into me.
 
 It brought up memories of the days immediately following the passing of Aurora, my late wife, and the departure of Hickory. 
 
-During those days, I felt like I've lost all hope and all I can do is to accept whatever comes my way in the future.
+During those days, I felt like I've lost all hope and all I can do is to just accept whatever comes my way in the future.
 
 But something changed after I was introduced to the Champion Summoning Ritual.
 
