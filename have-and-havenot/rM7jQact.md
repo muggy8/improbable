@@ -1,6 +1,6 @@
 # The Examinee
 
-After completing the gruelling task of convincing Phanna to take the exam, I left the room, with the food tray in hand, and went back out to the living room.
+After completing the grueling task of convincing Phanna to take the exam, I left the room, with the food tray in hand, and went back out to the living room.
 
 "How'd it go?" Ethan asked.
 
@@ -14,7 +14,7 @@ Ethan's response to my question was also more or less what I expected.
 
 "Ethan, remember what I have taught you. This isn't how you go about collecting information." I sighed.
 
-"R-Right!" Ethan snapped. 
+"R-Right!" Ethan snapped.
 
 I know Ethan isn't suited for the front lines despite being a student of mine so I didn't continue this topic much further.
 
@@ -78,31 +78,31 @@ Ethan didn't finish his sentence as I glared at him.
 
 I let out a sigh as I looked away from him towards the room Phanna's in.
 
-"Think Phanna will get better before the Exam?" I asked signalling that I've accepted his answer.
+"Think Phanna will get better before the Exam?" I asked signaling that I've accepted his answer.
 
-"I'll make sure of it Master Mikay," Ethan responded firmly. 
+"I'll make sure of it Master Mikay," Ethan responded firmly.
 
 "Hmmm I see, then allow me to give you a hand with your pre-exam assessments. After all, I can't let myself be the reason that the exams for next term aren't carried out properly."
 
 Ethan was shocked at my proposal and let out a big smile.
 
-"Yes! I, no we, would be completely honoured!"
+"Yes! I, no we, would be completely honored!"
 
 Ethan quickly activated his communication bracelet and contacted someone who was currently on school grounds.
 
-"Mikay has just offered to help us with the pre-exam assessments!!!" Ethan shouted excitedly into his bracelet but I paid him no mind. 
+"Mikay has just offered to help us with the pre-exam assessments!!!" Ethan shouted excitedly into his bracelet but I paid him no mind.
 
 I don't know how many applicants I'll be assessing but that was trivial to me at this point.
 
 As long as the exams would end up being properly conducted and the duties of the school fulfilled, then a few extra applicant assessments were perfectly fine by me.
 
-Ethan spoke into his bracelet for a while before he finally turned to me again. 
+Ethan spoke into his bracelet for a while before he finally turned to me again.
 
 "I... I'm sorry Master Mikay but... we aren't able to re-order the assessment schedule this late into the assessment process to allow you to assess the top applicants..." Ethan told me disappointingly.
 
-"Ethan, please, enough with all this overcomplicating. I said I'd help assess the applicants, I didn't say I would assess the best applicants." I scolded. 
+"Ethan, please, enough with all this over-complicating. I said I'd help assess the applicants, I didn't say I would assess the best applicants." I scolded.
 
-"R-right!" Ethan snapped and began eagerly speaking into his bracelet again. 
+"R-right!" Ethan snapped and began eagerly speaking into his bracelet again.
 
 Shortly after, Ethan turned his attention to me again.
 
@@ -112,7 +112,7 @@ Shortly after, Ethan turned his attention to me again.
 
 "Uhh... Um... right, they're from a tribe of elves that have taken up residence in the northern mountains a year or so ago. They're located around the waterfall region. Both applicants are located there."
 
-"Hmm..." 
+"Hmm..."
 
 Everything Ethan said so far mostly seems normal since tribes move in and out of the region quite often.
 
@@ -128,7 +128,7 @@ And as I suspected, Ethan continued explaining the situation.
 
 The energy in Ethan's voice weakened as he finished his words.
 
-I had a feeling that Ethan already knew I understood what he was implying; he initially considered completely ignoring the elves applications. 
+I had a feeling that Ethan already knew I understood what he was implying; he initially considered completely ignoring the elves applications.
 
 After all, I was once a teacher at the school and was very familiar with its inner workings.
 
@@ -158,7 +158,7 @@ That fact particularly annoyed me, and I had a feeling that Ethan knew this.
 
 Now that's an action I haven't seen in quite a while.
 
-How nostalgic. 
+How nostalgic.
 
 "Please take good care of Phanna while I'm away," I said as I returned a slightly less energetic salute and departed.
 
@@ -180,7 +180,7 @@ I was fully confident that my Sphere of Influence was larger than anyone else's 
 
 But somehow, I have not detected any attempts to attack me yet.
 
-I landed on a branch and took another leap. 
+I landed on a branch and took another leap.
 
 Maybe I should wait for an ambush?
 
@@ -190,7 +190,7 @@ The elven territorial defenders would surely escort me to their base after.
 
 I landed on another branch and activated Defense before dropping down to the forest floor as I had planned on walking the rest of the distance to the waterfall.
 
-The waterfall isn't much further from here and walking the rest of the way doesn't seem too bad. 
+The waterfall isn't much further from here and walking the rest of the way doesn't seem too bad.
 
 I studied my environment as I walked and concluded that I was already in elven territory.
 
@@ -204,9 +204,9 @@ I turned around and noticed a dart on the floor and immediately looked towards t
 
 No abilities were active from its general direction.
 
-"I am..." 
+"I am..."
 
-My self-introduction was cut short as a group of elf warriors jumped at me from different directions. 
+My self-introduction was cut short as a group of elf warriors jumped at me from different directions.
 
 Various instances of physical type abilities were activated all around me as the group of elves rushed at me.
 
@@ -220,7 +220,7 @@ Feeling like I had a bit of time, I began my self-introduction again.
 
 "I am Master Mikay. I am here on behalf of the Mastery League's school in Mountain Pass. I am here to assess the applicants Amanda and Hannah for their eligibility to partake in the school's entrance exam." I announced in a commanding voice.
 
-After my announcement, I could hear whispers all around me. 
+After my announcement, I could hear whispers all around me.
 
 "a master..."
 
@@ -268,9 +268,9 @@ After Patrisha escorted me to the camp, she began giving orders to some of the o
 
 She didn't leave my side so I felt a bit uneasy looking around but I did anyway.
 
-I could tell that this camp wasn't the main camp. 
+I could tell that this camp wasn't the main camp.
 
-For one, it was way too far from the waterfall. second, there were far too few tents around to support a tribe big enough to successfully capture and hold such a large area. 
+For one, it was way too far from the waterfall. second, there were far too few tents around to support a tribe big enough to successfully capture and hold such a large area.
 
 That's why I concluded that this place was likely an outpost of some kind.
 
@@ -312,15 +312,15 @@ it was Amanda.
 
 "That's fine. let's begin then. First off, a few short questions." I said as I extruded a stone tablet out of the ground with Forgemaster.
 
-The elves around me whispered as I did this but I paid them no attention. 
+The elves around me whispered as I did this but I paid them no attention.
 
 "let's start off with something easy. what are the skills you can use."
 
 "Quicken, Strengthen and Investigation" she answered.
 
-As she did, I marked her response down on the stone tablet with Forgemaster. 
+As she did, I marked her response down on the stone tablet with Forgemaster.
 
-"Next question, which ability are you most familiar with?" 
+"Next question, which ability are you most familiar with?"
 
 "Quicken"
 
@@ -330,13 +330,13 @@ As she did, I marked her response down on the stone tablet with Forgemaster.
 
 I continued to ask questions one after another and recorded the answers on the stone tablet as I went.
 
-At this point, the questions just came out like flowing water. 
+At this point, the questions just came out like flowing water.
 
 It's as if time just disappeared as the questions went on, one by one.
 
 After the questions were all answered, I quickly snapped out of my daze and placed the stone tablet on the ground and picked up a stick.
 
-"Alright now for the real trial. You ready Amanda?" 
+"Alright now for the real trial. You ready Amanda?"
 
 Amanda gave me a nod.
 
@@ -346,7 +346,7 @@ I drew a small circle around me with the stick the tossed it to the side.
 
 I can see Patrisha's shocked expression as I did this as she has also kept her Inspection ability activated this whole time too.
 
-With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumped at me right after. 
+With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumped at me right after.
 
 Frontal attack to my gut, but I caught her strike in my palm.
 
@@ -354,7 +354,7 @@ A spinning roundhouse kick to follow up, but I caught that one with my forearm.
 
 Her foot bounced off my forearm so she tried a low sweep with her other foot.
 
-But I hopped over with a small jump. 
+But I hopped over with a small jump.
 
 Incoming backhand chop, but I push right off it and planted myself on the ground within the circle again.
 
@@ -362,17 +362,17 @@ A direct tackle against me, but I pushed back and sent her flying in return.
 
 Not willing to give up, Amanda got up immediately and tried again this time with different tactics.
 
-Of course, that didn't change much and she ended up flying again. 
+Of course, that didn't change much and she ended up flying again.
 
 This continued again and again for almost an hour until she finally gave up with scratches scrapes and bruises all over her body.
 
 Amanda looked like she could hardly get up.
 
-Honestly, I felt bad for her but I had to do what I must. 
+Honestly, I felt bad for her but I had to do what I must.
 
 She definitely lasted longer than I had expected.
 
-Most applicants only try when they can keep their abilities active and only for a couple of ability activation rounds. 
+Most applicants only try when they can keep their abilities active and only for a couple of ability activation rounds.
 
 I picked up the stone tablet again and noted down my thoughts before creating another one with Forgemaster again.
 
@@ -384,19 +384,19 @@ I looked towards Hannah.
 
 "Alright, let's begin with the questions then," I said.
 
-Hannah answered with a nod. 
+Hannah answered with a nod.
 
 The questioning process was very similar to Amanda's questioning session and many of her answers were similar too.
 
 And then, the physical test, the exact same Physical test I had Amanda do.
 
-Hannah was shaking nervously when I told her the rules but she quickly shook it off and made her attempt at pushing me out of the circle. 
+Hannah was shaking nervously when I told her the rules but she quickly shook it off and made her attempt at pushing me out of the circle.
 
-In almost all regards, she was like a weaker version of Amanda. 
+In almost all regards, she was like a weaker version of Amanda.
 
 Hanna can keep 2 abilities active at once, yes, but for far shorter than Amanda can.
 
-Her single ability activation duration wasn't that long either and she gave up around 10 minutes into her trial. 
+Her single ability activation duration wasn't that long either and she gave up around 10 minutes into her trial.
 
 Hannah definitely wasn't in the best shape but
 compared to Amanda, Hannah was practically unscathed.
@@ -405,9 +405,9 @@ I noted down my thoughts on her and picked up the other stone tablet.
 
 I waved to Patrisha once I was done noting down my thoughts but she was talking to someone on the side.
 
-Thinking that she was probably giving orders to someone, I decided to wait a bit until she was done. 
+Thinking that she was probably giving orders to someone, I decided to wait a bit until she was done.
 
-I could return home on my own but it felt a bit awkward just leaving like this so I continued to wait. 
+I could return home on my own but it felt a bit awkward just leaving like this so I continued to wait.
 
 Soon, Patrisha was done talking and came over to me.
 
@@ -417,9 +417,9 @@ Beside her was another elf girl who was the first to speak up.
 
 I looked at this shy girl and something about her reminded me of Ethan.
 
-She had a piece of tree bark in her hands and she was shivering with fear. 
+She had a piece of tree bark in her hands and she was shivering with fear.
 
-"Sure why not," I said taking the tree bark from her hands. 
+"Sure why not," I said taking the tree bark from her hands.
 
 'Melody' it read.
 
@@ -429,13 +429,13 @@ I put her bark and the two tablets from earlier down and created a third tablet.
 
 "Well, since I'm here already, let's get this trial started," I said.
 
-Melody's eye lit up with happiness when I said that. 
+Melody's eye lit up with happiness when I said that.
 
 "what are the skills you can use."
 
 "Quicken, Strengthen, Investigation, heat and cool" she answered.
 
-"Which ability are you most familiar with?" 
+"Which ability are you most familiar with?"
 
 "Quicken"
 
@@ -461,7 +461,8 @@ She was able to change her ability fast enough that she might as well have been 
 
 I noticed that she was using Quicken to accelerate her approach, then, she'd switch to using Heat or Cool when she was in striking distance.
 
-However, she really wasn't making contact with me for long enough for this to work onme.
+However, she really wasn't making contact with me for long enough for this to work on
+me.
 
 By the 20 minute mark, Melody has fully used up her third ability activation duration and is now charging at me with no abilities active.
 
@@ -471,7 +472,7 @@ by 40 minutes, Melody was looking like she was in just as bad a shape as Amanda 
 
 Melody seemed like she could barely stand up but she kept coming.
 
-She had no abilities active anymore at this point yet somehow she kept charging and charging. 
+She had no abilities active anymore at this point yet somehow she kept charging and charging.
 
 I caught her last tackle, took a step back and held on to her gently but she tried her best to shake me off.
 
@@ -491,13 +492,13 @@ she asked.
 
 "Yes, yes you did" I answered.
 
-She definitely tried as best she could. 
+She definitely tried as best she could.
 
 Honestly, she reminded me of Ethan.
 
-I remember I did the same thing to Ethan when he was doing the pre-exam trials. 
+I remember I did the same thing to Ethan when he was doing the pre-exam trials.
 
-I felt like his life was in danger if he kept trying but he did. 
+I felt like his life was in danger if he kept trying but he did.
 
 At that point, I had no choice but to let him win.
 
@@ -527,33 +528,33 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 "R-right..."
 
-"Don't worry, just leave it to the teachers at the school," I said reassuringly. 
+"Don't worry, just leave it to the teachers at the school," I said reassuringly.
 
-"You're right Master Mikay," Patrisha said looking a bit relieved. 
+"You're right Master Mikay," Patrisha said looking a bit relieved.
 
-"Will you be leaving now Master Mikay?" Patrisha asked after gaining her composure. 
+"Will you be leaving now Master Mikay?" Patrisha asked after gaining her composure.
 
 "Yes," I replied.
 
-"I see, let me walk you to the edge of our territory." 
+"I see, let me walk you to the edge of our territory."
 
 "Thanks."
 
 ## <center>...<center>
 
-By the time I got home, Ethan had already passed out. 
+By the time I got home, Ethan had already passed out.
 
-It was dark too, so dark in fact that I had to light the way home with fire created by Pyromancer. 
+It was dark too, so dark in fact that I had to light the way home with fire created by Pyromancer.
 
 I placed the stack of stone tablets and Melody's application tree bark on the ground in front of Ethan and went off to bed myself.
 
-For some reason, Phanna was still awake and tormenting Pillow. 
+For some reason, Phanna was still awake and tormenting Pillow.
 
-Seeing this, I started getting the feeling that Phanna was probably nocturnal 
+Seeing this, I started getting the feeling that Phanna was probably nocturnal
 
 That'd be bad...
 
-## <center>...<center> 
+## <center>...<center>
 
 <center><a href="./dEUBB5Iq">Next Chapter</a></center>
 

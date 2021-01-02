@@ -1,1 +1,1 @@
-touch "./have-and-havenot/$(randomstring -l 8).md"
+touch "./from-me-to-me/$(randomstring -l 8).md"
