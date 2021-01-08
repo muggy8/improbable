@@ -6,7 +6,7 @@ After completing the grueling task of convincing Phanna to take the exam, I left
 
 "Don't you know the answer to that question already?" I asked back.
 
-I knew that Ethan was listening in to our conversation since I've caught him doing that a few times before.
+I knew that Ethan was eavesdropping on our conversation since I've caught him doing that a few times before.
 
 Ethan's response to my question was also more or less what I expected.
 
@@ -44,7 +44,7 @@ I was worried about the school.
 
 The entrance exams for the next term will be taking place a few days from now so I was sure there was a mountain of work that he needed to do.
 
-I remember from the days when Aurora used to be the principal of the school before she passed.
+I remember from the days when Aurora used to be the principal of the school before her passing.
 
 The weeks leading up to the entrance exams where often the busiest.
 
@@ -62,7 +62,7 @@ I looked sternly into Ethan's eyes.
 
 Ethan took the queue and finally gave me an honest answer.
 
-"Well... I can't say that everything is completely fine... Most things are fine since I've been able to maintain contact with the teachers from here."
+"Well... I can't say that everything is completely fine... Most things are fine since I've been able to maintain contact with the other teachers from here."
 
 I gave Ethan a nod to continue.
 
@@ -136,7 +136,7 @@ And honestly, I can't say I blame him.
 
 I had a feeling that Ethan was the only Master in the school and the other teachers are all only Proteges since all of the Masters who were taking care of the school before Ethan were...
 
-Either way, Ethan explained the situation almost perfectly confirmed my suspicion.
+Either way, Ethan's explanation of the situation almost perfectly confirmed my suspicion.
 
 Additionally, Ethan himself is almost entirely unfit for front line duties like this.
 
@@ -174,7 +174,7 @@ But my body just isn't what it used to be.
 
 Leaping off another branch, I was finally able to make eye contact with the waterfall.
 
-Investigation had been active since long before I reached the base of the mountain but I have yet to notice any active abilities.
+Investigation had been active since long before I reached the base of the mountain but I have yet to notice any other active abilities.
 
 I was fully confident that my Sphere of Influence was larger than anyone else's here which means my detection radius should trump anyone else's as well.
 
@@ -228,13 +228,13 @@ After my announcement, I could hear whispers all around me.
 
 "he's just an old man..."
 
-But shortly after, one person stepped up before me and spoke.
+But shortly after, one person stepped up to me and spoke.
 
 She was probably the one in charge here.
 
 "You claim to be a Master, can you prove it?"
 
-"Can you use Investigate?" I asked in return.
+"Can you use Investigation?" I asked in return.
 
 "Yes," she replied.
 
@@ -248,11 +248,11 @@ But I didn't give her much thought.
 
 I already had Pyromancer activated to maintain the ring of fire around me so that was one active Innate Ability already.
 
-I activated Forgemaster and extruded a pillar of stone out of the ground beneath me elevating me above the flames.
+I activated Forgemaster and extruded a pillar of stone out of the ground beneath me to elevate me above the flames.
 
 Another active Innate Ability.
 
-As that happened, I activated Twister and around my ring of fire to create a small flame vortex centred around me.
+As that happened, I activated Twister around my ring of fire to create a small flame vortex centred around me.
 
 "Th-Three Innate Abilities," the elf leader said in shock.
 
@@ -262,7 +262,7 @@ I, too, deactivated most of my abilities in return keeping only Investigation ac
 
 "Master Mikay, sorry for the attack earlier. Please accept our apology. I am Patrisha and this is my team."
 
-Patrisha bowed deeply as she spoke then turned to her team and instructed them to return to their tasks while she escorts me to their main camp.
+Patrisha bowed deeply as she spoke then turned to her team and instructed them to return to their tasks while she escorted me to their main camp.
 
 After Patrisha escorted me to the camp, she began giving orders to some of the other elves who were around.
 
@@ -274,7 +274,7 @@ For one, it was way too far from the waterfall. second, there were far too few t
 
 That's why I concluded that this place was likely an outpost of some kind.
 
-The trees branches seemed to have smooth bark on many areas suggesting that those branches were climbed on often.
+The tree branches here seemed to have smooth bark on many areas suggesting that those branches were climbed on often.
 
 Shortly after, a group of elves jumped down from the treetops and landed in front of me.
 
@@ -286,7 +286,7 @@ The two of them look remarkably similar, more so than any other elves.
 
 I was curious about why there were quite a few others around when Patrisha spoke up again.
 
-"Master Mikay, I hope it's fine with you but we have a number of others who would like to witness the pre-exam trials would that be ok with you?"
+"Master Mikay, I hope it's fine with you but we have a number of others who would like to witness the pre-exam trials. Would that be ok with you?"
 
 "Oh. ya, that's fine."
 
@@ -340,11 +340,11 @@ After the questions were all answered, I quickly snapped out of my daze and plac
 
 Amanda gave me a nod.
 
-I drew a small circle around me with the stick the tossed it to the side.
+I drew a small circle around me with the stick then tossed it to the side.
 
 "Do whatever you can to make me step out of this circle, no restrictions. Begin whenever you're ready and quit whenever you feel like" I said as I activated 3 instances of each of Quicken, Strengthen and Defense.
 
-I can see Patrisha's shocked expression as I did this as she has also kept her Inspection ability activated this whole time too.
+I can see Patrisha's shocked expression as I did this for she has also kept her Inspection ability activated this whole time too.
 
 With my own Inspection still active from before, I was able to see Amanda activating two different physical type abilities as she immediately jumped at me right after.
 
@@ -360,11 +360,11 @@ Incoming backhand chop, but I push right off it and planted myself on the ground
 
 A direct tackle against me, but I pushed back and sent her flying in return.
 
-Not willing to give up, Amanda got up immediately and tried again this time with different tactics.
+Not willing to give up, Amanda got up immediately and tried again, this time, with different tactics.
 
 Of course, that didn't change much and she ended up flying again.
 
-This continued again and again for almost an hour until she finally gave up with scratches scrapes and bruises all over her body.
+This continued again and again for almost an hour until she finally gave up with scratches, scrapes, and bruises all over her body.
 
 Amanda looked like she could hardly get up.
 
@@ -380,7 +380,7 @@ I looked towards Hannah.
 
 "Ready?" I asked.
 
-"Yes," said Hannah looking at me a bit intimidated but stepping in front of me anyways.
+"Yes," said Hannah looking a bit intimidated but she made her way to me anyways.
 
 "Alright, let's begin with the questions then," I said.
 
@@ -401,7 +401,7 @@ Her single ability activation duration wasn't that long either and she gave up a
 Hannah definitely wasn't in the best shape but
 compared to Amanda, Hannah was practically unscathed.
 
-I noted down my thoughts on her and picked up the other stone tablet.
+I noted down my thoughts on her stone tablet and picked up Amanda's stone tablet.
 
 I waved to Patrisha once I was done noting down my thoughts but she was talking to someone on the side.
 
@@ -429,7 +429,8 @@ I put her bark and the two tablets from earlier down and created a third tablet.
 
 "Well, since I'm here already, let's get this trial started," I said.
 
-Melody's eye lit up with happiness when I said that.
+Melody's eyes
+ lit up with happiness when I said that.
 
 "what are the skills you can use."
 
@@ -494,7 +495,7 @@ she asked.
 
 She definitely tried as best she could.
 
-Honestly, she reminded me of Ethan.
+This too reminded me of Ethan.
 
 I remember I did the same thing to Ethan when he was doing the pre-exam trials.
 
@@ -512,7 +513,7 @@ After that, Patrisha came up to me with a concerned look on her face.
 
 "Is Melody Ok?" She asked.
 
-"Not sure, I can return tomorrow with a healer if you don't have a clerk in your camp" I answered.
+"Not sure, I can return tomorrow with a healer if you don't have a healer in your camp" I answered.
 
 "N-no that's quite alright, we have healers in the camp to help out too. I'm just worried about Melody." Patrisha continued.
 
