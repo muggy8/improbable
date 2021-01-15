@@ -20,7 +20,7 @@ I had suspected that over the past weeks when Phanna was sick and I was performi
 
 No matter how late I returned, Phanna would always still be awake.
 
-Fortunately, Phanna's illness is in the past now thanks to Ethan's hard work.
+Fortunately, Phanna's illness has been cured now thanks to Ethan's hard work.
 
 Ethan, on the other hand, was rather disappointed when Phanna fully recovered and he no longer had a reason to stay here every day. 
 
@@ -71,7 +71,7 @@ Judging by Phanna's figure, Aurora's old clothing would probably fit just fine.
 
 There was a closet under the bed for storing Aurora's belongings. 
 
-I started looking through some of it and found a set that I remember looked rather good on Aurora back in the day. 
+I started looking through some of it and found a set that I remember looking rather good on Aurora back in the day. 
 
 I took it with me and went to the washroom. 
 
@@ -87,9 +87,9 @@ But, to be fair, I had no idea what Phanna's cleaning tools or habits are like
 
 It's only natural for things here to be mysterious to Phanna.
 
-I pointed to the large barrel on the corner of the room and explained.
+I pointed to the large barrel in the corner of the room and explained.
 
-"You fill that up with water. You can heat the water up with a fire if you want. You can see the space at the bottom of the barrel is for putting firewood in. How hot do you want the water, I can heat it up for you today with my Ability."
+"You fill that up with water and wash yourself in it. There's a space at the bottom of the barrel for putting firewood in so you can heat the water up with a fire if you want. How hot do you want the water, I can heat it up for you today with my Ability."
 
 "Oh... That sounds needlessly complicated..,"
 
@@ -99,7 +99,7 @@ I pointed to the large barrel on the corner of the room and explained.
 
 "Right right, anyways. I'll fill this up for you this time."
 
-I attached a tube from the well pump and placed it into the barrel and started pumping groundwater into the barrel.
+I attached a tube from the ground water pump and placed it into the barrel and started pumping groundwater into the barrel.
 
 After the barrel is about 70% full. I stopped pumping and started heating up the water inside with my Heat ability.
 
@@ -113,7 +113,7 @@ Not too long after, the water was at that temperature and letting off a bit of s
 
 "Alright Phanna, get yourself washed and changed," I said.
 
-But before I could finish, Phanna climbed into the barrel already and was sitting in it with everything they were originally wearing still on. 
+But before I could finish, Phanna climbed into the barrel  and was sitting in it with everything they were originally wearing still on. 
 
 "What are you doing?!" I exclaimed.
 
@@ -141,7 +141,7 @@ I think at this point Phanna knows that I don't really want to listen to Phanna'
 
 "Why do I have to change..." Phanna moaned in response.
 
-"You've been wearing your old stuff for more than 2 weeks now. It's got to be extremely dirty now."
+"You've been wearing your old stuff for more than 2 weeks already. It's got to be extremely dirty by now."
 
 "Uggh... Fine..." Phanna commented while rolling their eyes.
 
@@ -157,7 +157,7 @@ Phanna, on the other hand, was summoned with just a shirt and shorts, nothing el
 
 I wasn't sure what to do.
 
-The safest thing to do is to make sandals but Phanna isn't going out for a walk, it's the School of Mastery entrance exams. 
+The safest thing to do is to make sandals but Phanna isn't going out for a walk, it's the School of Mastery's entrance exams. 
 
 Sandles are definitely not fit for such an occasion. 
 
@@ -201,7 +201,7 @@ I wonder if Ethan noticed it earlier during the various inspections.
 
 "What modifications do you need?" I asked begrudgingly.
 
-"First, it should. fit the curve of my feet. Second, it needs to be flexible both in terms of being able to bend along the main arch as well as allowing my toes to spread out. Lastly, it should be able to wrap around my feet so it doesn't slip off." Phanna answered as if taunting me.
+"First, it should fit the curve of my feet. Second, it needs to be flexible both in terms of being able to bend along the main arch as well as allowing my toes to spread out. Lastly, it should be able to wrap around my feet so it doesn't slip off." Phanna answered as if taunting me.
 
 "You basically want a glove for your feet?"
 
@@ -237,7 +237,7 @@ By the time the school grounds were fully within my Sphere of Influence, I had n
 
 The source of these abilities was, unmistakeably, the faculty members of the school. 
 
-Ethan was already giving his speech in the middle of the field when Phanna and I got close to the school ground.
+Ethan was already giving his speech in the middle of the field when Phanna and I got close to the school grounds.
 
 I didn't want to draw attention to us so I activated Camouflage to hide Phanna and me as we made our approach. 
 
@@ -247,13 +247,13 @@ As if exactly on cue, one of the faculty members came up to us under Camouflage 
 
 I didn't exactly recognize who it was because of the Camouflage but they were quite excited as they quietly caught us up on what's happening. 
 
-"Master Mikay, it's really an honour to have you join us. Principal Ethan is currently just giving the welcoming section of the speech. Please make your way over to the Judging stand."
+"Master Mikay, it's really an honour to have you join us. Principal Ethan is currently just giving the welcoming section of the speech. Please make your way over to the Judging area."
 
 "Thank you. What should Phanna do?"
 
 "Is Phanna able to make it over to the benches unnoticed?" the faculty member asked.
 
-"Are you able to Phanna?" I asked as I poked Phanna.
+"Are you able to, Phanna?" I asked as I poked Phanna.
 
 "Do I have to?"
 
@@ -303,7 +303,7 @@ As Phanna's infiltration finished, a member of the judging panel beside me infor
 
 Of course, I haven't really been listening to Ethan's speech as I was focused on watching Phanna's movements.
 
-That and I didn't really feel the need to listen to Ethan's speech that closely since I've heard it countless times before when I was once a teacher in this school and sat through the same exact speech time and time again for years. 
+That, and I didn't really feel the need to listen to Ethan's speech that closely since I've heard it countless times before when I was once a teacher in this school and sat through the same exact speech time and time again for years. 
 
 Then again, at the time, the person giving the speech was Aurora which made the speeches easier to sit through, at least for me.
 
@@ -327,7 +327,7 @@ I couldn't exactly make out who they were but if I had to guess, they're the one
 
 This time, not only the prospective students were clapping but also many of the onlookers as well.
 
-I let out a sigh and made my way over to where the rest of the judging panel was now standing in the middle of the field.
+I let out a sigh and made my way over to the middle of the field where the rest of the judging panel was now standing.
 
 ## <center>~<center>
 

@@ -48,13 +48,13 @@ But at this point, any comfort was better than none.
 
 I sat there sitting, hugging, thinking.
 
-What did I just experiance?
+What did I just experience?
 
 What am I supposed to live for?
 
 Why did I stop him?
 
-What was I thining?
+What was I thinking?
 
 Killed me once already?
 
@@ -62,5 +62,5 @@ None of it made any sense.
 
 Nothing made any sense.
 
-As I sat there, I curled up more around the blob. 
+As I sat there, I curled up more hugging the blob. 
 
