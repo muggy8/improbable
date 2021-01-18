@@ -100,7 +100,11 @@ Maybe that playful careless look is what makes him so feel much more powerful an
 
 Having noticed my gaze, Phanna turned his head towards me.
 
-"Hey Melody, can you give me a bit of assistance"
+"Feeling a bit better now?" Phanna asked.
+
+I gave him a weak nod.
+
+"I feel a bit bad for asking this since you're kinda in the rut right now but can you give me a bit of assistance"
 
 I was a bit taken by surprised by Phanna's request.
 
@@ -117,3 +121,55 @@ There were giant wounds on his arms in the shape of hands from when Master Mikay
 "No, I'm sorry" Phanna replied immediately.
 
 As I fully made my way out of the glass box, Phanna began speaking once more.
+
+"I really wanted to help you way back durig the exam. But it turned into this twisted situation."
+
+Phanna seemed so sincere in the way he spoke it took me by surprise.
+
+I wasn't even sure if there was anything that even Phanna could have done to help me then, but my curiosity got the best of me.
+
+"Wh-why?  Why did you want to help me?" I asked.
+
+"I don't know, I saw a bit of myself in you I guess."
+
+What part of Phanna could he see in a failure like me...
+
+Well I guess I did try to end my own life...
+
+"I... I see..." was all I was able to muster up as Phanna lead me to the bathroom down the hallway.
+
+Inside the bathroom, I saw a strange looking rod sticking out of the ground with another one attached to the top of it near the center of the wall to our side.
+
+It seemed like the rest of the room was build around this singular pipe with a barrle to the back and a shallow water container closer to the door.
+
+There was another strange thing on the opposit wall offacing the tube sticking out of hte gorund that seemed to be for sitting on but I couldn't quite fgure out what it was or what it was for.
+
+"Melody, can you fill the barrle there with water and heat it up?" Phanna asked.
+
+"H-How?"
+
+"Oh, that thing there is a water source of some kind. I saw Mikay draw some water out of it a while back. I think you're supposed to move the leaver up and down to to get water out I think." said Phanna pointing to the wet pipe with the werid handle by the wall.
+
+I walked over to the pipe and started moving the handle up and down.
+
+It was heavy, I could barely lift it up but I gave it my best anyways.
+
+Soon enough, water was flowing slowy out of the pipe and onto the floor.
+
+"Ah!" I yelped.
+
+"Oh right, I think you need to connect that to the top to get water to where it needs to go" said Phanna pointing what seemed like a rope beneeth the shallow bow.
+
+I followed Phanna's instructions and attached one end to the top of the pipe and threw the other end into the barrle and began drawing water once again.
+
+After a short while, I was exhausted and sat down on the chair looking thing on the other side to catch my breath.
+
+"Wh... What happened to Master Mikay" I asked completely out of breath.
+
+I haven't seen him around since he left the room with the glass box earlier and I had a feeling that he wasn't around right now.
+
+"he went out to get some food or something like that." answered Phanna looking into the barrel.
+
+"I see..."
+
+
