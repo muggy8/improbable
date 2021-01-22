@@ -172,4 +172,56 @@ I haven't seen him around since he left the room with the glass box earlier and 
 
 "I see..."
 
+...
 
+"Does it hurt?" I asked Phanna as I finished filling the barrel with water.
+
+"Ah, This?" Phanna asked lookinging at at his arms before continueing, "It's ok, It stings a little but it's  healing already. I've disabled most of the pain receptors in the area since they aren't exactly useful right now."
+
+"So it doesn't hurt?"
+
+"Well it does, but I don't really feel most of it right now."
+
+"I see..."
+
+After hearing my reply, Phanna dipped his face into the water before lifting it out again.
+
+"Ah what are you doing?" I said in surprise.
+
+"Just checking the tempreture of the water. I cant really use my arms or hands for anything right now so my face will kind of have to do."
+
+I was still a bit confused but I had a general idea of what was happening.
+
+"That said, it is a bit cold for my liking, Not sure if you can heat it up for me. Though I kind of feel bad for asking so much of you."
+
+"Oh, Um, sure." I answered.
+
+I guess Phanna really isn't able to use Abilities at all. I thought as I walked close enough to the barrel to cover it entirely in my Sphere of Influence.
+
+Once the barrel was fully within my Sphere of Influence, I activated Heat and warmed up the water rapidly until a bit of steam was coming off the top of the barrel.
+
+"Hmm..." was the only thing that Phanna said during the whole process.
+
+"I think it sould be warm enough." I said once I reached the limit for how long I can keep an ability active.
+
+"Thanks," Phanna replied as he dipped his face into the water again.
+
+"Perfect!"
+
+And with that, Phanna got into the barrel with all of his cloths still on.
+
+"Ah, your cloths!" I yelped in surprise for who knows how many times it's been already.
+
+"What about them?" Phanna asked looking a bit confused with his arms hanging over the side of the barrel.
+
+"They're all wet now..."
+
+"Ya so?"
+
+"Isn't that uncomfortable? And wont they take a long time to dry? You're going to catch a cold after too if you wear wet cloths around."
+
+"Huh?" Phanna seemed really confused by my question.
+
+"Um... Uhhh...." I was lost for words and it seems like Phanna was too.
+
+"Um... Please enjoy your bath!" I said a little embarrased as I quickly existed the bathroom.
