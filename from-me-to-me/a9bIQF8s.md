@@ -16,19 +16,11 @@ I can't think...
 
 I looked emptily into Phanna's eyes unsure of what I myself was even thinking or feeling.
 
-"I've already killed you once, please don't make me do it again." Phanna said as if replying to my gaze.
+Slowly, Phanna stood up, rubbed my head and left the glass box saying.
 
-But that only confused me more.
+"I'll give you some time to think things through yourself."
 
-I felt my jaw drop and my eyes twitch as I failed to understand the meaning of those words.
-
-"Phanna, please stop... whatever it is that you're doing. Melody is clearly not taking it too well."
-
-Mikay's words, too, completely washed over me as none of it made any sense.
-
-For some raeason, Phanna reluctantly responded to Mikay's words and stood up, rubbed my head and left the glass box.
-
-Mikay was quick to follow behind phanna in leaving the box.
+At Phanna's voice, Mikay quickly followed behind phanna and left the box.
 
 Soon enough, I was all alone in this room. 
 
@@ -52,11 +44,59 @@ What did I just experience?
 
 What am I supposed to live for?
 
+What do I have to live for?
+
 Why did I stop him?
 
 What was I thinking?
 
-Killed me once already?
+If only I could relive that instant again.
+
+What would I have done if I had the chance?
+
+Would I have stopped Phanna again if that happened.
+
+I didn't know the answer but I had a feeling that I were to relive those events again without knowing what I did now, I would have made the same choices.
+
+But why?
+
+What DO I have to live for?
+
+I've spent my whole life as the laughing stock of the my party and made my party the laughting stock of the whole tribe.
+
+If it wasn't for me, our party wouldn't be seen as the failure of our elven colony.
+
+All I've ever been was missfortune.
+
+All I've ever been was a waste of resources. 
+
+I'd always did was get myself into trouble, endanger everyone else in my party, even cause us to lose our catch time and time again.
+
+No, I didn't just endanger my party, I caused harm to my party from my incomptiance.
+
+I caused our catch to go free.
+
+I caused our party to go hungry.
+
+I'm always causing trouble, I'm alwasy getting scolded.
+
+I dont even remember the last time I did something and wasn't scolded for it.
+
+In fact, I don't even remmeber the last day where I wasn't scolded for something.
+
+I'm such a failure.
+
+It's all my fault.
+
+I've done nothing good.
+
+Yet here I am even now.
+
+What have I done in my life that would make this life worth living?
+
+What did I have to live for?
+
+No, what DO I have to live for?
 
 None of it made any sense. 
 
