@@ -126,7 +126,7 @@ I'll have to ask Phanna what he means by killing me twice sometime...
 
 Relaxing my grip on the blob a bit, I looked up out of my glass box only to find Phanna sitting on the bed across from the glass box I was in.
 
-He was no longer wearing the strange frilly torn outfit that he was wearing earlier and instead was wearing some strangely shaped shirt and shorts that didn't reach his knees.
+He was no longer wearing the strange frilly torn outfit that he was wearing earlier and instead was wearing some strangely shaped shirt and shorts that didn't reach his knees with what seemed to be longer sleeved pants under the shorts.
 
 These clothing looked strangely loose, comfortable, and flimsy and giving Phanna a playful look.
 
