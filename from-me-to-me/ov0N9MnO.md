@@ -50,7 +50,51 @@ That's why I didn't quite understand this action that other humanoids engaged in
 
 "Fight? Well I wouldn't call what we're doing fighting but more of giving voice to our differing values."
 
-Phanna's answer still left me confused but it also gave me a slight feeling of relief knowing that they weren't well and truly fighting.
+"Does this happen often?"
 
-If someone like Phanna and Master Mikay faught, who would have known what kind of damages would result.
+"Hmm... well... I guess it does."
+
+"Why would you do that? It's like you're trying to get on  Mikay's bad side..."
+
+"It's more like Mikay is actively trying to  get on my bad side and I'm just giving him a piece of my mind."
+
+"R-really? Aren't you scared of Mikay?"
+
+"Scared? of what?"
+
+"You know, he's a Master and all. If he really wanted to, he'd probably be able to kill you without..."
+
+I found myself going quiet when I realized what I just said.
+
+Phanna doesn't care about dying, in fact, he's actively trying to do that... Just like me...
+
+Saying that something is life threating to him probably doesn't mean anything to him at all...
+
+Yet even knowing this and feeling the way that I do, I doubt I'd be doing what Phanna's doing.
+
+Why is that?
+
+What makes us so different?
+
+Does that really mean that Phanna has fully given up and I haven't?
+
+But what pushes me forwards?
+
+What is it that keeps me clining on to life?
+
+As if noticing my inner trubles, Phanna swung his arm over my shoulders.
+
+"You dont have too worry about me." Phanna said after swining his arm over me.
+
+The giant rips in the flesh of his arms was right next to me in clear view.
+
+If the blood on his wounds weren't dry, I'm dure my light hunting armor would be stained by it now.
+
+Just looking at the injury hurts.
+
+Yet Phanna here doesn't give the slightest thought to that and is prioritizing me above his own injuries.
+
+If our roles were reverse, would I have done the same?
+
+What could have happened to cause this?
 

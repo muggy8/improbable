@@ -265,3 +265,7 @@ And with that, Phanna got into the barrel with all of his cloths still on.
 "Um... Uhhh...." I was lost for words and it seems like Phanna was too.
 
 "Um... Please enjoy your bath!" I said a little embarrased as I quickly existed the bathroom.
+
+## <center>~<center>
+
+<center><a href="./ov0N9MnO">Next Chapter</a></center>
