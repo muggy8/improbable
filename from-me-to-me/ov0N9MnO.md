@@ -192,6 +192,61 @@ All I could do was to follow Phanna's command and stood up.
 
 "NO! You are in no condition to do anything of the sort. Stop! No!"
 
-I didn't say a word during this exchange, or more accurately, couldn't say a single world during this exchange.
+I didn't say a word during this exchange, or more accurately, couldn't say a single world during this exchange.****
 
 ...
+
+Following Phanna's lead, we arrived at the school of the Mastery League in Mountainpass, Ethan's school as the students have began calling it. 
+
+Although the sun was setting and the sky was orange, the entire building somehow gave off an even more majestic feel than it did before under the daylight of the mid afternoon sun.
+
+In the field in front of the school building, there were 4 square patches of ground that was completely flat unlike the rest of the gravel field as if they were pressed into the ground.
+
+These areas were unmistakably the parts of the field that was raised during the day of the exam.
+
+And within one of these flattened patches of the field...
+
+"Melody, look over there." Phanna said after a sigh and pointing towards what had already caught my eye.
+
+"C-could that be..."
+
+"Want to take a closer look?"
+
+I hesitated to give an answer yet again.
+
+I didn't want to believe it, but my mind yearned for the answer and my body moved as if it had a will of it's own.
+
+it's impossiable, it's impssiable; I repeated to myself over and over again. 
+
+But like a moth to a tourch, I found myself pulled towards the corpse on the ground until I was standing right next to it.
+
+Dried blood was everywhere splattered out from where the head of the corpse would have been.
+
+It's arms, or what probably would have been it's arms, were smashed and twisted around the head.
+
+And worst of all, the stench of decaying flesh filled the air around.
+
+I felt my stomach tumbling with disgust as it tried to empty it's contents, yet nothing came up.
+
+I wasn't new to butchering corpses for food but this was far beyond what I could tollerate.
+
+Most desterbing of all, was the light leather armor that the corpse wore.
+
+It was the exact same set I was wearing, with all the recognizable scratches and markings on it that were on mine.
+
+"H-how long has this been here..."
+
+"A couple weeks I think. I'm not sure why it's still here but I have a feeling that it probably won't be for much longer."
+
+"A couple weeks? I thought the exams were today!? At the very most, yesterday!"
+
+"That's just how moving between timelines is sometimes. You find yourself in the future, sometimes, you find yourself in the past." Phanna answered with a shrug as if this was all narual somehow.
+
+yet, for me, there's nothing normal about this situation.
+
+I didn't want to believe it, I couldn't believe it.
+
+There's no way that this corpse was actually me.
+
+"M-Maybe this is someone else who has a similar outfit I'm wearing! Me and Amanda wear the same stuff afterall...! Maybe... Maybe this was someone else!!"
+
