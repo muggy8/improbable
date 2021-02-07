@@ -200,17 +200,29 @@ Following Phanna's lead, we arrived at the school of the Mastery League in Mount
 
 Although the sun was setting and the sky was orange, the entire building somehow gave off an even more majestic feel than it did before under the daylight of the mid afternoon sun.
 
+Mikay was there too, wearing something different from the hunting gear that he was wearing earlier.
+
+He looked unhappy to see us but immediately came over towards us.
+
+Feeling a little intimidated, I hid myself behind Phanna against the approaching Mikay.
+
+"And where have you two been?" Mikay asked in an accusitory tone.
+
+"Keeping out of sight, obviousley" Phanna answered in an unconcerned tone.
+
+Not wanting to get caught up in these two's echange, I looked over towards the field of Ethan's school; the place where I had supposidly died once.
+
 In the field in front of the school building, there were 4 square patches of ground that was completely flat unlike the rest of the gravel field as if they were pressed into the ground.
 
 These areas were unmistakably the parts of the field that was raised during the day of the exam.
 
 And within one of these flattened patches of the field...
 
-"Melody, look over there." Phanna said after a sigh and pointing towards what had already caught my eye.
-
-"C-could that be..."
+"C-could that be..." I whisptered softly in disbelief.
 
 "Want to take a closer look?"
+
+"No, she definately shouldn't be seeing that!" Mikay protested.
 
 I hesitated to give an answer yet again.
 
@@ -218,7 +230,15 @@ I didn't want to believe it, but my mind yearned for the answer and my body move
 
 it's impossiable, it's impssiable; I repeated to myself over and over again. 
 
-But like a moth to a tourch, I found myself pulled towards the corpse on the ground until I was standing right next to it.
+Mikay grabbed my hands trying to stop me but for some reason, my body continued moving forwards.
+
+Mikay said a few other things and probably activated some abilities but none of that registered in my mind. 
+
+All I could think about was the corpse.
+
+All i could see was the corpse.
+
+I found myself being pulled towards the corpse like a moth towards torchlight and soon enough, I was standing right next to it.
 
 Dried blood was everywhere splattered out from where the head of the corpse would have been.
 
@@ -236,11 +256,13 @@ It was the exact same set I was wearing, with all the recognizable scratches and
 
 "H-how long has this been here..."
 
-"A couple weeks I think. I'm not sure why it's still here but I have a feeling that it probably won't be for much longer."
+"A couple weeks I think." Mikay answered.
 
-"A couple weeks? I thought the exams were today!? At the very most, yesterday!"
+"A couple weeks? I thought the exams happened today!? At the very most, yesterday!"
 
-"That's just how moving between timelines is sometimes. You find yourself in the future, sometimes, you find yourself in the past." Phanna answered with a shrug as if this was all narual somehow.
+Mikay was rather surprised by my statement but Phanna just responded as if everything was completely natrual.
+
+"That's just how moving between timelines is sometimes. You find yourself in the future, sometimes, you find yourself in the past."
 
 yet, for me, there's nothing normal about this situation.
 
@@ -248,5 +270,66 @@ I didn't want to believe it, I couldn't believe it.
 
 There's no way that this corpse was actually me.
 
-"M-Maybe this is someone else who has a similar outfit I'm wearing! Me and Amanda wear the same stuff afterall...! Maybe... Maybe this was someone else!!"
+"M-Maybe this is someone else who has a similar outfit I'm wearing! Me and Amanda wear the same stuff afterall... Maybe... Maybe this was someone else..." I blurted trying to rationalized this sitaution.
 
+Phanna simply looked away while Mikay placed his hand on my shoulder.
+
+"Melody... I really didn't want you to see this but now that you have, the only thing I can do now is to apologize... for failing to save you on that day..."
+
+"H-how are you so sure that this is me..."
+
+"Can you not feel it, your Sphere of Influence? The Influence inside the corpse is reacting to the Influence inside you..."
+
+How... how did i not notice that...
+
+What Mikay said is true, I could feel my Sphere of Influence being extended from it's natural border by the corpse on the ground.
+
+Without being granted permission, there's no way for anyone to make use of another person's Sphere of Influence. 
+
+Yet here, I have full control over the Sphere of Influence of this corpse, something that should be impossiable.
+
+I know just as much as Mikay that this cant happen unless the Influence withing the corpse belonged to me.
+
+I didn't want to believe this, yet there's no way for me to deny the evidence.
+
+The Sphere of Influence of the corpse is mine.
+
+The Influence within the corpse belonged to me. 
+
+There's no way for this to be possiable except if the corpse is me.
+
+Yet, I couldn't accept this...
+
+It...
+
+It...
+
+"It... it's so unfair... why am I still alive?" I whispered with tears in my eyes.
+
+"I'm sorry" Mikay replied somehow hearing me.
+
+"Melody, I'm sorry." Phanna apoligized too.
+
+But none of there words made it to my mind.
+
+Why, why, why, why, why...
+
+All I could think about is why.
+
+Why am I still alive?
+
+Why am I dead?
+
+Why isn't the corpse me?
+
+Why is the corpse me?
+
+Why did this happen?
+
+Why didn't this happen?
+
+Why???
+
+Nothing makes sense anymore as I collapsed in tears of confusion and envy. 
+
+...

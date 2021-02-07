@@ -154,7 +154,7 @@ My gut instinct is telling me to just ignore Phanna but for some reason, even th
 
 "what?" I blurted out in surprise.
 
-"This isn't something I can just teach you like nothing. It takes years for most people to learn how to use Influence comfortably and summoning rituals are some of the most advanced ways of using Influence. Teaching someone like you how to perform Summoning Rituals would take years maybe even decades."
+"This isn't something I can just teach you like nothing. It takes years for most people to learn how to use Influence comfortably and summoning rituals are some of the most advanced ways of using Influence. Teaching someone like you how to perform Summoning Rituals would take years maybe even a life time."
 
 I found myself trying my best to turn down Phanna's request but Phanna didn't give much care to my statements and just frowned at me a bit.
 
