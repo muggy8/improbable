@@ -54,7 +54,7 @@ This was yet another thing I had to get used to.
 
 "Not really. I was just told 'human' and among other strange things."
 
-"That's basically what mr. Phanna told my sister Amanda during the exam." 
+"That's basically what mr. Phanna told my sister Amanda during the exam."
 
 "I guess that probably means Phanna at the very least believes in whatever they're saying. That or there's a reason for hiding this information from us."
 
@@ -66,7 +66,7 @@ I handed Melody a tray of food from yesterday's hunt and moved onto the topic th
 
 Although Phanna being mostly nocturnal was rather annoying most of the time, this was the one few times where Phanna being nocturnal turned out to be a positive thing for me.
 
-"Melody, what do you plan on doing from now on?" I asked watching her eat. 
+"Melody, what do you plan on doing from now on?" I asked watching her eat.
 
 Melody froze up in the middle of her eating upon hearing my question.
 
@@ -82,12 +82,61 @@ Melody gave me a weak nod at my statement as I continued.
 
 Melody let out a gasp at this statement unlike Phanna which was kind of a relief.
 
-"You mean... the Phantom Lord of Power...?" Melody asked hesitantly
+"You mean... the Phantom Lord of Extinction...?" Melody asked hesitantly
 
 "Oh, so you know about her?" I asked in surprise.
 
 But Melody shook her head at my query.
 
-"No one really knows the names of any of the Phantom Lords. But ever since you appeared at our settlement during the pre-exam trials, the colony leaders has been fearful of you and has been gathering information about you. That's how we found out that you were somehow connected to the Phantom Lord of Power."
+"No one really knows the names of any of the Phantom Lords. But ever since you appeared at our settlement during the pre-exam trials, the colony leaders has been fearful of you and has been gathering information about you. That's how we found out that you were somehow connected to the Phantom Lord of Extinction."
 
-"I see... no wonder the elves are the most influential humanoids. Yes, the Phantom Lord of Power is my daughter and I'm sure one day, she'd end up in some kind of confrontation with the Mastery League... It is my duty as a father and as a Master of the Mastery League to return her to the League... But now... I'm just a weak old man." I finished with a sigh.
+"I see... no wonder the elves are the most influential humanoids. Yes, the Phantom Lord of Extinction is my daughter and I'm sure one day, she'd end up in some kind of confrontation with the Mastery League... It is my duty as a father and as a Master of the Mastery League to return her to the League... But now... I'm just a weak old man." I sighed.
+
+As much as it hurts to admit, I'm nothing but an old man now.
+
+I'm much too far past my prime to be anything more than just a mentor.
+
+"This is why I'm summoning Champions, Hero's or whatever else you want to be called. At least that's my goal when I was summoning you. But no matter what I do and how I look at it, asking you to potentially face my daughter seems like the wrong thing to do. That's why I want to ask you, What do you want to do from now on?"
+
+As much as I want to save my daughter, asking Melody for help is just like sending her off to die.
+
+I know that she herself likely wouldn't be too bothered by it but knowing what she now knows and knowing what improbable events would have had to happen in her past to bring her here today, asking her to potentially die for my goals is something that I just can't do.
+
+In fact, even if she does somehow decide to assist my mission of trying to get Hickory to rejoin the League of Mastery again, I would likely still be hesitant on relying on her.
+
+Hickory's title of 'Phantom Lord of Extinction' isn't just for show.
+
+Hickory alone could very well cause the extinction of entire group of humanoids with few exceptions should she wish for it.
+
+The only reason she hasn't done that is probably because of the time she spent as a Grandmaster and the values me and Aurora had passed on to her she she was still a child.
+
+Asking anyone regardless of especially Melody or even Phanna for assistance in facing down opposition like this is something that I know to be wrong.
+
+Yet despite that, this is something I felt like I must do.
+
+It was as if  something inside me was willing me into action no matter what.
+
+The worst part is, I knew what that thing willing me into action is: my desire to find some form of meaning the events that happened on that day and my desire to protect the only thing that I have left of my family.
+
+Is what I'm doing that wrong?
+
+Thought like these swirled around my mind as I waited for Melody's response.
+
+"I... don't know... yet..." was the strangely unexpected but also comforting answer that from Melody.
+
+"I see. Well you're welcome to stay here for as long as you need to figure it out." I replied.
+
+That was the only thing I could do and say that felt 'right' in the current situation.
+
+"Does mr. Phanna know about your goal?"
+
+"Yes."
+
+At my answer, Melody slowly turned her gaze towards the room Phanna's currently sleeping in with an expression that, on the surface, looked liked discontent but knowing her now, I realized it must have been a mix between jealousy and admiration.
+
+"Just so you know. Phanna doesn't know about how Powerful Hickory is." I said trying to ease the pain in Melody's heart.
+
+Hearing my words, Melody immediately snapped her attention back to me asking "Really?"
+
+I answered with a nod as I noticed that Melody seemed to have relaxed a bit.
+
