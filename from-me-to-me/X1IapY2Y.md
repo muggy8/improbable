@@ -140,3 +140,98 @@ Hearing my words, Melody immediately snapped her attention back to me asking "Re
 
 I answered with a nod as I noticed that Melody seemed to have relaxed a bit.
 
+I guess even someone like Phanna would have people who look up to them.
+
+I grabbed the empty food trays from the table and moved over to the cooking area and cleaned them off with the method Ethan taught me years ago.
+
+Melody observed me as I did this using not only her eyes but likely also her Abilities.
+
+I didn't have Investigation active but I had a feeling that she did.
+
+As if to confirm my suspicion, Melody asked after a short while.
+
+"What's that Ability you're using?"
+
+"Vibrate. It shakes things so I often use it when I'm cleaning." I answered without hesitation.
+
+"W-would you be willing to teach me that ability? I-I might not be very useful most of the times but I can at least manage small tasks like this..."
+
+"I wouldn't mind... but I think it's probably best for you to master Influence Manipulation more before you start tryino to learn quality of life Abilities like Vibration and such."
+
+"T-true..." Melody said hesitantly.
+
+"Here let me help you a bit with your practice then." I said putting the food trays away.
+
+Melody's face lit up with surprise at my suggestion.
+
+But immediately after, she started shaking her head.
+
+"N-no I cant bother you like that Master Mikay. I-I'll go find somewhere out of the way and practice on my own." said Melody as she quickly made her way to the door.
+
+But I grabbed her before she could even put on her shoes which caused Melody to let out a weak yelp.
+
+"You probably shouldn't be going outside..." I said hesitantly.
+
+It took a while for Melody to catch what I was saying but once she did, she started making her way back to the living room.
+
+"S-sorry Master Mikay..." Melody appoligized softly. "I-It has completely slipped my mind... I'm sorry"
+
+"Don't worry about it. I'm sure we'll find a way around this situation." I said trying to comfort her.
+
+Melody was supposed to be dead. 
+
+It would definitely cause some kind of issue for the rest of the residents of Mountainpass if Melody started showing up out of nowhere again.
+
+In fact, what Phanna did yesterday was still weighing on my mind.
+
+In times like this, I really wish I knew the methods that the person from the Mastery League's Headquarters used to alter the memories of others.
+
+But that's not something I could do.
+
+I made my way back over to Melody. 
+
+She took up the same seat she did during breakfast and so did I as I found myself sitting across from her.
+
+For good measure, I activated Inspection and noticed that Melody also had an ability active.
+
+The ability was an observation type ability which probably means she's using Investigation.
+
+Soon enough, however, I could see her ability deactivate.
+
+"Need some help with your practice?" I asked.
+
+Melody gave me an embarrassed nod.
+
+"Then let me try something. Permission for Influence Extention?" I asked.
+
+My proposal shocked melody a bit.
+
+I'm sure she knows what I'm asking for and the dangers it entails.
+
+"Wh-why are you requesting to control my Spere of Influence?" Melody asked hesitantly.
+
+Hearing this, I giggled slightly as I proceeded to speak.
+
+"Good, you pass. Don't just let anyone control your Sphere of Influence no matter how much you trust them. As for why, so you can experience what it feels like to use Abilities properly. This way, you can aim for that feeling when you practice on your own."
+
+Surprise was written all over Melody's face and she immediately granted me permission to use her Sphere of Influence after.
+
+I spent the rest of the day until Phanna woke up practicing abilities with Melody.
+
+This, too, brought back memories of my time fathering Hickory. 
+
+We would often practice using Abilities around the food table like this.
+
+Of course, that didn't last long and she ended up mastering Influence Manipulation well before she started schooling at what is now Ethan's School.
+
+Part of me knows that all I'm doing right now is using Melody as a replacement for Hickory, yet another part of me refused to accept this.
+
+Is what I'm doing that bad of a thing?
+
+I'm helping her after all.
+
+I can't be using her in such a way right?
+
+And even If I was, I'm still helping someone.
+
+Before I knew it, Phanna woke up much to Pillow's dismay.
