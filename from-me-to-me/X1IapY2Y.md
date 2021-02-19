@@ -234,4 +234,56 @@ I can't be using her in such a way right?
 
 And even If I was, I'm still helping someone.
 
-Before I knew it, Phanna woke up much to Pillow's dismay.
+Before I knew it, Phanna woke up.
+
+"Just out of curiosity, exactly how old are the two of you" Phanna asked out of nowhere shortly after waking up.
+
+"63" I answered.
+
+"7" answered Melody surprising me.
+
+"Really? You look like you'd be at least 14" I blurted in surprise.
+
+But Phanna didn't seem the least bit surprised at all.
+
+"How long is a year? just for reference." Phanna continued as if all is normal.
+
+Melody's respoded with confusion. 
+
+As for me, I was rather used to Phanna's strangeness that I didn't bat it a second thought and answered.
+n
+"What type of year?" I Asked back.
+
+"Um... well every?" Phanna answered a seemingly a bit confused as well.
+
+"There's 2 type of years, seasonal years and solstace years. Seasonal years are 768 days long and lasts all 4 seasons. The solstace year marks the time between the solstace of day and the solstace of night which means the solstace year is 384 days. The solstace of night also happens to marke a new seasonal new year. That said, the seasonal year is rarely ever used. Satisfied?"
+
+"So your age is counted in solstace years correct?"
+
+"Yes, that would be correct." I answered.
+
+"Hmmm... and the current date?"
+
+"March 10th after the solstace of day."
+
+"No year number or name?"
+
+"Hmm? What's that?" I asked.
+
+That's when Melody interjected.
+
+"Um... well... it's year number 136 of my colony..." 
+
+"And that's based on solstace years?" Phanna asked seeming a bit intriegued.
+
+"Um, no, that's one of the few things that's based on the seasonal years."
+
+Hmmm..."
+
+Phanina somehow ended up lost in thought after Melody's answer but I was just glad this monversation ended before it got too out of wack.
+
+But just as I thought that, as if to spite my optimism, Phanna spoke out again.
+
+"This make too much sense!" Phanna yelled.
+
+"What" Melody and I chorused in confusion and disbelief.
