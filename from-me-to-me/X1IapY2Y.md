@@ -74,7 +74,7 @@ Seeing this, I realized that I probably should have asked her this question afte
 
 "I don't... know..."
 
-"I summoned you so you are my responsibility now so you stay for as long as you like."
+"I summoned you which means you are my responsibility now. Thah means you stay here for as long as you like."
 
 Melody gave me a weak nod at my statement as I continued.
 
@@ -88,7 +88,7 @@ Melody let out a gasp at this statement unlike Phanna which was kind of a relief
 
 But Melody shook her head at my query.
 
-"No one really knows the names of any of the Phantom Lords. But ever since you appeared at our settlement during the pre-exam trials, the colony leaders has been fearful of you and has been gathering information about you. That's how we found out that you were somehow connected to the Phantom Lord of Extinction."
+"No one really knows the identity of any of the Phantom Lords. But ever since you appeared at our settlement during the pre-exam trials, the colony leaders has been fearful of you and has been gathering information about you. That's how we found out that you were somehow connected to the Phantom Lord of Extinction."
 
 "I see... no wonder the elves are the most influential humanoids. Yes, the Phantom Lord of Extinction is my daughter and I'm sure one day, she'd end up in some kind of confrontation with the Mastery League... It is my duty as a father and as a Master of the Mastery League to return her to the League... But now... I'm just a weak old man." I sighed.
 
@@ -102,7 +102,7 @@ As much as I want to save my daughter, asking Melody for help is just like sendi
 
 I know that she herself likely wouldn't be too bothered by it but knowing what she now knows and knowing what improbable events would have had to happen in her past to bring her here today, asking her to potentially die for my goals is something that I just can't do.
 
-In fact, even if she does somehow decide to assist my mission of trying to get Hickory to rejoin the League of Mastery again, I would likely still be hesitant on relying on her.
+In fact, even if she does somehow decide to assist my mission of trying to get Hickory to rejoin the Mastery League again, I would likely still be hesitant on relying on her.
 
 Hickory's title of 'Phantom Lord of Extinction' isn't just for show.
 
@@ -156,7 +156,7 @@ As if to confirm my suspicion, Melody asked after a short while.
 
 "W-would you be willing to teach me that ability? I-I might not be very useful most of the times but I can at least manage small tasks like this..."
 
-"I wouldn't mind... but I think it's probably best for you to master Influence Manipulation more before you start tryino to learn quality of life Abilities like Vibration and such."
+"I wouldn't mind... but I think it's probably best for you to master Influence Manipulation more before you start tryiny to learn quality of life Abilities like Vibration and such."
 
 "T-true..." Melody said hesitantly.
 
@@ -190,7 +190,7 @@ But that's not something I could do.
 
 I made my way back over to Melody. 
 
-She took up the same seat she did during breakfast and so did I as I found myself sitting across from her.
+She took up the same seat she did during breakfast and so did I as I found myself sitting across from her again.
 
 For good measure, I activated Inspection and noticed that Melody also had an ability active.
 
@@ -248,13 +248,13 @@ But Phanna didn't seem the least bit surprised at all.
 
 "How long is a year? just for reference." Phanna continued as if all is normal.
 
-Melody's respoded with confusion. 
+Melody respoded with confusion. 
 
 As for me, I was rather used to Phanna's strangeness that I didn't bat it a second thought and answered.
-n
+
 "What type of year?" I Asked back.
 
-"Um... well every?" Phanna answered a seemingly a bit confused as well.
+"Um... well every?" Phanna answered seemingly a bit confused as well.
 
 "There's 2 type of years, seasonal years and solstace years. Seasonal years are 768 days long and lasts all 4 seasons. The solstace year marks the time between the solstace of day and the solstace of night which means the solstace year is 384 days. The solstace of night also happens to marke a new seasonal new year. That said, the seasonal year is rarely ever used. Satisfied?"
 
@@ -276,11 +276,11 @@ That's when Melody interjected.
 
 "And that's based on solstace years?" Phanna asked seeming a bit intriegued.
 
-"Um, no, that's one of the few things that's based on the seasonal years."
+"Um, no, that's one of the few things that's based on the seasonal years." Melody answere.
 
 Hmmm..."
 
-Phanina somehow ended up lost in thought after Melody's answer but I was just glad this monversation ended before it got too out of wack.
+Phanina somehow ended up lost in thought after Melody's answer but I was just glad this conversation ended before it got too out of wack.
 
 But just as I thought that, as if to spite my optimism, Phanna spoke out again.
 
@@ -306,9 +306,9 @@ Our answers seemed to give Phanna pause too but eventually Phanna decided to con
 
 "Right. And that's normally how calendars are. They're usuaully anchored to dates of historical, religious, or agricultural importance. This system doesn't seem related to agriculture or history at all and makes too much sense to be something religion related. That's why it doesn't make sense."
 
-"There's your non-senseical ramblings again. As far as religion goes, yes the date system we have isn't really tied to anything. As for historical events, each village or even maybe each region would have it's own set of historical events. If that's used then there'd be literally no reason for having dates at all if no one aggreed on when now is. As for this 'Agriculture' thing goes, I don't even know what it is."
+"There's your non-senseical ramblings again. As far as religion goes, yes the date system we have isn't really tied to anything. As for historical events, each village or maybe each region would have it's own set of historical events. If that's used then there'd be literally no reason for having dates at all if no one aggreed on when now is. As for this 'Agriculture' thing goes, I don't even know what it is."
 
-"Are you serious? You don't know what agriculture is? you know, farming? Planting vegitables so they grow into something to be eaten later."
+"Are you serious? You don't know what agriculture is? you know, farming? Planting things so they grow into food later."
 
 "Hun? What kind of idiocy is that? Growing food? Sounds like black magic to me." I retorted.
 
@@ -336,7 +336,7 @@ With that Phanna quickly made their way back to their room.
 
 What was wrong with eating hunted game?
 
-I if Phanna had a problem with it, then how could they fail to notice something like that till now?
+If Phanna had a problem with it, then how could they fail to notice something like that till now?
 
 In fact, it's probably Phanna's fault for not noticing.
 
@@ -370,9 +370,9 @@ Still no answer.
 
 "Phanna I'm coming in..." I said before opening the door and entering.
 
-I found Phanna resting on the as before seemingly unaware of my presence.
+I found Phanna resting on the bed as before seemingly unaware of my presence.
 
-I approached Phanna slowly only to find a troubled look on Phanna's face as they seem to be spacing out looking into roof.
+I approached Phanna slowly only to find a troubled look on Phanna's face as they seem to be spacing out and looking into the roof.
 
 "Are you ok?" I asked standing next to Phanna.
 
@@ -404,7 +404,7 @@ Phanna thought about it for a while before answering.
 
 "How would you feel if someone fed you rotting... um.. Oni meat without you knowing?" Phanna replied.
 
-"Um... What?" was my immediate reaction before I let any more of my thoughts slip.
+"Um... What?" was my immediate reaction but I stopped myself from blurting any more of my thoughts.
 
 That sounds rather disgusting indeed but it didn't feel right.
 
@@ -424,11 +424,11 @@ Was it because I blurted something in confusion?
 
 It didn't matter as Phanna began explaining.
 
-"First off, neither of us have any idea what other stuff that animal had hidding in it. For all we know, it could have carried an illness of some kind. Sure it might not kill us, I mean it definately won't kill me but it still feels disgusting to potentially play host to some strange unknown parasite."
+"First off, neither of us have any idea what other stuff that animal had hidding in it. For all we know, it could have carried an illness of some kind. Sure it might not kill us, I mean, it definately won't kill me but it still feels disgusting to potentially play host to some strange unknown parasite."
 
 Here comes Phanna's strange view on illnesses again.
 
-I don't understand it the first time Phanna explained and it never bothered me enought for me to try to.
+I don't understand it the first time Phanna explained and it never bothered me enought for me to try to again.
 
 Honestly, all I wanted to do was ignore it and fortuately, Phanna continued without going further into the parasite business.
 
@@ -460,6 +460,6 @@ Phanna looked at me a little surprised before spacing out for a bit and then fin
 
 "N-no..." I quivered.
 
-"Then can I get a few favors out of you? I'll need big tub full of water. In fact, can we change our whole roof into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunck of my shirt off and leave it in the pool on the roof. Is that ok?"
+"Then I won't. However, can I get a few favors out of you? I'll need big tub full of water. In fact, can we change our whole roof into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunck of my shirt off and leave it in the pool on the roof. Is that ok?"
 
-I let out a frustrated sigh but found myself powerless and ended up accepting Phanna's request.
+I let out a frustrated sigh but found myself powerless to refuse and ended up accepting Phanna's requests.
