@@ -284,6 +284,182 @@ Phanina somehow ended up lost in thought after Melody's answer but I was just gl
 
 But just as I thought that, as if to spite my optimism, Phanna spoke out again.
 
-"This make too much sense!" Phanna yelled.
+"This make too much sense that it doesn't make sense..." Phanna blurted.
 
-"What" Melody and I chorused in confusion and disbelief.
+"What" Melody and I chorused in confusion.
+
+Phanna looked at us with an unsure expression before asking.
+
+"Do you want me to explain?"
+
+"No" I blurted.
+
+"Yes..."
+
+Please Melody... don't do this...
+
+Our answers seemed to give Phanna pause too but eventually Phanna decided to continue explaining to my dismay.
+
+"Melody, what marks year 0 in your colony?" 
+
+"The start of our colony."
+
+"Right. And that's normally how calendars are. They're usuaully anchored to dates of historical, religious, or agricultural importance. This system doesn't seem related to agriculture or history at all and makes too much sense to be something religion related. That's why it doesn't make sense."
+
+"There's your non-senseical ramblings again. As far as religion goes, yes the date system we have isn't really tied to anything. As for historical events, each village or even maybe each region would have it's own set of historical events. If that's used then there'd be literally no reason for having dates at all if no one aggreed on when now is. As for this 'Agriculture' thing goes, I don't even know what it is."
+
+"Are you serious? You don't know what agriculture is? you know, farming? Planting vegitables so they grow into something to be eaten later."
+
+"Hun? What kind of idiocy is that? Growing food? Sounds like black magic to me." I retorted.
+
+Phanna gave me a suspicious look then shifted their gaze to Melody.
+
+Melody looked back nerviousely as well.
+
+"Phanna, stop scaring Melody please." I lemented to which Phanna replied with a sigh.
+
+"Ok, lets assume that you don't know what agriculture is. What have we been eating up to now?" Phanna questioned.
+
+"Animals that I've hunted. Obviousely."
+
+My answer somehow filled Phanna's face with disgust and shock as Phanna looked down at the plate of food infront of them. 
+
+"T-this used to be... a whole... living... animal?" Phanna stuttered.
+
+"I thought that was obvious." I replied.
+
+But Phanna didn't like my answer and quickly stood up from the table.
+
+"I-I don't feel very well..."
+
+With that Phanna quickly made their way back to their room.
+
+What was wrong with eating hunted game?
+
+I if Phanna had a problem with it, then how could they fail to notice something like that till now?
+
+In fact, it's probably Phanna's fault for not noticing.
+
+But despite my justifications to myself, I couldn't help but feel a little responsible for not telling Phanna earlier.
+
+Maybe Phanna has a reason for not eating hunted game. 
+
+Yet still, my mind was telling me that there's no way for them to not notice. 
+
+Afterall, the only alternative to hunted game is wiled fruits and grains. 
+
+Maybe I should go appoligize? 
+
+But what do I say?
+
+I don't even know what I did wrong assuming I somehow did do something wrong.
+
+Maybe I should just go talk to Phanna...
+
+I worked up my courage and approached phanna's room.
+
+"Um are you ok?" I asked knocking on the door.
+
+No answer came back.
+
+...
+
+"Phanna?" I asked again after a while.
+
+Still no answer.
+
+"Phanna I'm coming in..." I said before opening the door and entering.
+
+I found Phanna resting on the as before seemingly unaware of my presence.
+
+I approached Phanna slowly only to find a troubled look on Phanna's face as they seem to be spacing out looking into roof.
+
+"Are you ok?" I asked standing next to Phanna.
+
+I noticed Melody peaking into our room from the door way.
+
+I couldn't blame Melody for being curious. 
+
+Phanna's reaction felt strange to me and I'm sure Melody felt the same as well.
+
+"Oh it's you." Phanna finally spoke a short while after I began standing by them.
+
+"Are you alright?" I asked.
+
+"Define alright" was Phanna's reply.
+
+"Uhh..."
+
+ I wasn't sure how to answer that but luckily, Phanna continued.
+ 
+"I'll survive."
+
+That definately didn't sound good to me as it brought back memories of when I first summoned Phanna.
+
+Going by gut feeling alone, I continued questioning.
+
+"What's wrong?"
+
+Phanna thought about it for a while before answering.
+
+"How would you feel if someone fed you rotting... um.. Oni meat without you knowing?" Phanna replied.
+
+"Um... What?" was my immediate reaction before I let any more of my thoughts slip.
+
+That sounds rather disgusting indeed but it didn't feel right.
+
+But I'm pretty sure what we're eating is not rotting. 
+
+I mean, I just caught it yesterday.
+
+Not only that, but what does hunted game have to do with eating my own kind.
+
+yet despite feeling all of that, I couldn't really let any of that leave my mouth. 
+
+I was here to try to help Phanna feel better afterall.
+
+But Phanna seemed to have noticed my thoughts.
+
+Was it because I blurted something in confusion?
+
+It didn't matter as Phanna began explaining.
+
+"First off, neither of us have any idea what other stuff that animal had hidding in it. For all we know, it could have carried an illness of some kind. Sure it might not kill us, I mean it definately won't kill me but it still feels disgusting to potentially play host to some strange unknown parasite."
+
+Here comes Phanna's strange view on illnesses again.
+
+I don't understand it the first time Phanna explained and it never bothered me enought for me to try to.
+
+Honestly, all I wanted to do was ignore it and fortuately, Phanna continued without going further into the parasite business.
+
+"Second, that animal could have been someone's family like Pillow is to us. And even if it isn't, what if it was the kind of animal that someone else keeps as family. At that point, it might as well be the sams thing as eating someone else's family. Or even eating your own family if you consider all of humanity family."
+
+This comment from Phanna somehow made sense yet it felt really disconnected from reality.
+
+I mean, sure, the animal I caught could have been the type that someone somewhere used as pets but that's still not the same as eating my own kind.
+
+In fact, if you extend this logic further, eating animal meat is entirely off the table.
+
+Not only is that funtionally impossiable, Phanna didn't seem too bothered by the presence of meat till now and that just didn't make sense to me. 
+
+Despite all this going on in my mind, I didn't have the courage to say any of it. 
+
+I didn't want to get on Phanna's bad side again nor do I want to hear any more of Phanna's strange non-sense.
+
+"What... would you like me to get for you to eat in the future?" was the only thing I could think of to say at this point.
+
+Phanna looked at me a little surprised before spacing out for a bit and then finally answering.
+
+"I think I'll get my own food from now on..." 
+
+"What?" I found myself blurting out again.
+
+"How are you going to get anything to eat? Your arms aren't even funtional yet and you don't know what's safe to eat around here. How do you expect me to just let you feed yourself the way you are now?" I replied.
+
+"Do you want me to explain?" Phanna asked glairing at me.
+
+"N-no..." I quivered.
+
+"Then can I get a few favors out of you? I'll need big tub full of water. In fact, can we change our whole roof into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunck of my shirt off and leave it in the pool on the roof. Is that ok?"
+
+I let out a frustrated sigh but found myself powerless and ended up accepting Phanna's request.
