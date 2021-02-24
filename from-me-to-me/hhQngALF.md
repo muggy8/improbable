@@ -97,3 +97,9 @@ Otherwise, there'd definately be more like him around.
 That was the only thing Patricia was sure of.
 
 'Will I be able to earn mother's support?' Patricia wondered as she made her way toward the heartlands of the colony to see mother.
+
+## <center>~<center>
+
+<center><a href="./K4fSYHh5">Next Chapter</a></center>
+
+

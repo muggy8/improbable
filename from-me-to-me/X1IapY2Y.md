@@ -466,5 +466,4 @@ I let out a frustrated sigh but found myself powerless to refuse and ended up ac
 
 ## <center>~<center>
 
-<center><a href="./K4fSYHh5">Next Chapter</a></center>
-
+<center><a href="./hhQngALF">Next Chapter</a></center>
