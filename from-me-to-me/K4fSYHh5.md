@@ -216,5 +216,156 @@ Phanna ordered me to put more bugs and water in over the next while and I did as
 
 During the whole time, I didn't once look back up at Phanna.
 
-Before I realzed it, the bowl of bugs was empty and Phanna was instructing me to do other things to make this 'hair dye' thing and all I could do was follow his orders.
+Before I realzed it, the bowl of bugs was empty and Phanna was instructing me to put the brown liquid at the bottom of the stack of stones into this 'centrifuge' thing.
 
+Of course, I went along with it despite having no idea what it was or what it does even when Phanna was using it.
+
+I wonder what Phanna thinks of me now?
+
+Does he think I'm an idiot?
+
+Does Phanna think I asked him that question as an insult?
+
+If only I didn't ask.
+
+But Phanna's stomach looked just like mother's during her pregnency.
+
+Phanna's gotta know that too right?
+
+But he is a half elf so maybe not...
+
+Why did I ask... I really shouldn't have.
+
+Why do I have to be so curious.
+
+"It's done" Phanna suddenly spoke breaking me out of my inner thoughts.
+
+"Oh congrats" I said absentmindedly as I looked back up at Phanna again accidentally.
+
+"Oh no, this is for you." Phanna said meeting my gaze.
+
+Oh shoot, our eyes met!
+
+I quickly looked away as Phanna continued.
+
+"Consideing you can't really change your hair color at will, it's quite fortunate that you're blond." Phanna said.
+
+"T-thanks I think." 
+
+"Go to the washroom and get your hair wet with hot water." Phanna commanded.
+
+I didn't know if it was because of Phanna or this sutation but all I could do was obey.
+
+Soon enough, Phanna was pouring the bright red liquid into my hair and rubbing my hair all over the place.
+
+"Ah! What are you doing?" I complained.
+
+"Dying your hair. Just bear with it ok?" Phanna replied.
+
+And like that, Phanna was free to have his way with my head.
+
+...
+
+When all was said and done, the hair I had on my head had transformed from the golden yellow into a shade of bright orangy red.
+
+looked into a reflection of myself and could hardly recognize myself.
+
+What is this sorcery?
+
+How is it that Phanna can change my hair color?
+
+Why does such a simple change make me look like a completely different person?
+
+The embarassment I felt early was completely gone as I stood here looking at my own reflection in awe.
+
+The girl with bright red hair in the reflection staired back at me with a look of desbelief and confusion. 
+
+"W-What is this..." I gasped.
+
+"The new you. Now you should be mostly free to go outside." Phanna replied.
+
+"I could hardly recognize you..." Mikay gasped as well  standing next to me before continueing. "Ahem, You should probably start using a new name too just to be safe."
+
+"Oh, ya, that's probably a good idea if you're looking to build yourself a new identity." Phanna added.
+
+"Oh, uh, right..." I shuddered still hardly able to believe my eyes as my mind wandered to the other names I could use.
+
+Nothing else feels right other than Melody.
+
+I've been called that my whole life, it feels rather strange to have to give it up.
+
+But Melody was a dead person here, so I can't really keep calling myself that.
+
+As if sensing my hesitation, Phanna spoke up again.
+
+"Melody, if you're not sure yet, maybe just keep your name. it's not like you're the only Melody to have ever existed."
+
+Phanna's words gave me a strange feeling of comfort yet it also somehow sounded apologetic. 
+
+"Um... I'll probably stick with the name Melody for now..." I answered back.
+
+"That's rather risky." Mikay said.
+
+"For now, maybe. But we can change her other aspects of physical appearance later on. At that point, she'll be unrecognizable." Phanna responded.
+
+"What else are you going to do to me?..." I asked nerviously.
+
+"In the stort term, we can give you a new hair style too. In the long term, we can consider changing your facial structure, adjusting your body porportions and changing key features like you ears or skin color and more." 
+
+"Uhh Um... I... I think I'll stick to the simpler changes..."
+
+"Well, that's up to you. If you ever want to change your looks any further, let me know."
+
+"Ah, haha I'll keep that in mind."
+
+"Oh by the way, the red color will faid with time, so you'll have to re-dye it later or we'll have to set up a more permanent color solution."
+
+"I-I see."
+
+After that, Mikay went out to hunt for food again while I stared into my reflection unsure of how to feel.
+
+...
+
+"Ahhhhhhh!!!!! Pillow spilt in two!!!" Phanna yelled one night as Mikay and I were about to go to bed.
+
+At the call, Mikay and I both quickly bursted into Phanna's room.
+
+It didn't take long to notice 2 wiggling blobs in opposit sides of the room.
+
+They looked identical to each other and were both causing a ruckus against the wall of the room.
+
+Mikay quickly picked both of them up and dropped them into the aquarium in Phanna's room before scolding Phanna.
+
+Even with Mikay's presence, the two Pillows didn't calm down and kept bouncing around in the aquarium as if they were protesting something.
+
+This was the first time I've seen Pillow so energetic.
+
+It was normally so docile and I could snag it out of the water easily but now, it was bouncing all over the place.
+
+For some reason, the closer I got to the two Pillows, the more aggrivated they seemed to become.
+
+As a result. I decided to keep a distance from them for now as Mikay scolded Phanna.
+
+Half way through Mikay's scolding, Phanna suddenly spoke up.
+
+"We should call one of them Cushion and the other one Pillow!" Phanna yelled.
+
+"Are you even listening to me?" Mikay exclaimed.
+
+"Of course not!" Phanna replied.
+
+I don't think you're supposed to just admit that immediately.
+
+But despite this, Mikay didn't seem to get any angrier and instead just let out a huge sigh as he rubbed his forehead with his hand.
+
+"What am I going to do with you" Mikay lemented.
+
+But before he can continue, Phanna was at the aquarium already fishing the two blobs out.
+
+"You're gonna be called Cushion from now on, and you're gonna remain Pillow."
+
+"Phanna stop that!" Mikay yelled.
+
+Not wanting to get caught in the middle of this, I quietly slipped out of Phanna's room and back into my room.
+
+I hope the two of them work something out...
