@@ -126,4 +126,95 @@ Shortly after, Mikay came home with a pouch full of stuff.
 
 "I think I got everything you asked for" Mikay said placing the bag on the living room table; the same table we do everything on.
 
-"Thanks" Phanna said before he started working on this 'hair dye' thing.
+"Thanks" Phanna said before he started working on this 'hair dye' thing with some strange tools that he had Mikay make.
+
+"So, when do you plan on actually doing something about my daughter's situation?" Mikay asked after a short while.
+
+"I already am"
+
+"What do you mean you already are? You've literally done nothing since you showed back up" Mikay said with a hint of frustration.
+
+"I've been building a few tools for studying the biology of this world."
+
+"And how's that going?" Mikay sighed.
+
+"Oh, it's coming along pretty well actually." Phanna replied without taking his eyes off of the 'hair dye' thing he's making.
+
+At Phanna's answer, Mikay gave up and returned to his room leaving me and Phanna alone again.
+
+Felling a bit curious, I slowly moved closer to Phanna to observe what he was doing.
+
+The strange tool he was using was a stack of circular stones that he turned with some strange turning device attached that allowed Phanna to turn the stack with his legs.
+
+Phanna called it a "Bike Pedal Machine" and it had something to do with doing things by spinning other things.
+
+"Melody, can you put some of the red bugs into this hole here" Phanna suddenly asked pointing towards the small hole at the top of the stack of stones.
+
+"Oh um, sure" I answered as I kneel down in front of Phanna and started putting the deep red dried bugs into the hole
+
+"Next can you pour some water in the hole as well?"
+
+Again, I did as Phanna instructed.
+
+"Thanks." Phanna finally said as I finally looked away from the strange tool and back at him again.
+
+Yet somehow, looking at Phanna again, I noticed something strange.
+
+Phanna's stomach region was bulging out a bit.
+
+It wasn't by much, but it was noticeable.
+
+If I haden't seen my own mother in this state before, I probably wouldn't have noticed but the way Phanna's stomach is bulging is way too similar.
+
+It felt strange to ask Phanna this directly but my curiosity demanded to know.
+
+If it is what I think it is then it might explain everything about Phanna.
+
+Judging by the way Phanna looked normally... it's not entirely out of the picture considering Phanna was probably half elf and neither did Phanna's voice disprove anything enther.
+
+Working up my nerves, I slowly started weaving the question and prepaired myself for the answer.
+
+"Um... Phanna... are you... a queen?"
+
+"Hmm? No. But monarchy based systems of govenece fell out of favor millions of years ago so even if I was of royal heritage, it wouldn't really mean much so I never bothered checking."
+
+"N-no, that's not what I mean... I mean... are you an elf queen?"
+
+"Uhh, sorry? What?"
+
+Phanna's words were full of legitimate confusion.
+
+"A-are you a female capable of reproduction?" I said feeling a bit flustered.
+
+Phanna seemed taken aback by my question as I sat here dying of embarssment. 
+
+"Um... that's a solid no."
+
+"B-but aren't you pregenet right now?" I asked.
+
+"Pregent?... oh that thing"
+
+Phanna seemed to have realized what I was asking about and gave me a little chuckle.
+
+"I'm not carrying a baby or anything, this here is tools I I told Mikay about earlier." Phanna answered.
+
+"Tools?" I questioned.
+
+"You'll see in a while."
+
+My curiosity got the better of me again...
+
+I felt like I'd die of embarrassment right now.
+
+Why did I ask?
+
+Phanna did look more like a male elf than a female elf so why did I ask.
+
+I can't even look at Phanna anymore as I stared at the stack of spinning stones.
+
+Phanna ordered me to put more bugs and water in over the next while and I did as I was told. 
+
+During the whole time, I didn't once look back up at Phanna.
+
+Before I realzed it, the bowl of bugs was empty and Phanna was instructing me to do other things to make this 'hair dye' thing and all I could do was follow his orders.
+
