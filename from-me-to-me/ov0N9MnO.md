@@ -333,3 +333,8 @@ Why???
 Nothing makes sense anymore as I collapsed in tears of confusion and envy. 
 
 ...
+
+## <center>~<center>
+
+<center><a href="./X1IapY2Y">Next Chapter</a></center>
+

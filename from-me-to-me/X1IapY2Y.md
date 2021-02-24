@@ -463,3 +463,8 @@ Phanna looked at me a little surprised before spacing out for a bit and then fin
 "Then I won't. However, can I get a few favors out of you? I'll need big tub full of water. In fact, can we change our whole roof into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunck of my shirt off and leave it in the pool on the roof. Is that ok?"
 
 I let out a frustrated sigh but found myself powerless to refuse and ended up accepting Phanna's requests.
+
+## <center>~<center>
+
+<center><a href="./K4fSYHh5">Next Chapter</a></center>
+
