@@ -46,22 +46,63 @@ various thoughts flooded my mind as Mikay and amanda made their excange.
 
 should I run?
 
+"Ahh right. How have things been for you lately?"
+
 Should I try to hide in my room?
 
 But that'd draw too much suspicion.
+
+"Things... has been alright. I've been meaning to come by earlier but things has just been so hectic after Melody's passing"
 
 But what if she notices me?
 
 How do I explain this?
 
+"I see... my condolences."
+
 Wait I have red hair now...
 
 But what if she recognizes me despite that?
+
+"No, it's alright, It's just a fact of life for us elves."
 
 Will Phanna be able to explain?
 
 Probably not on that last one.
 
+"I-I see... So what brings you hear today?"
+
 What's more risky, to stand my ground and pretend I don't know her or to try to avoid contact in the first place.
 
+"I'm just here to thank you for protecting us during the exam. Here's some tea that we harvested from the mountains."
+
 No I don't have time to think this through, I need to act fast
+
+"Ah, I see, thanks."
+
+I quickly hid my face behind my face behind my now red hair and assumed a position of what probably looked like meditation. 
+
+"By... by the way... Master Mikay, could I ask you for a small favor?"
+
+I am nothing, I am one with this table, please don't notice my presence. 
+
+"Favor?"
+
+"That's right, it seems the Mastery League's School in Mountainpass has suspended opperation this semester due to the attack and since the exams were interupted part way though, it doesn't look like anyone will be admitted this semester. Would you be able to find it in your hear to teach some of use who you find capable personally?"
+
+"Um..."
+
+"Could you at least consider it Master Mikay?"
+
+"I... Uhh... I guess I'll give it some consideration."
+
+"Thank you very much Master Mikay! Oh by the way, how is Phanna doing? I don't see him around at all..."
+
+"Phanna... is notcturnal... so they're kind of sleeping right now."
+
+"Gasp... The exam must have been extrememly hard for him then..."
+
+"Tell me about it... anyways, Phanna's been sleeping all day. I honestly have no idea what they're doing but I think they're doing alright."
+
+"Ah. I see. that's good to know! Well, I see you have a guest over, I'll be on my way now. I'll see you soon!"
+
