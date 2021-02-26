@@ -104,5 +104,64 @@ I am nothing, I am one with this table, please don't notice my presence.
 
 "Tell me about it... anyways, Phanna's been sleeping all day. I honestly have no idea what they're doing but I think they're doing alright."
 
-"Ah. I see. that's good to know! Well, I see you have a guest over, I'll be on my way now. I'll see you soon!"
+"Ah, I see. That's good to know! Well, I see you have a guest over, I'll be on my way now. I'll see you soon!"
 
+"Take care!"
+
+As soon as Mikay closed the door, I let out a huge sigh of relief.
+
+I was so scared I'd been found out but it turns out Amanda didn't recognize me.
+
+what a relief.
+
+"You ok there?" Mikay asked as he returned to his seat opposit to me.
+
+"I... Uhh... was really scared. But I'm alright now."
+
+"Oh, I was a bit nervious too. But things seemed to have worked out alright."
+
+"Maybe you'd consider further changes to your appearance now?" Phanna said from behind me.
+
+"Aahh" I shouted in fright turning around to face him.
+
+"Don't be like that" Phanna protested.
+
+"It's unusual to see you up at this hour" Mikay said.
+
+"Oh, I happened to be using the washroom when Amanda dropped by. Whanted to see how things turned out. I was ready to intervien should that have been nesesarry."
+
+"T-thanks I guess..." Mikay sighed.
+
+"Um... Phanna, What happened to your hair?" I asked noticing that Phanna's normally black hair had changed into a deep shade of red.
+
+"Well, I was going to tell Amanda there that you were my sister so I changed my hair color to somewhat match yours as best as I could in the bit of time I had."
+
+"What?" Mikay and I both exclaimed in confusion and surprise.
+
+"ya, I was about to introduce you as Midi but I guess it's a good thing I didn't have to. I'm clearly not good at this whole name business... except for my favorite slimes" Phanna joked while holding one of the two Pillows hostage.
+
+"Uh... What about the hair color chang?" I asked.
+
+"Hmm? what about it?"
+
+"How?"
+
+"Uhhh... hmmm... how do I explain structural color" Phanna murmured to himself as he seemed to be having trouble with coming up with an answer.
+
+Mikay didn't seem too bothered however and just moved on.
+
+"Well I guess it's good that the two of you are here, so what do you all think of Amanda's request?"
+
+"I think it's great! You'll need something to do while I set up my experiments anyways so I think it's a good thing for both of us."
+
+"You know, for someone who's 'busy setting up an experiment' I haven't seen you actually do anything yet... anyways, what about you Melody?" Mikay sighed.
+
+"I... I don't think it's a good idea... I feel like it might end up exposing me..." I said feeling unsure.
+
+"Now now, don't say that, you can't hole up in Mikay's house forever. All you need is a few small changes to your physical features and you should be all good to go." Phanna refuted.
+
+"Phanna, I'm sure you can do all sorts of modifications but are you sure Melody is comfortable receiving those modifications?" Mikay asked.
+
+"Why not? and besides, you building a relationship with these elves creates a pretty convenient way for Melody to see how her home turned out after her departure from the perspective of an outsider."
+
+At Phanna's words, Mikay and I both fell into silence.
