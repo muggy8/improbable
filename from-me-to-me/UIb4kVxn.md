@@ -88,7 +88,7 @@ I am nothing, I am one with this table, please don't notice my presence.
 
 "Favor?"
 
-"That's right, it seems the Mastery League's School in Mountainpass has suspended opperation this semester due to the attack and since the exams were interupted part way though, it doesn't look like anyone will be admitted this semester. Would you be able to find it in your hear to teach some of use who you find capable personally?"
+"That's right, it seems the Mastery League's School in Mountainpass has suspended opperation this semester due to the attack and since the exams were interupted part way though, it doesn't look like anyone will be admitted this semester. Would you be able to find it in your hear to teach some of use who you find worthy personally?"
 
 "Um..."
 
@@ -165,3 +165,91 @@ Mikay didn't seem too bothered however and just moved on.
 "Why not? and besides, you building a relationship with these elves creates a pretty convenient way for Melody to see how her home turned out after her departure from the perspective of an outsider."
 
 At Phanna's words, Mikay and I both fell into silence.
+
+As much as I'd like to deny it, I'm very curious about how my colony, more spicifically, my party is doing.
+
+How much better off are they without me.
+
+How much more efficent they must be without me messing everything up every time.
+
+Although it hurts me to think about all this, in a way I was very curious how well things would turn out without me.
+
+But do I want to find out?
+
+I was nothing but a hinderance before so I'm sure things are much better without me.
+
+But I want to know exactly how much better things are.
+
+I want to know exactly how much of a bother I was.
+
+I want to know exactly what I was or wasn't worth...
+
+I'm scared to know.
+
+Knowing would hurt.
+
+In a way, not knowing is a type of blessing but I want to know.
+
+In a way, I could say that my soul yearns to know.
+
+But do I have the courage to find out, to face the truth?
+
+I didn't have answers to these questions.
+
+I didn't know if I could get answers to these questions.
+
+For now, it seemes like the only way for me to know is to be faced with the choice and to see weather I would run away or face the truth head on.
+
+I wonder what choice I'd make once I was faced with the choice.
+
+"P-phanna... c-can you modify my appearance some more?" 
+
+If I didn't know how I would react till the oppertunity to find out arses then the only way forward is to bring about a future were the oppertunity to find out does happen.
+
+If I am unable to face the truth then I'll just have to run away.
+
+But if by some chance, I did end up finding the courage in myself to face the the truth, then I want to be ready for it. 
+
+"Melody, are you sure?" Mikay asked heistantly.
+
+"Yes, I'm sure." I replied.
+
+"That's the spirit!" Phanna smiled patting me on my back. 
+
+"Welp, as far as further adjustments goes, I'm going to need Mikay's help. I'll need to prepair something. Mikay can you get a few blocks of wood a bit bigger than Melody's head for me? oh and also a knife too."
+
+"Uhh What? Sure? I guess?" Mikay answered hesitantly.
+
+Phanna's request seemed to have caught mikay by surprise but he soon regained his composure.
+
+"Anyways, I take it that you're both is in support of me doing some private tutoring for the elves?" Mikay asked.
+
+"Yup" Phanna affermed while I gave a small nod.
+
+At our answers, Mikay seemed to have fallen into some deep thought.
+
+"Well. I guess I'll give it some more thought. I'll get you those blocks of wood then. How many blocks do you need?"
+
+"Uhh... maybe 20? it really depends on you actually so lets start with 20"
+
+"What?" Mikay said a bit puzzled but he didn't seem to press the issue further and left to get the wood Phanna requested.
+
+As for Phanna, he began studying my face and head with extreme detail.
+
+It made me rather uncomfortable in the beginning but after a couple minutes of it, I got rather used to it.
+
+Mikay and Phanna spent the rest of the day together doing something to a block of wood.
+
+I tried to ask them what they were doing.
+
+Mikay ansewered with "I have no clue, ask Phanna." and Phanna answered with "creating art."
+
+At the end, I was left just as clueless as mikay and ended up spending the rest of the day with Pillow and Cushen. 
+
+The two blobs still didn't seem to like me much and would jump around when I approached.
+
+I wish they would go back to being docile but the current aggresively confrontational blobs had it's own strange charm to them.
+
+...
+
+
