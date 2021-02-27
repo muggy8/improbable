@@ -248,8 +248,256 @@ At the end, I was left just as clueless as mikay and ended up spending the rest 
 
 The two blobs still didn't seem to like me much and would jump around when I approached.
 
-I wish they would go back to being docile but the current aggresively confrontational blobs had it's own strange charm to them.
+I wish they would go back to being docile but the aggresively confrontational blobs that they are now had it's own strange charm to them.
 
 ...
 
+The next morning, when I left my room to have breakfast with Mikay, I was surprised to find Phanna sitting at the dining table instead of Mikay.
 
+"Yo" Phanna gestured towards me.
+
+"Um... good morning?"
+
+"This was what Mikay and I were working on yesterday" Phanna said lifting up a somewhat disgusting looking wooden scupture that somewhat resembled a head.
+
+"W-what is that" I uttered feeling a bit uncomfortable.
+
+"A piece of art" Phanna replied.
+
+I wasn't sure if Phanna was serious or not but that doesn't look the least bit beautiful to me in any way.
+
+In fact, instead of beautiful, it made me feel all sorts of different kinds of uncomfortable just looking at it.
+
+Phanna must have picked up on those feelings and began speaking again.
+
+"This is a replica of your skull." 
+
+"My what?" 
+
+"Your skull, your head bone, the thing that gives your head it's shape."
+
+I didn't know how to feel about it.
+
+Seeing something that was a copy of a part of me made me feel uncomfortable in all sorts of different ways.
+
+Especially if it was something that was supposed to be inside of me.
+
+"S-so... what is that for...?" I asked.
+
+"It's practice for Mikay. He's asleep right now but before he went to bed, I got him to make a few more of these." Phanna explained holding up a few more wooden sculptures of my skull.
+
+I felt my stomach turn a bit as I laid eyes onto all the wooden skulls before Phanna.
+
+"Anyways, Mikay asked me to make some food for you in the morning since he went to bed pretty late last night. What do you usually eat for breakfast?" Phanna asked as if completely unaware of how I felt.
+
+"I... don't think I want anything to eat after seeing this..." I lemented.
+
+"Perfect! I was hoping for that answer. I'll be off to bed now." Phanna hummed happily as he took off towards his room.
+
+Wait he did that on purpose?
+
+I was played?!
+
+Somehow, realizing this made me slightly angry.
+
+Even though I didn't know Phanna that well, this turn of events somehow made me feel a bit betrayed.
+
+Feeling unhappy with the situation, I stormed into Phanna's room and nabbed one of the Pillows and stormed out.
+
+Phanna, for his part, didn't seem too bothered and instead just offered some useless words.
+
+"That one's Pillow. Cushen is the one in the aquarium. Enjoy your day~" 
+
+I wonder how he's able to tell them apart...
+
+But now's not the time to ask.
+
+By the time Mikay finally woke up, I was feeling absolutely famished.
+
+In fact, I was roasting some meat when I saw Mikay.
+
+"Melody, you probably shouldn't be doing that... it's rather dangerous you know." Mikay scolded.
+
+"I... I'm sorry but I hadn't had anything for breakfast..."
+
+"What? Why?"
+
+"Phanna showed me the wooden blocks you two were working on yesterday and I ended up feeling too disgusted to eat anything after... Phanna used that as an excuse to not have to cook me anything and went to bed..."
+
+"Geez... that Phanna... anyways, you go sit at the table, I'll finish this up." Mikay instructed.
+
+At Mikay's demand, I left the fireplace and went over to the table.
+
+"You did a good job starting the fire however" Mikay aplauded as I sat down.
+
+"Eh? Well I sometimes end up on cooking duty for my party in the past so I know my way aroud a fireplace."
+
+"Really? You elven younglings are much more experianced in life than I would have thought."
+
+"Oh, uh thanks, I think. I'm just not used to other humanoids being not as tough."
+
+"Well... life takes all kinds of shapes. I think the elves are extraordinary for how tough they are in general."
+
+"Um... thanks Master Mikay."
+
+Although this was indirect, I wasn't used to being prased so Mikay's words got me a little bit flustered.
+
+Mikay gave me a rub on my head and went back to roasting the meat. 
+
+The rest of our day went by in a pretty normal manner.
+
+I practiced my abilities after what turned into lunch while Mikay created more wooden sculptures of my skull with the blocks of wood using Forgemaster.
+
+After all the wooden blocks got turned into sculptures, Mikay left to do some hunting while I was left alone.
+
+I took this chance to nab Pillow to play with again... or was it Cushen...
+
+I have to ask Phanna to tell me how to tell them apart one of these days.
+
+Mikay returned later with what looked like more hunted game and a few more blocks of wood.
+
+Of course, I got scolded for nabbing one of the slime blobs to play with again.
+
+Phanna woke up after well after dinner instead of the aftenoon like he normally does.
+
+"I see you've made a few more of Melody's skulls" Phanna said after seeing the stack of wooden skull scuptures in the living room.
+
+"I really didn't want to but considring it's to help melody, I feel like I have no choice but to go with your your strange plan." Mikay sighed.
+
+"Glad to have you on board then" Phanna smiled.
+
+I still didn't have any clue as to what they were doing but Phanna quickly asked me to leave the two of them alone for the rest of the night.
+
+Of course, I took that chance to snag one of the slime blobs to play with.
+
+Looking at them more carefully, I was starting to notice they did have some differences.
+
+One of them was more aggressive around me than the other and when they're not busy being aggressively confrontational towards me, they'd often swim in different patterns.
+
+I wonder if that's how Phanna has been able to tell them apart.
+
+...
+
+The next day came and went with nothing major happening again and I ended up sneaking in more play time with Pillow and Cushen. 
+
+Of course, Mikay scolded me later but that to me was just a fact of life now.
+
+After all, I can't resist the urge to hug something so comfortable despite them being rather confrontational at times.
+
+However, just as I was about to head off to bed, Mikay and Phanna called me over to the bathroom.
+
+"Are you ready a complete makeover?" Phanna asked seemingly pretty excxted. 
+
+Mikay just sighed at Phanna's comment.
+
+"Uh... um... sure? Would you be able to explain what you're going to do?" I answered hesitantly.
+
+"Sure thing, Mikay here is going to use his Forgemaster or whatever you call it to reshape your skull. This will result in a bit of pain for you and your skull will take a few months to fully recover from the move but you should be completly unrecognizeable after the change." Phanna said sounding a bit excited
+
+Then, Phanna pulled out 2 skulls and continued.
+
+"You see, here, this, this is what your skull is like right now. And now look at this. This is what your skull will be after we're done. What do you think?" 
+
+"Uhh... I... can't tell the difference..." I replied a bit unimpressed.
+
+"Err... well... that doesn't matter, the results will speak for themselves. Anyways, your life is now in Mikay's hands. Take it away Mikay!"
+
+I had no idea why Phanna was so excited about this for some reason but I had a feeling I probably shouldn't ask.
+
+Mikay let out a sigh at Phanna's command and began the procedure.
+
+"Permission for Influence Extention" Mikay asked.
+
+Hesitantly, I agreed and once again, the strang feeling of losing control over a part of my body washed over me.
+
+Then I felt my Sphere of Influence move.
+
+It was an ability being activated.
+
+The ability was something I was completely unfarmiliar with and it felt like my Sphere of Influence was being moved in all sorts of strange ways it wasn't ever meant to be moved in.
+
+It was like a torrent of water, an unstoppable might pushing against my head that won't relent no matter what I did.
+
+It was so powereful that my body decided that resisting was all but meaningless.
+
+Yet for some reason, this powerful force somehow was bent and reshaped by some unknown power even greater than it and the force began to warp what felt like the very foundating of my being. 
+
+I guess that description wasn't completely wrong since Phanna did explain that my skull was getting reshaped by Mikay's Forgemaster.
+
+Yet this sensation was something beyond anything I could have expected.
+
+The unstoppable torrent of power gripped me like a stone in the waves and I felt another thing began to move.
+
+This time, it was something more Physical.
+
+At first, I thought the force was pulling on my skin and muscles but soon enough, I realized that the feeling wasn't my skin and muscles being pulled but the bone that makes up my skull.
+
+Before long, I could feel a small, dull pain radiating from all over my head.
+
+It wasn't anything worse than a pintch but it felt like it came from all over my face, as if something was firmly pressed into every part of my face.
+
+"It's done" Mikay said cutting into my thoughts.
+
+"Oohhh that's some really nice results" Phanna followed.
+
+I quickly moved over to the water barrel to see my reflection and what I saw shocked me.
+
+"W-who... is this..." I said completely baffled.
+
+I quickly ran my hands along my face to double check the reflection and a slightly sharper sensation of pain echoed from the places I had touched
+
+Yet that did not bother me one bit as right now, I was trying to confirm my appearance.
+
+"I... I can't believe this..." I ghasped.
+
+"How do you like your new look" Phanna said smugly.
+
+"I... It's... unbelievable..." I could barely choke out those words.
+
+It truly was.
+
+My normally flat face was now much rounder and smoother.
+
+My eyes somehow looked different from before yet I had no idea what changed,
+
+My chin was now much sharper and my jaw looked like it almost melted into my neck.
+
+These are only the minor changes I noticed, but I'm sure there's so many more I couldn't
+
+Just what kind of black magic is this?
+
+"Well. I'm heading to bed" Mikay declaired as if fairly unimpressed and departed from the washoom.
+
+But I couldn't even feel anything other than utter disbelief.
+
+My appearance that I was so used to seeing had just been altered like it was nothing.
+
+Even though I fully understood what happend, my mind was still unable to accept what just happened as I sared jaw wide open at my own reflection.
+
+I wanted to ask 'How' yet I know how.
+
+But in some way, my mind failed to understand it and refused to believe in logic.
+
+"Enjoying your new look?" Phanna asked playfully.
+
+"T-this is... too much..." I answered barely able to string together a sensable answer.
+
+"No, I think this is just enough. We couldn't modify yoor soft tissue but we needed to give you a completely different look. This is the least we could change to give you a completely new look."
+
+"But I can't even recognize myself!"
+
+"Isn't that the point?"
+
+"It..." I stopped myself before I continued further.
+
+Phanna's right, the goal from the beginning was to get a end up looking unrecognizeable and Phanna delivered exactly what he promised.
+
+But even though that is true, it's still very uncomfortable to see myself looking completely different from what I'm used to.
+
+I let out a big sigh and accepted my fate.
+
+As if that was the cue or something, Phanna began speaking again. 
+
+"Your face and parts of your jaw will sort of ache for a few days. The bones around the area that we modified will be slightly weaker for a few months so avoid hit in the face. Also, you should try to rest more in the near future as it would help you heal faster. So, off to bed you go."
+
+And before I knew it, I was tucked away in bed. 
