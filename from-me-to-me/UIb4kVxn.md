@@ -240,11 +240,9 @@ It made me rather uncomfortable in the beginning but after a couple minutes of i
 
 Mikay and Phanna spent the rest of the day together doing something to a block of wood.
 
-I tried to ask them what they were doing.
+When I tried to ask them what they were doing, Mikay ansewered with "I have no idea, try asking Phanna." and Phanna answered with "creating art."
 
-Mikay ansewered with "I have no clue, ask Phanna." and Phanna answered with "creating art."
-
-At the end, I was left just as clueless as mikay and ended up spending the rest of the day with Pillow and Cushen. 
+At the end, I was left just as clueless as Mikay and ended up spending the rest of the day with Pillow and Cushen. 
 
 The two blobs still didn't seem to like me much and would jump around when I approached.
 
@@ -316,7 +314,7 @@ By the time Mikay finally woke up, I was feeling absolutely famished.
 
 In fact, I was roasting some meat when I saw Mikay.
 
-"Melody, you probably shouldn't be doing that... it's rather dangerous you know." Mikay scolded.
+"Melody, you probably shouldn't be doing that... it's rather dangerous for someone your age you know." Mikay scolded.
 
 "I... I'm sorry but I hadn't had anything for breakfast..."
 
@@ -358,7 +356,7 @@ Mikay returned later with what looked like more hunted game and a few more block
 
 Of course, I got scolded for nabbing one of the slime blobs to play with again.
 
-Phanna woke up after well after dinner instead of the aftenoon like he normally does.
+Phanna woke up well after dinner time instead of the aftenoon like he normally does.
 
 "I see you've made a few more of Melody's skulls" Phanna said after seeing the stack of wooden skull scuptures in the living room.
 
@@ -386,7 +384,7 @@ After all, I can't resist the urge to hug something so comfortable despite them 
 
 However, just as I was about to head off to bed, Mikay and Phanna called me over to the bathroom.
 
-"Are you ready a complete makeover?" Phanna asked seemingly pretty excxted. 
+"Are you ready for a complete makeover?" Phanna asked seemingly pretty excited. 
 
 Mikay just sighed at Phanna's comment.
 
@@ -400,7 +398,7 @@ Then, Phanna pulled out 2 skulls and continued.
 
 "Uhh... I... can't tell the difference..." I replied a bit unimpressed.
 
-"Err... well... that doesn't matter, the results will speak for themselves. Anyways, your life is now in Mikay's hands. Take it away Mikay!"
+"Err... well... that doesn't matter, the results will speak for themselves. Anyways, your life is now in Mikay's hands. Take it away Forgemaster!"
 
 I had no idea why Phanna was so excited about this for some reason but I had a feeling I probably shouldn't ask.
 
@@ -430,7 +428,7 @@ The unstoppable torrent of power gripped me like a stone in the waves and I felt
 
 This time, it was something more Physical.
 
-At first, I thought the force was pulling on my skin and muscles but soon enough, I realized that the feeling wasn't my skin and muscles being pulled but the bone that makes up my skull.
+At first, I thought the force was pulling on my skin and muscles but soon enough, I realized that the feeling wasn't my skin and muscles being pulled but the bones that made up my skull.
 
 Before long, I could feel a small, dull pain radiating from all over my head.
 
@@ -452,7 +450,7 @@ Yet that did not bother me one bit as right now, I was trying to confirm my appe
 
 "How do you like your new look" Phanna said smugly.
 
-"I... It's... unbelievable..." I could barely choke out those words.
+"I... It's... unbelievable..." I said barely able to choke out those words.
 
 It truly was.
 
@@ -460,29 +458,29 @@ My normally flat face was now much rounder and smoother.
 
 My eyes somehow looked different from before yet I had no idea what changed,
 
-My chin was now much sharper and my jaw looked like it almost melted into my neck.
+My chin was now much sharper and my jaw looked like it almost melts into my neck.
 
-These are only the minor changes I noticed, but I'm sure there's so many more I couldn't
+These are only the minor changes I noticed, but I'm sure there's so many more I didn't notice.
 
 Just what kind of black magic is this?
 
-"Well. I'm heading to bed" Mikay declaired as if fairly unimpressed and departed from the washoom.
+"Well. I'm heading off to bed. Terminate Influence Extention." Mikay declaired in an unimpressed tone and departed from the washoom.
 
 But I couldn't even feel anything other than utter disbelief.
 
 My appearance that I was so used to seeing had just been altered like it was nothing.
 
-Even though I fully understood what happend, my mind was still unable to accept what just happened as I sared jaw wide open at my own reflection.
+Even though I fully understood what happend, my mind was still unable to accept what just happened as I gazed at my reflection jaw wide open.
 
-I wanted to ask 'How' yet I know how.
+I wanted to ask 'How' yet I already knew exactly how.
 
-But in some way, my mind failed to understand it and refused to believe in logic.
+But somehow, my mind failed to understand it and refused to believe in logic.
 
 "Enjoying your new look?" Phanna asked playfully.
 
 "T-this is... too much..." I answered barely able to string together a sensable answer.
 
-"No, I think this is just enough. We couldn't modify yoor soft tissue but we needed to give you a completely different look. This is the least we could change to give you a completely new look."
+"No, I think this is just enough. We couldn't modify your soft tissue but we needed to give you a completely different look. This is the least amount of change we could make to give you a completely new look."
 
 "But I can't even recognize myself!"
 
@@ -490,7 +488,7 @@ But in some way, my mind failed to understand it and refused to believe in logic
 
 "It..." I stopped myself before I continued further.
 
-Phanna's right, the goal from the beginning was to get a end up looking unrecognizeable and Phanna delivered exactly what he promised.
+Phanna's right, the goal from the beginning was to end up looking unrecognizeable and Phanna delivered exactly what he promised.
 
 But even though that is true, it's still very uncomfortable to see myself looking completely different from what I'm used to.
 
@@ -498,6 +496,6 @@ I let out a big sigh and accepted my fate.
 
 As if that was the cue or something, Phanna began speaking again. 
 
-"Your face and parts of your jaw will sort of ache for a few days. The bones around the area that we modified will be slightly weaker for a few months so avoid hit in the face. Also, you should try to rest more in the near future as it would help you heal faster. So, off to bed you go."
+"Your face and parts of your jaw will sort of ache for a few days. The bones around the area that we modified will be slightly weaker for a few months so avoid being hit in the face. Also, you should try to rest more in the near future as it would help you heal faster. So, off to bed you go."
 
 And before I knew it, I was tucked away in bed. 
