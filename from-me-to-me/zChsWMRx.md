@@ -293,3 +293,22 @@ Ya I probably shouldn't be digging through his stuff anymore than I already had.
 Back to the original plan it is.
 
 Snagging Pillow and Cushen's aquariums, I stealthily made my way back into my room and in hopes of spending the rest of the day playing with them
+
+Unfortunately, that didn't end up happening as Phanna invaded my room and we ended up fighting over who gets to play with Pillow and Cushen.
+
+Of course, we could each play with one of them but playing with both of them is much more fun.
+
+Pillow and Cushen sometimes would climb on top of each other and other times, they'd race each other.
+
+If you were cleaver, you could even chase them around and get them to run into each other and see their reactions.
+
+They were truly very intresting creatures.
+
+But having only one of them is much less fun than having both.
+
+Phanna and I both felt that way and as a result, we ended up fighting over who gets to play with both of them for some time.
+
+In the middle of our fight, a knock came from the front door causing us to stop our fighting for the moment.
+
+Phanna, of course, acted before I did and went to answer while I was still unsure of what to do about an unexpected visitor.
+
