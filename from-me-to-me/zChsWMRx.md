@@ -196,3 +196,100 @@ This must be rather serious...
 
 "M-maybe we should accompany you tomorrow?" I asked in concern.
 
+"I don't think either of us accompanying Mikay would accomplish anything. Think of it from their perspective for a moment. They know from the conversation today that Mikay here already knows something is up and will likely be very cautious tomorrow and for the next while too. A trap generally doesn't work if the target is aware of it so unless either they've got something as powerful as Mikay here and a home terf advantage is all that's needed to take him down or Mikay here isn't as big a deal as you all seem to think he is, then, there's almost no chance that anything would happen tomorrow. That is... unless you know something that we don't."
+
+It was pretty obvisous the final part of his statement was directed at me.
+
+I've lived in the elven colony for the longest time and is the person who knows the colony the best.
+
+A fight against someone like Mikay could easily push the colony to the brink of collapse. 
+
+It's unlikely that the colony would lose but still, that would be too much of a risk for the queen to take on.
+
+And all that is assuming Mikay is willing to fight a battle of attrition instead of retreating.
+
+"Just try not to die tomorrow ok? I still need you to teach me this summoning thing," Phanna joked as I fell into silence.
+
+Mikay's only response to Phanna's smug words were some grumbling.
+
+As much as the two of them doesn't get along, Phanna seems to always have a way to get what he wants out of Mikay.
+
+Mikay left for the elven village the next morning after cooking breakfast for me.
+
+Until Phanna woke up in the afternoon, I was the only one awake in the room.
+
+Now that Mikay's not here to stop me and Phanna's asleep, it's the perfect oppertunity to enjoy playing with Pillow and Cushen. 
+
+I snuck into Mikay's room and found 2 mini aquariums on a desk each with a slime blob inside. 
+
+Noticing my presence, both Pillow and Cushen started jumping within their aquarium as if they were trying to alert someone of something.
+
+Unfortuantely, no one is going to be saving you two today.
+
+But before I grabbed the two of them out of their boxes, I noticed something.
+
+I've never really explored Mikay's room before!
+
+looking around, the room seems awefully unremarkable.
+
+It looks just like Phanna's room except the aquarium in the back was replaced with a large shelf that pretty much covered the entire back wall.
+
+Otherwise, the room was rather empty except for the table and bed as everything else seemed to be on the shelf.
+
+Most of the shelf was filled with cloathing and other things but a few of them felt particularly empty with only a few things in them.
+
+Looking at them, I got the feeling that whatever was in those empty spots, it must have been very important.
+
+Unable to hold myself back, I made my way over to one of these slightly empty spots on the shelf and found a small stone tablet that had engraved into it a portrait of 4 people.
+
+The work was very detailed and must have been done by an expert artist.
+
+Running my fingers along the engraving, I could feel the smoothness of the surface.
+
+I wonder what it took to create something that felt this good in the hand.
+
+Of the 4 people in the engraving, I couldn't recognize any of them.
+
+They were all onis like Mikay, I could tell by the horns they all had.
+
+3 of them were female and only one was male.
+
+The male oni kind of resembled Mikay in a way. Maybe a brother? or maybe a younger Mikay?
+
+I didn't know.
+
+I placed the stone carving back and made my way over to another spot on the shelf that was slightly empty.
+
+Here, I found a book, not just any book or scroll, but a very well crafted book. 
+
+The coverings were made of wood with the titles carved into it but the pages between the covers where made of silk. 
+
+I knew that books of this design was normally made of animal hide but to use silk instead... this must have been an extremely important book.
+
+Unfortuantely, I had no idea how to read and flipping through, the book contianed nothing but written words so I gave up on trying to read it pretty quick and went to check out anther partially empty spot on the shelf.
+
+Here, I found 2 things. Something that looked like a rectangular metal tablet and a pair of rings made of something really shiny and reflective.
+
+In fact, I could see my own reflection in the rings if I looked hard enough but other than that, these rings were pretty boring.
+
+They didn't even have any special color and just looked like someone polished some black metal. 
+
+Moving on to the last somewhat empty spot on the shelf, I found a fancy looking tool of some kind.
+
+It was a stick made of the same black metal as the rings earlier but the tip was somewhat sharp.
+
+It didn't look like anything special had it not been for the stand it was found in. 
+
+Looking at it, I couldn't really figure out what it was used for but it clearly was something special. 
+
+If anything, it was made of the same stuff as those rings so this thing must have been important right?
+
+Stepping back, I looked at the shelf again and couldn't help but want to dig through all the stuff on there to see what other oddities I would find but I knew that if I did, I'd definately get in trouble with Mikay later.
+
+I'm sure I'd be scolded if I snagged Pillow and Cushen but digging through his belongings would likely get me scolded even more or worse... he might even throw me out...
+
+Ya I probably shouldn't be digging through his stuff anymore than I already had.
+
+Back to the original plan it is.
+
+Snagging Pillow and Cushen's aquariums, I stealthily made my way back into my room and in hopes of spending the rest of the day playing with them
