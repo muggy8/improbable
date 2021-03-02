@@ -369,3 +369,8 @@ But before he can continue, Phanna was at the aquarium already fishing the two b
 Not wanting to get caught in the middle of this, I quietly slipped out of Phanna's room and back into my room.
 
 I hope the two of them work something out...
+
+## <center>...<center>
+
+<center><a href="./zChsWMRx">Next Chapter</a></center>
+
