@@ -2,7 +2,6 @@
 Morray
 Robinson
 Rozen
-Emma
 Lauren
 Hayden
 Tamara
@@ -82,3 +81,4 @@ Leon
 Emily (older teacher friend)
 
 9M6GB4A5 (Phanna's home)
+Emma (investigator)
