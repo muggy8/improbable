@@ -282,5 +282,130 @@ Maybe this actually happened in this version of the world?
 
 Swallowed my feelings of uncertainty and continued listening.
 
-"During the attack, you, who happen to be on site as a special guest to the exams, and various other staff members of the Mastery League engaged the attackers and managed to drive them back. However many of the others on site were knocked out during the commotion for various reasons but it seemed that the attack was repelled somehow and it is believed that you were present as you are the only combat oriented Master in the Mountainpass area."
+"During the attack, you, who happen to be on site as a special guest to the exams, and various other staff members of the Mastery League engaged the attackers and managed to drive them back. However many of the others on site were knocked out during the attack for various reasons and the attack even claimed the life of a prospective student. However, the attack was repelled somehow and it is believed that you were the one who managed it as you are the only combat oriented Master in the Mountainpass area. This so far seems correct to you Master Mikay?"
 
+Again, Mikay responded with a slow nod as before while Phanna remained silent as well.
+
+But this completely went against everything I knew and was told, even by Phanna.
+
+In the history of this world, I was killed by Phanna during my attempt on his life but I triggered his 'self defense mode' and died because of it.
+
+As I was about to voice this, I suddenly remembered that Mikay something else that Mikay had told me.
+
+Everyone else's memory of the events had been altered and it seemed like my death in the world was an accident caused by some other unknown group instead.
+
+With that thought now in my mind, it became clear what Emma what trying to do and why Mikay was just nodding along and why Phanna seemed to remain silent this whole time.
+
+Emma wasn't trying to confirm anything here, instead, she's just trying to tell us what we're supposed to know instead of what we actually know.
+
+"After this, based on communication records, we know that you had contacted the Mastery League headquarters after this incident. However, for some reason, the communication stopped abruptly half way through the communication. It is this sudden stopping of communication that I'm mainly here to speak to you about as you are the only one who was present at the time."
+
+"I see." Mikay responded with yet another slow nod.
+
+"Master Mikay, I would like to ask you to explain to the best of your ability what happened during the communication and how the communication ended from your perspective."
+
+After hearing Emma's question, Mikay closed his eyes and took a deep breath before sighing and falling into silence. 
+
+With all 4 of us in silence, the tension within this room became even thicker.
+
+Seconds became minutes, minutes became hours.
+
+I quickly lost track of time somehow under the heavy atmosphere.
+
+Please, somebody, anybody, say something...
+
+Phanna, why did you choose now of all time to become a completely different person?
+
+Where's your strange and incomprehenseable statements in this situation?
+
+This tense atmosphere is sufficating me!!
+
+But just as I had thought this, Mikay suddenly spoke up.
+
+"During the communication with headquarters, some of the people who fell uncontious due to the attack were starting to regain contiousness again. Seeing this, I quickly went to their aid and accidentally dropped the communicator in doing so."
+
+After this statement by Mikay, the room once again fell into silence.
+
+This time, Emma was the one who seemed to be lost in thought.
+
+Phanna looked completely unfased and remained completely silent just as before.
+
+Was I the only one feeling this uneasy right now?
+
+Maybe that just shows how insignificant I was in the face of all of these extemely powerful people.
+
+Just like before, the silence this time did not last either.
+
+This time, Emma was the one to break the silence this time.
+
+"Is that so? Tending to the injured is a very important duty despite the fact that, as a combat oriented Master, you are not entirely qualified to do so. As such, I must still commend you for the efforts. That said, based on what we know so far, Master Ethan, who was a healing oriented Master, was the first to recover..."
+
+"No. I was the first to recover." interjected Phanna cutting into Emma's speach.
+
+"I'm sorry, Please ignore Phanna" Mikay insisted but Phanna didn't relent.
+
+"I was the first to wake up and Mikay here seemed to be beside me by the time I was fully contious. I ended up having an arguement with him for a while before I darted off and left him at the school grounds."
+
+Phanna's comment seemed to have struck something within Emma as she eyed him suspiciousely.
+
+Why does Phanna seem to choose the worst possiable time to break his silence and return to his usual self.
+
+Yet despite feeling this way, part of me was glad to just have the normal Phanna back.
+
+"That's an intresting proposition there... Phanna"
+
+"Does what I say not sound correct to you? That is to say, are you suggesting that you know who awakened in what order?" Phanna accused.
+
+"Phanna please stop!" Mikay plead but to no success.
+
+Despite the strange words of accusation from Phanna, Emma appeared to be the one driven into a corner.
+
+"I suppose what you're saying isn't entirely impossiable..." Emma sighed before she leaned back into her chair and getting a bit lost in thought.
+
+Once again, silence befell the room but this time, was quickly broken as Emma quickly spoke up again.
+
+"Phanna, I believe I must now also question you. Would you be willing to cooperate?" Emma asked glaring at Phanna.
+
+Phanna, for his part, was still somehow completely unfased and responded with a casual "Sure".
+
+"Tell me in the best way you can, what you were doing starting from the start of round 7 up to when you left Master Mikay after your arguement." Emma asked.
+
+Despite the question not directed at me, something about Emma and her words triggered a deep and unsettling fear within me.
+
+Yet somehow, both Mikay and Phanna seemed unaffected.
+
+Without skipping a beat, Phanna began answering Emma's question in a way that felt all too unfitting for the situation at hand.
+
+"My round 7 opponent happened to be the Melody that died on that day. We had a somewhat confusing chat about our past, present and future that lasted a bit longer than it should. After that, as we got ready to fight, the attack from the unknow bandits came. Melody was killed in the chaos while I was knocked out. After I had woken up, I was angry with Mikay and the situation we now found ourselves in. Because of that, I decided that I needed some alone time and ran off to hide from Mikay. Mikay, himself, on the other hand, decided to stay behind."
+
+After Phanna finished his explaination, I quickly glanced at Mikay before returning my gaze to Emma.
+
+Mikay looked somewhat surprised by Phanna's answer but it was hard to tell what he was thinking exactly. 
+
+Emma, on the other hand, seemed rather pained by what Phanna had said and had her arms crossed as she mulled over Phanna's statements.
+
+Before long, Emma unfolded her hands and gave a noding sigh to Phanna and stood up saying:
+
+"I think I have the whole picture here. Very well. I shall take my leave now."
+
+"I bid you farewell then, Master Emma." Mikay said in response to Emma's declration.
+
+"You too Master Mikay." Emma responded back.
+
+After that, Mikay showed Emma to the door and closed it after waving goodbye to her.
+
+The room was once again filled with silence as Mikay returned to the desk we were all sitting at. 
+
+Although we had one less highly improtant person among us and I was once again with my strangely farmiliar group of housemates again, the uneasy atmosphere did not disperse.
+
+The 3 of us sat in silence and once again, time began to lose meaning.
+
+"Thanks" Mikay spoke barely under his breath.
+
+Yet despite the soft tone, his words rung loud and clear in my ears.
+
+"Glad you noticed" Phanna answered back. 
+
+And then, there was me...
+
+"Um... What just happened?"
