@@ -125,3 +125,7 @@ knowing all of this, it would make sense why Phanna doesn't want us to target he
 Phanna needs time to grow her own colony, which means now's the perfect time to defeat a rival before they get a foothold.
 
 At first, this was just to satisfy the party's anger but now, it's gotten much more than just that.
+
+## <center>...<center>
+
+<center><a href="./Inesqadm">Next Chapter</a></center>
