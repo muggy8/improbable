@@ -312,3 +312,6 @@ In the middle of our fight, a knock came from the front door causing us to stop 
 
 Phanna, of course, acted before I did and went to answer while I was still unsure of what to do about an unexpected visitor.
 
+## <center>...<center>
+
+<center><a href="./Inesqadm">Next Chapter</a></center>

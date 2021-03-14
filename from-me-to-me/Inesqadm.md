@@ -14,7 +14,7 @@ The person on the other side knocked again and reluctantly, Phanna opened the do
 
 "Eh... what?"
 
-For the third time, the person out side knocked on the door and this time, he also said something along side the knocking.
+For the third time, the person out side knocked on the door and this time, she also said something along side the knocking.
 
 "Um? Can I speak with Master Mikay?" the person outside asked.
 
@@ -24,7 +24,9 @@ This time, I was the one to open the door and answer.
 
 The person standing before me was a female Warecat.
 
-She had long shiny silver white hair that mostly cover her left eye and cat like ears on top of her head.
+She had long shiny silver white hair that mostly cover her left eye. 
+
+Her cat like ears on top of her head where fully exposed and didn't seem to blend into her hair unlike Phanna's fox like ears.
 
 She was wearing light armor like the set I normally would be wearing had I still been living with the elves but instead of just leather, her armor was plated with bones and seems to fit her very well.
 
@@ -36,23 +38,23 @@ She even had turtle shells as knee and elbow guards.
 
 "I see. I'll try back tomorrow"
 
-"He likely won't be here either" Phanna interjected.
+"He likely won't be here tomorrow either" Phanna interjected.
 
 "What? Why's that?" the cat lady asked.
 
 "He got suckered into being a 'private instructor' for some elves and today happens to be his first day on the job. We don't know when he'll be back but he likely won't be home all that often from now on." Phanna answered.
 
-"I don't think 'suckered' is the best way to put it..." I sighed
+"I don't think 'suckered' is the best way to put it..." I argued
 
 "But it's not wrong either right?" Phanna said smugly in the tone he often uses when speaking to Mikay.
 
-The cat lady seeing us giggled at our exchange before she spoke again.
+The cat lady seeing our exchange chuckled before she spoke again.
 
 "I see. Would you mind if I stayed here and wait for his return?"
 
 "Huh? Why?" Phanna asked.
 
-"I'm here from Starfall to investigate the incident during the Mastery League's entrance exam here in Mountainpass on Feburary 32nd."
+"I'm here from Starfall to investigate the incident during the Mastery League's entrance exam here in Mountainpass on Feburary 18th."
 
 At her declration, I froze up as if I was looking at a cold hearted killer.
 
@@ -200,7 +202,7 @@ Turning bright red, I quickly dashed back into my room, slammed the door and snu
 
 ...
 
-"Hello, allow me to formally introduce myself. I'm Master Emma from Starfall. I'm tasked with investigating the Feburary 32nd incident." introduced the cat lady that came looking for Mikay earlier.
+"Hello, allow me to formally introduce myself. I'm Master Emma from Starfall. I'm tasked with investigating the Feburary 18th incident." introduced the cat lady that came looking for Mikay earlier.
 
 "Hello, and welcome. I am Master Mikay as you probably are already aware of." Answered Mikay.
 
@@ -260,11 +262,11 @@ Taking a deep breath, Emma broke the short silence and took control of the conve
 
 "Yes."
 
-"Thank you. Now lets get started. I have a couple of questions to ask you. Fortunately, I already got majority of what I need to know from Master Ethan so I only have a few questions for you. First off, lets go over what we already know so far and if anything seems off, please let me know."
+"Thank you. Now lets get started. Fortunately, I already got majority of what I need to know from Master Ethan so I only have a few questions for you. First off, lets go over what we already know so far and if anything seems off, please let me know."
 
 "Right." Mikay noded.
 
-"Right, to start, the incident happened on Feburary 32nd, the day of tht Mastery League's entrence exams. correct?"
+"To start, the incident happened on Feburary 18th, the day of tht Mastery League's entrence exams. correct?"
 
 "That is correct."
 
@@ -272,7 +274,7 @@ Taking a deep breath, Emma broke the short silence and took control of the conve
 
 Mikay gave Emma a slow nod.
 
-"It was during the 7th round that a band of unidentified raiders attacked Mountainpass. Based on what we know so far, it just so happened that they were apporaching from a direction that had the Mastery League building as the first building they'd encounter." Emma said with a somewhat intimidating but also serious looking face.
+"It was during the 7th round that a band of unidentified raiders attacked Mountainpass. Based on what we know so far, it just so happened that they were attacking from a direction that placed the Mastery League building as the first building they'd encounter." Emma said with a somewhat intimidating but also serious looking face.
 
 Wait, this wasn't what I remembered, yet Mikay only gave Emma a slow nod just like before.
 
@@ -282,23 +284,23 @@ Maybe this actually happened in this version of the world?
 
 Swallowed my feelings of uncertainty and continued listening.
 
-"During the attack, you, who happen to be on site as a special guest to the exams, and various other staff members of the Mastery League engaged the attackers and managed to drive them back. However many of the others on site were knocked out during the attack for various reasons and the attack even claimed the life of a prospective student. However, the attack was repelled somehow and it is believed that you were the one who managed it as you are the only combat oriented Master in the Mountainpass area. This so far seems correct to you Master Mikay?"
+"During the attack, you, who happen to be on site as a special guest to the exams, and various other staff members of the Mastery League engaged the attackers and managed to drive them back. However many of the others on site were knocked out during the attack. he attack unfortunately claimed the life of a prospective student named Melody. However, the attack was repelled somehow and it is believed that you were the one who managed it as you are the only combat oriented Master in the Mountainpass area. This so far seems correct to you Master Mikay?"
 
 Again, Mikay responded with a slow nod as before while Phanna remained silent as well.
 
 But this completely went against everything I knew and was told, even by Phanna.
 
-In the history of this world, I was killed by Phanna during my attempt on his life but I triggered his 'self defense mode' and died because of it.
+In the history of this world, I was killed by Phanna during my attempt on his life because I triggered his 'self defense mode' and died because of it.
 
 As I was about to voice this, I suddenly remembered that Mikay something else that Mikay had told me.
 
-Everyone else's memory of the events had been altered and it seemed like my death in the world was an accident caused by some other unknown group instead.
+Everyone else's memory of the events had been altered and it made it seem like my death in the world was an accident caused by some other unknown group instead.
 
 With that thought now in my mind, it became clear what Emma what trying to do and why Mikay was just nodding along and why Phanna seemed to remain silent this whole time.
 
 Emma wasn't trying to confirm anything here, instead, she's just trying to tell us what we're supposed to know instead of what we actually know.
 
-"After this, based on communication records, we know that you had contacted the Mastery League headquarters after this incident. However, for some reason, the communication stopped abruptly half way through the communication. It is this sudden stopping of communication that I'm mainly here to speak to you about as you are the only one who was present at the time."
+"After this, based on communication records, we know that you had contacted the Mastery League headquarters after this incident. However, for some reason, the communication stopped abruptly half way through. It is this sudden stopping of communication that I'm mainly here to speak to you about as you are the only one who was present at the time."
 
 "I see." Mikay responded with yet another slow nod.
 
@@ -306,7 +308,7 @@ Emma wasn't trying to confirm anything here, instead, she's just trying to tell 
 
 After hearing Emma's question, Mikay closed his eyes and took a deep breath before sighing and falling into silence. 
 
-With all 4 of us in silence, the tension within this room became even thicker.
+With all 4 of us in silence once again, the tension within this room somehow became even thicker.
 
 Seconds became minutes, minutes became hours.
 
@@ -336,11 +338,11 @@ Maybe that just shows how insignificant I was in the face of all of these exteme
 
 Just like before, the silence this time did not last either.
 
-This time, Emma was the one to break the silence this time.
+This time, Emma was the one to break the silence.
 
-"Is that so? Tending to the injured is a very important duty despite the fact that, as a combat oriented Master, you are not entirely qualified to do so. As such, I must still commend you for the efforts. That said, based on what we know so far, Master Ethan, who was a healing oriented Master, was the first to recover..."
+"Is that so? Tending to the injured is a very important duty despite the fact that, as a combat oriented Master, you are not entirely qualified to do so. Even so, I must still commend you for the efforts. That said, based on what we know so far, Master Ethan, who was a healing oriented Master, was the first to regain..."
 
-"No. I was the first to recover." interjected Phanna cutting into Emma's speach.
+"No. I was the first to regain contiousness." interjected Phanna cutting into Emma's speach.
 
 "I'm sorry, Please ignore Phanna" Mikay insisted but Phanna didn't relent.
 
@@ -354,7 +356,7 @@ Yet despite feeling this way, part of me was glad to just have the normal Phanna
 
 "That's an intresting proposition there... Phanna"
 
-"Does what I say not sound correct to you? That is to say, are you suggesting that you know who awakened in what order?" Phanna accused.
+"Does what I say not sound correct to you? That is to say, are you suggesting that you know the order of who regained contiousness and when?" Phanna accused.
 
 "Phanna please stop!" Mikay plead but to no success.
 
@@ -362,7 +364,7 @@ Despite the strange words of accusation from Phanna, Emma appeared to be the one
 
 "I suppose what you're saying isn't entirely impossiable..." Emma sighed before she leaned back into her chair and getting a bit lost in thought.
 
-Once again, silence befell the room but this time, was quickly broken as Emma quickly spoke up again.
+Once again, silence befell the room but this time, it was quickly broken again as Emma quickly spoke up once more.
 
 "Phanna, I believe I must now also question you. Would you be willing to cooperate?" Emma asked glaring at Phanna.
 
@@ -376,7 +378,7 @@ Yet somehow, both Mikay and Phanna seemed unaffected.
 
 Without skipping a beat, Phanna began answering Emma's question in a way that felt all too unfitting for the situation at hand.
 
-"My round 7 opponent happened to be the Melody that died on that day. We had a somewhat confusing chat about our past, present and future that lasted a bit longer than it should. After that, as we got ready to fight, the attack from the unknow bandits came. Melody was killed in the chaos while I was knocked out. After I had woken up, I was angry with Mikay and the situation we now found ourselves in. Because of that, I decided that I needed some alone time and ran off to hide from Mikay. Mikay, himself, on the other hand, decided to stay behind."
+"My round 7 opponent happened to be the Melody that died on that day. We had a somewhat confusing chat about our past, present and future that lasted a bit longer than it probably should. After that, as we got ready to fight, the attack from the unknow entities came. Melody was killed in the chaos while I was knocked out. After I had woken up, Mikay was next to me trying to tend to me though I didn't really need it. I ended up argueing with Mikay about the situation we now found ourselves in. Because of that, I decided that I needed some alone time and ran off to hide from Mikay. Fortunately, Mikay, decided to stay behind instend of persueing me."
 
 After Phanna finished his explaination, I quickly glanced at Mikay before returning my gaze to Emma.
 
@@ -396,7 +398,7 @@ After that, Mikay showed Emma to the door and closed it after waving goodbye to 
 
 The room was once again filled with silence as Mikay returned to the desk we were all sitting at. 
 
-Although we had one less highly improtant person among us and I was once again with my strangely farmiliar group of housemates again, the uneasy atmosphere did not disperse.
+Although we had one less highly improtant person among us and I was once again with my strangely farmiliar group of housemates, the uneasy atmosphere did not disperse.
 
 The 3 of us sat in silence and once again, time began to lose meaning.
 
@@ -409,3 +411,7 @@ Yet despite the soft tone, his words rung loud and clear in my ears.
 And then, there was me...
 
 "Um... What just happened?"
+
+## <center>…<center>
+
+<center><a href="./RQh4AQQW">Next Chapter</a></center>
