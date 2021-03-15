@@ -1,4 +1,4 @@
-# Assistants
+# WIP
 
 I've been heading over to Amanda's village to provide them with suplimentary lessons for almost a month now.
 
@@ -78,3 +78,96 @@ sometimes, she'd go and do some foraging and gather fruits, vegietables and mush
 
 Unfortunately, today's not one of those days as all we're eating for dinner is some roasted meat.
 
+"Melody, dinner's ready." I called out after I finish roasting the meat.
+
+At my call she quickly came out to have dinner.
+
+As we sat there eating food, I was reminded of the simple days I spent with Aurora and Hickory.
+
+As a family, we lived day to day not knowing what would come next but enjoying the moments we had at the time.
+
+Sharing meals were one of those times and hunting or foraging was another.
+
+We ate what we could get our hands on but we were happy just to have each other.
+
+Sitting here with Melody reminded me of those days as we at our food. 
+
+The only thing that felt missing was the idle chatter that we normally had over dinner between me, Aurora and Hickory.
+
+"I need to eat some rocks!" Phanna said suddenly as they sat down beside Melody and I.
+
+"Uhh What!?" Melody studdered.
+
+"Go right ahead" I answered uncaringly.
+
+Lately, I've mostly gotten used to Phanna's incomprehenseable statements and outbusts.
+
+I've even managed to completely ignore these strange statements now and not be bothered at all by them.
+
+Melody, on the other hand, still gets dragged around for a loop by Phanna each time one of these these nonsensical outbusts are made.
+
+"Why would you want to eat rocks?" Melody asked.
+
+"I need a fair bit of Silicon and a bit of Iron to finish the project I'm working on."
+
+"Um... What's Silicon?" Melody asked.
+
+"It's.... uhh, one of the elements..."
+
+"But you never even fully explained what an 'element' even is..." 
+
+As Phanna struggles to give Melody a satisfactory answer, I picked up my food tray and went over to the kitchen to clean it.
+
+This has become a somewhat common everyday occurance now.
+
+Phanna would spout some nonsense to catch Melody's attention and she'd take the bait and get pulled along.
+
+For whatever reason, Phanna seems to enjoy teasing Melody this way.
+
+Though I can't really complain as it keeps things lively around here.
+
+"Why not go outside and eat some rock off the ground if you want to eat them so badly" I said as I finished cleaning my food tray.
+
+Ofcourse, my statement interupted something Phanna was explaining but I had no idea what it was.
+
+I was never listening to begin with. 
+
+Phanna's full of these strange ideas and concepts that it's best for me to not engage with them.
+
+Afterall, the stupid ideas just goes deeper and deeper and there's no end to them.
+
+"You know, I can't just eat any rocks right? I need a specal type of rock with a high surface area to volume..."
+
+"Sure sure, go find your special rock then."
+
+"That's the issue! I have no idea where to go to find them!" Phanna pouted. 
+
+"Where are they normally found then?" Melody asked.
+
+"Well... anywhere really. We're probably standing on some right now but we'd have to dig for quite a while before we hit some..."
+
+"I'll be in my room if you need me." I sighed as I left Phanna and Melody to continue on their usual meaningless discussions.
+
+...
+
+The next morning, I was greeted by the most unusual of sights as I left my room.
+
+Phanna was sitting by the living room table tormenting Pillow and Cushen.
+
+"Morning"
+
+"Arn't you normally asleep right now?"
+
+"Only sometimes. But I would normally be in bed by now."
+
+"So why aren't you in bed right now?"
+
+"Because I want you to take me to the elven mountains."
+
+"Eh? Why's that?" I said feeling a bit irritated.
+
+"To look for my special rock. Duh!" 
+
+"Oh, good morning Mikay and Phanna" Melody said walking up behind me.
+
+It seems all 3 of us are awake now.
