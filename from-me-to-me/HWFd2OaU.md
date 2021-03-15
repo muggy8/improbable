@@ -171,3 +171,115 @@ Phanna was sitting by the living room table tormenting Pillow and Cushen.
 "Oh, good morning Mikay and Phanna" Melody said walking up behind me.
 
 It seems all 3 of us are awake now.
+
+What a rare sight...
+
+"So, Melody there told me last night that she used to live in the mountain. After thinking about its likely that I'll be able to find the specail rock that I'm looking for near the surface on a mountain. Since you're tutoring them, it'd make paying the mountains a visit easier for me"
+
+"Are you serious?" I lemented.
+
+"I mean, you did mention to Amanda that you'd bring guests." Phanna pressed.
+
+"I did that because I was thinking I'd tutor other students if the school remains closed next semester too since it's really my fault they had to close for a while."
+
+"Well what's the harm in bringing me now? Besides, it's probably close to when they'll try to do something to you by now. Nothing has happened so far and they likely wouldn't be putting in so much effort into getting you td visit every day if they weren't planning something."
+
+"And how would you help if that was the case?" I pressed.
+
+"Having someone new and unfarmiliar around would definately throw off their plans whatever they are right? Just that should be enough to keep you safe for another couple of weeks. Then I'll tag out with Melody here... or not since she still needs her bones to heal first... maybe we can both go? hmm..."
+
+Phanna suddenly dipped into thought part way through explaining their plan.
+
+Honestly, I don't know if I should be impressed that Phanna thinks things through this much or annoyed that Phanna doesn't do anything useful despite it.
+
+At this point, I don't even know if I should bother with waiting for Phanna to even put in any effort in trying to save my daughter.
+
+But Phanna does make a pretty valid case.
+
+I've gotten too used to the elves at this point that I'm no longer as sharp as I used to be.
+
+That said, I also haven't noticed the elves doing anything that could be considered as nafarious.
+
+But considering how forceful they were about getting me to visit their territory, it seems unlikely that they have nothing else planned.
+
+As much as I hate to admit it, Phanna's completely right in their assessment.
+
+If they were trying something, now would be the perfect time and having Phanna with me would definately throw their plans off by some amount.
+
+"If you want to come, then come. But don't expect me to take care of you however." I said as I went over to the fireplace to prepair breakfast.
+
+"Oh. sweet! Melody, take care of Pillow and Cushen!" Phanna exclaimed tossing the two slimes over to Melody.
+
+"PHANNA! Don't go tossing my pets around like some toy!!" I yelled upon seeing this.
+
+But my scolding fell on deaf ears as Phanna gave me a playful gesture, took a food tray and ran out the front door.
+
+As soon as the door closed, I could hear some footsteps on the roof; clearly, Phanna's gathering some of those strange black grass they decided to grow on the roof as food.
+
+...
+
+The two of us arrived at the elven training grounds later in the day.
+
+On our way to the training grounds, many of the elves  who would normally guard the area came to check out Phanna.
+
+Quite a few of them even tried to strike up conversations.
+
+Of course, I completely ignored everything and anything that came out of Phanna's mouth for my own good and hence didn't catch much of what happened.
+
+"What are you going to do now?" I asked Phanna after we arrived at the training grounds.
+
+"You said you were looking for some special type of rocks or something but I cant exactly follow you around. I'll be staying here for the rest of the day to teach the elves here." I explained furher.
+
+"Hmm... I think i'm going to explore the region a bit. Mybe I'll find what I need." Phanna answered.
+
+Phanna's answer shocked me a bit inside.
+
+I didn't expect Phanna to be able to give an type of answer or explanation that actually made sense.
+
+But I guess anything is possiable.
+
+At that time, another elf came up to us looking for a chat.
+
+"Teacher, who's this" the elf asked clearly gesturing towards Phanna.
+
+"This is Phanna, my apprentice of sorts" I answered.
+
+"Sup" Phanna added playfully.
+
+"Phann... hmm... Are you pregnent?" asked the elf girl.
+
+"What" I spat.
+
+Phanna, on the other hand, doesn't seem too bothered and answered calmly.
+
+"Nah. I can't get pregent."
+
+"Then what's with the stomach bulge" the elf girl pressed.
+
+"Oh, im building an electron scattering microscoope" Phanna answered as if either of us had any idea of what that is.
+
+I, for my part, ignored it and just move on with checking my surroundings but the elf girl who's name escapes me, is not so lucky and got pulled into one of Phanna's strange rants.
+
+Pretty soon, the elf girl was eyeing me in a way that was pretty much saying "please help get me out of this."
+
+Of course, being me, I completely ignored it.
+
+I definately didn't want to get involved with any of Phanna's strange ideas. 
+
+Additionally, this was something you bestowed upon yourself. 
+
+I'm not going to get my brain damaged to save you from whatever it is that you got yourself into.
+
+That said, what the elf girl said did strike me as somewhat odd.
+
+She said something about Phanna being pregenent and from the outside, it does look like Phanna has a small bulge on their stomach.
+
+However, I know that that cant be the case.
+
+Afterall, Eathan cant find Phanna's repordutive organs and he's an expert at that. 
+
+Not only that, Phanna themselves even admited to  not having anything so I'm sure Phanna can't be pregenent.
+
+That said, it sure does look like Phanna's pregnent from the outside doesn't it?
+
+Shaking this thought from my mind, I turned towards my students and proceeded on with the rest of my day.
