@@ -1,4 +1,4 @@
-# WIP
+# Just Another Day
 
 I've been heading over to Amanda's village to provide them with suplimentary lessons for almost a month now.
 
@@ -283,3 +283,7 @@ Not only that, Phanna themselves even admited to  not having anything so I'm sur
 That said, it sure does look like Phanna's pregnent from the outside doesn't it?
 
 Shaking this thought from my mind, I turned towards my students and proceeded on with the rest of my day.
+
+## <cente>~<center>
+
+<center><a href="./Ur78er4a">Next Chapter</a></center>
