@@ -344,4 +344,6 @@ I... I'll just stay far away and watch... that way, there's no chance for me to 
 
 Yah...!
 
-...
+## <center>~<center>
+
+<center><a href="./agPESRsG">Next Chapter</a></center>
