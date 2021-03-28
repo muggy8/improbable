@@ -1,4 +1,4 @@
-# Phanna’s Non-Sense
+# Ramblings
 
 After making my way out of the school grounds successfully, I found myself without much else to do.
 
