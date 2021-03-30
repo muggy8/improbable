@@ -204,3 +204,7 @@ Before she realized what was happening, Patricia had received a lethal kick stra
 If not for strengthen, Patricia was sure she would have die from that.
 
 'That's just not fair... this is our turf...' Patricia thought as she passed out.
+
+## <center>~</center>
+
+<center><a href="./XsCMjlrV">Next Chapter</a></center>
