@@ -1,5 +1,31 @@
 # Phanna Encounter Report 1
 
+Phanna moved through the forest like water in a river, unimpeded by any obsticle and at a constant speed.
+
+To the followers, this movement was both misterious yet mezmerizing. 
+
+Not only were the trees branches being used as platforms, everything in the enviroment was being used as well.
+
+The tall tree trunks were being used as vertical jumping off points by Phanna in ways the persuers never would have even considered.
+
+Jumps widely considered to be too dangerous or impossiable for the avarage person was being attempted and cleared with ease by Phanna.
+
+It felt like the only thing Phanna didn't do was touch the ground.
+
+And that made sense, this area of the forest floor was full of vegitation.
+
+Even Phanna would likely have a hard time traversing that concluded Phanna's persuers.
+
+Even though Phanna was their target, the persuers couldn't help but be drawn in by Phanna's elegant, purposeful, and effeciant movements and the incredible speeds at which these manuvers are perfomed.
+
+Somehow, even though this was Phanna's first time in this forest, they were flowing through the forest as if this was all planed out.
+
+Every step felt deliberate, every swing felt purposeful.
+
+Even at the speeds they were going, Phanna moved with a sense of ease and freedom.
+
+Phanna's persuers were all barely able to keep pace and follow Phanna but alas, the mad dash came to an end at the base of a cliff.
+
 "Hello there, do you have an appointment with me" Phanna asked jokingly.
 
 Although Phanna seemed to be the only person around at first, it didn't take long for others to show up.
