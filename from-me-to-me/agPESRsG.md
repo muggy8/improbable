@@ -24,13 +24,15 @@ Every step felt deliberate, every swing felt purposeful.
 
 Even at the speeds they were going, Phanna moved with a sense of ease and freedom.
 
+Even though the persuers were made up of some of the most skilled members of the elves, chasing Phanna with what should have been home terf advantage was still somehow incredibly dificult.
+
 Phanna's persuers were all barely able to keep pace and follow Phanna but alas, the mad dash came to an end at the base of a cliff.
 
 "Hello there, do you have an appointment with me" Phanna asked jokingly.
 
 Although Phanna seemed to be the only person around at first, it didn't take long for others to show up.
 
-"You seem to be quite perceptive" Patricia joked back.
+- "You seem to be quite perceptive" Patricia, the leader of the persuers, joked back.
 
 "You don't seem to be very good assassins. Revealing yourselves, even if your cover is blown, isn't really the best idea." Phanna scolded without event turning around to address the group
 
@@ -146,7 +148,11 @@ But despite the sudden attack, Phanna gracefully evadede not only Patricia but a
 
 The next thing Patricia realized, was that she was now slamed against the ground. 
 
-Thanks to Strengthen, Patricia didn't sustain much damage and she immediately got off the ground only to realize that she has no idea where Phanna is anymore.
+How Phanna did this was beyond Patricia's understanding.
+
+Patricia was sure she had her eyes locked on Phanna the whole time but she realized that she clearly didn't since she missed the counter attack.
+
+However, thanks to Strengthen, Patricia didn't sustain much damage and she immediately got off the ground only to realize that she has no idea where Phanna is anymore.
 
 For a spilt second, this fact brought panic to Patricia's heart but just as quickly, as that happened, she caught sight of Phanna again, dashing away from a group of elves.
 
@@ -207,7 +213,9 @@ Such brutal efficiency was something that both amazed and terrified Patricia as 
 
 First came Patricia's faint, a quick jab towards Phanna's head.
 
-Phanna made an attempt at perrying but Patricia immediately pull the jab back and threw another one out towards Phanna's torsal.
+Phanna made an attempt at perrying which Patricia finally caught sight of.
+
+Using the knowledge from her observations, Patricia immediately pull the jab back and threw another one out towards Phanna's torsal.
 
 All the while, Patricia let her body get carried by momentum towards Phanna.
 
