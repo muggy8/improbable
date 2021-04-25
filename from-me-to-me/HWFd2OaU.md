@@ -178,7 +178,7 @@ What a rare sight...
 
 "Are you serious?" I lemented.
 
-"I mean, you did mention to Amanda that you'd bring guests." Phanna pressed.
+"I mean, you did mention to Amanda that you'd bring guests eventually." Phanna pressed.
 
 "I did that because I was thinking I'd tutor other students if the school remains closed next semester too since it's really my fault they had to close for a while."
 
