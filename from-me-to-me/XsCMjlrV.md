@@ -58,7 +58,7 @@ Somehow, I couldn't accept what I saw, yet it also somehow felt normal.
 
 There was no fear in my heart, only discomfort and disgust.
 
-As I sat there in shock of the atrocity before my eyes, I noticed something moving in the corner of my eyes.
+As I sat there in shock of the nightmare before my eyes, I noticed something moving in the corner of my eyes.
 
 Turning my eyes towards the source of the motion, I noticed Phanna being persued my a group of elves.
 
@@ -66,5 +66,57 @@ Not a single one of them showed any hesitation in their actions, not the elves, 
 
 Yet somehow, I was full of hesitation.
 
-I could barely move myself as I watched the persute.
+I could barely move myself as I watched the high speed persute in a daze as the world around me became a blur.
+
+The motions of Phanna, the elves in persute, all of it melded together and became a blur.
+
+But despite that, I could not take my eyes off them.
+
+Something about this battle demanded my attention.
+
+That's right, I came here out of curiosity.
+
+I wanted to see the cause of signal for combat backup.
+
+And what I got... only left me conflicted.
+
+What I witness before my eyes was the work of a single person.
+
+That person right now is being persued by a group of elves; no, two group of elves now.
+
+Yet somehow, the person doesn't seem at all worried and carried on defensively like everything's fine countering every attack with something that I can only describe as elegant.
+
+I was mesmurized by Phanna's movents but why? why do I feel this way?
+
+I should be worried about my fallen sisters and yet, all I am doing is standing still, doing nothing, watching.
+
+Is it because I know how powerless I am?
+
+Is it because I'm sopposed to be dead?
+
+Why?
+
+As if on queue, a body shot out of the blur of a fight that surrounded Phanna and crashed into a tree.
+
+"Ah!" I ghasped.
+
+Looking at the body, I realized something; I recognized who it was.
+
+She was from my party.
+
+Even though all the elves in the colony are siblings and children of the queen, a party was something special, something more, a family within a family.
+
+Even though I know the others around me are related to me by blood, I somehow didn't feel anything from them, but seeing someone from my own party in this state...
+
+It was as if I was snapped out of my daze.
+
+"Ah..." I sighed.
+
+But who am I...
+
+I'm nothing but useless luggage, what can I do? Nothing.
+
+"Phanna..." I whimpered as my legs gave way under me.
+
+"Why..."  was the only thing that came out of my mouth.
 
