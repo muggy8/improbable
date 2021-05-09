@@ -301,3 +301,8 @@ Every second I lose is a second where Patricia is in further danger.
 I have to hurry.
 
 And so with such thoughts in my mind, I hurried towards the proving grounds where Mikay is currently teacing other elves.
+
+## <cente>~<center>
+
+<center><a href="./RRgnrPPm">Next Chapter</a></center>
+
