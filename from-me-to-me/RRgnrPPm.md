@@ -76,7 +76,7 @@ Before I could fully process what was explained to me, Phanna broke into our con
 
 "Is that so? Then why do you refuse to at the very least hear what I have to say?" Phanna said with a glare despite being blindfolded.
 
-"Sure, I'd be happy to find eternal rest but the way you all are going about it is completely off and is simply a waist of time and energy."
+"Sure, I'd be happy to find eternal rest but right now, I'm trying to figure something out. Aside from that, your methods are completely off and is simply a waist of time and energy."
 
 "Quiet you murderer!" Yelled the armored elf warrior but Phanna paid her no mind and continued.
 
@@ -160,3 +160,44 @@ Phanna has yet to prove useful in my quest to save Hickory but my gut feeling is
 
 What do I do? What should I say?
 
+Is there anything I can do?
+
+Maybe I should just let them kill Phanna...
+
+No, I cant do that, if the fighting continues then there's a good chance that the the person Melody is trying to prevent from dying will end up dead. 
+
+I know that feeling all too well, trying to protect someone from destruction. 
+
+So if I cant do anything to end this conflic then maybe I could do something else to prevent the worst case scenario. 
+
+I took a deep breath as I made up my mind and began to speak.
+
+"Alright, I guess I cant stop you from doing what you must. However, if I may, I'd like to make a selfish request. Your target is technically someone associated with me so I should at least have some say in this matter correct?"
+
+At my words, the armored elf warrior looked at me with a grim look as she hesitantly replied to me.
+
+"What would your request be Master Mikay?"
+
+Alright, it seems that I have some negotiating power in this matter. 
+
+"I would like to request all of you do your best to stay alive."
+
+At my request, the elves around me responded with a look of surprise and confusion as I looked continued speaking.
+
+"If things doesn't look good then please stop and find a way to survive. It does no good to anyone for you to die."
+
+After saying that, I turned my focus towards Phanna and prepared myself for what is about to come.
+
+"Phanna, you should hold back a bit. I know you're the one being attacked but at the very least, you should avoid killing where possible."
+
+"I... I can't..."
+
+"Is that so?"
+
+"I don't have control over my body anymore. It's just like what happened with Melody during the exam."
+
+With those words, Phanna silenced the whole forest.
+
+It was as if the whole world was confused.
+
+"As you know, when my life is being threatened, my self-defense system takes over most of my body's movements. From that point on, my body will act on it's on to ensure survival and I have little to no say in the matter."
