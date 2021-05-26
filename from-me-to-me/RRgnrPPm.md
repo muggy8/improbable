@@ -200,4 +200,66 @@ With those words, Phanna silenced the whole forest.
 
 It was as if the whole world was confused.
 
-"As you know, when my life is being threatened, my self-defense system takes over most of my body's movements. From that point on, my body will act on it's on to ensure survival and I have little to no say in the matter."
+"As you know, when my life is being threatened, my body enters self-defense mode and it takes over most of my body's movements. From that point on, my body will act on it's on to ensure survival and I have little to no control over what happens from that point on."
+
+This is the first I've heard of it actually. 
+
+Not to mention losing control of your own body? 
+
+That is a bit too convenient for this situation right?
+
+But I cant say I've never experianced it before. 
+
+When I had the communcation with the Mastery Leageu HQ, something like that did happen so I cant exactly say what Phanna is suggesting is impossiable.
+
+As I was quickly losing myself in thought, a voice yelled out from the group of elves in protest.
+
+"Impossiable! Don't believe a single word Phanna says. This whole self defense thing is all a lie. Her true goal is to wipe us all out and claim this territory for herself" yelled one of the elves from the crowd that was once chasing Phanna around. 
+
+I quickly refocused my attention onto her as she continued to shouting.
+
+"Even if we assume that this self defense mode thing exists, I know Melody personally as she was a part of my party. There was no possiable way she'd be able to do anything to threaten your life."
+
+After she made that statement, she lowered her stance as if to ready herself to attack at a moment's notice.
+
+Similarly, all the other elves including the armored elf warrior took up their battle stances.
+
+Phanna, oddly enough, was the only one who didn't seem to have made any posture adjustments. 
+
+Instead, Phanna didn't even move a muscle a the provacations.
+
+However, the elven figthters werent the only one who moved.
+
+Behind me, the Melody who was observing this whole situation from a safe distance tenssed up with anxiety as she looked towards the battlefield.
+
+Her experession said it all. 
+
+'I'm sorry, it's my fault,' 'Please stop,' 'If only I had known earlier.' It didn't take a genius to figure out what she was probably thinking.
+
+After all, I know those feeling very well myself.
+
+In fact, she looked like she was on the edge of jumping in and exposing herself and try to clear things up.
+
+But I didn't want that to be the outcome netiher would Phanna.
+
+In fact, it's unknown if the elves would even believe that this Melody is the same Melody who had died so many weeks ago nor do we know the consiquences of being known as someone who has undoutibly died and then somehow revived. 
+
+In the best case scenario, she'd end up being treated as some sort of monster by the Mastery League and shunned for life and it only gets worse from there.
+
+Though I don't know what Phanna is thinking, I know that at the very least, Phanna would like to keep the fact that this Melody is the same Melody that died alreayd as a secret.
+
+That's why, I have to do everything and anything to find the result that she is looking for. 
+
+In the worst case scenario, I'll have to knock her out to prevent her from doing anything rash. 
+
+Unfortunately, I have no idea what I have to do stop the fighting. 
+
+If only I could presuade the elves to stop, but I didn't have that much confidence in myself to do that. 
+
+That means, the only thing I could do now is to give Phanna as much help as I can and hopefully, they'll be able to talk themselves out of this hole. 
+
+Once again, I refocused attention on the elves who seems to be readying to attack and cleared my thoat. 
+
+"It seems you're mistaken, Melody did indeed make an attempt to kill Phanna during the exam." I declared. 
+
+With those words leaving my mouth, I could feel a signinficant change in the atmosphere as the elves started turning their gaze towards me one by one. 
