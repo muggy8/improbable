@@ -263,3 +263,69 @@ Once again, I refocused attention on the elves who seems to be readying to attac
 "It seems you're mistaken, Melody did indeed make an attempt to kill Phanna during the exam." I declared. 
 
 With those words leaving my mouth, I could feel a signinficant change in the atmosphere as the elves started turning their gaze towards me one by one. 
+
+"M-Master Mikay, what has Phanna done to earn your support so completely..." said the elf who was shouting at Phanna just a while back.
+
+She seemed to be quite surprised by my statement though I couldn't quite fault her for being surprised.
+
+"Unfortunately, I'm not exactly on Phanna's side right now."
+
+"Then why would you say that?"
+
+"Because it's the truth."
+
+"How?! We saw what happened! Sure, Melody kicked Phanna first but that didn't seems to cause Phanna any damage, yet Phanna, in return..."
+
+Her voice trailed off in the end as she was clearly hurt by the memories of such an event.
+
+I know the feeling of losing someone as well and it must be even harder considering how young she must be.
+
+"I'm not sure how you were watching but one thing I'm sure of is that I was much closer to the event than you were." I said.
+
+It seems that my statement had the intened effect as no argumentative rebuttal was made by any of the elves.
+
+However, I did receive a number of cautious looks from various members of the elves while others gave me mornful looks.
+
+"I was located at the judging area at the time of the incident and I was observing the entire exchange between Phanna and Melody. I was particularly intrested in that fight since I wanted to see how strong Phanna is in a fight. That's why I had both Observe and Investigate active to watch the event at the time. You're right, Melody did strike first but not only did she strike with Quicken, she also aimed for Phanna's neck. I dont know how Phanna managed to survive that unscathed but they did. I wouldn't say the way Phanna fought back the right way but I also wouldn't immediately declare Phanna to be in the wrong either."
+
+As I finished retelling the events of the exam, silence washed over the forest once again but that silence was shortly interupted.
+
+"Is... everything you've said true..?"
+
+The source of the question was none other than the elf who seems to have direct connection to Melody.
+
+I gave her a nod in response to her question which made her turn her gaze away from me.
+
+It was clear that what I said made her reconsider much of what she thought she knew about the situation. 
+
+"Is that why you're helping Phanna right now?" the elf asked after reexamining her own assumpitions.
+
+I wasn't exactly too sure what she was asking about but even despite that, I knew how I must answer.
+
+"I guess you could say that, though I'm not technically on Phanna's side."
+
+The moment when the opposition shows weakness, is one of the moment where victory can be achieved.
+
+In these moments, by pressing the offence without showing any weakness, victory will easily come within grasping distance.
+
+This is true no matter the encounter, with fists or with words; that's why, I must answer as if I knew what she was thinking.
+
+By pressing my advantage, maybe I can put an end to this conflict.
+
+"I... see..." She replied weakly before continueing, "Then... why are you helping Phanna if you're not on her side?"
+
+"To protect you all. I don't want to see needless deaths. Phanna probably isn't any danger to you all in the way you all seem to be thinking. I was asked to stop the fighting here because someone doesn't want to see you all die. It's why I requested you all stay alive."
+
+"Are you mocking us?!" Yelled the armored elf warrior immediately after my comment.
+
+"look around you? Is what I'm asking really mocking you?" I snarled back silencing the armored elf warrior.
+
+Reluctantly, the elves slowly sat down cross legged one by one.
+
+Seeing this, I knew my job was now complete.
+
+Sitting down is a simple yet effective way of saying that one does not intend to attack.
+
+Afterall, attacking from a sitting position is difficult, if not impossiable.
+
+And thus, I had finished playing my role within this conflict as I sat down too and gestured towards Phanna to do the same.
