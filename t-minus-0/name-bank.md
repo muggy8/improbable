@@ -66,6 +66,7 @@ Cassidy
 Jason
 Natasha
 Edison
+Mahogany
 
 ## Used:
 Phanna (isekai'd code: A244X0Z4305PHAN4)
