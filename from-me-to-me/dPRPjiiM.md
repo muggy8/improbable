@@ -90,3 +90,50 @@ But that doesn't matter because those words were spoken for me.
 
 Yet somehow, a response did come.
 
+"Apology accepted."
+
+The answer came from a voice I had gotten quite familiar with over the past few weeks.
+
+I immediately turned around to find Phanna standing behind me with Mikay standing around a little further back.
+
+"Lets head back for today..." Mikay said looking a bit sad.
+
+"I... I see... Lets head back then" I meekly answered as Phanna patted my head trying to comfort me before pulling me up onto my feet.
+
+...
+
+The 3 of us walked in silence as we exited the elven territory that I once called home. 
+
+As we walked through the various elven lands, memories of the time I spent here and there kept surfaced.
+
+Many of them were sad memories but there were some happy ones as well.
+
+I had a feeling that this will very likely be the last time I visit these mountains and even though my time spent here was not the best, I still have some strange feeling of attachment to these lands and my family that I grew up around.
+
+Many of the trees here that may just look like any other ordinary tree was something different to me.
+
+Although ordinary, these trees watched over me as I grew up, these lands provided for me through the good times and the bad times.
+
+Yet as I walked with Phanna and Mikay, I realized that I will likely never be able to see these trees again.
+
+"Can we... take a different path?" I asked as I stopped in my tracks.
+
+"Sure" Phanna immediately answered while Mikay was being more hesitant of the suggestion.
+
+Seeing this, Phanna immediately tried to convince Mikay.
+
+"What's the harm in taking a few extra steps." Phanna joked but Mikay didn't seem to like the joke very much.
+
+However, Mikay did end up agreeing to taking an alternate path and I was tasked with leading the way.
+
+Before long, we were standing infront a small group of trees that seemed to be too small compared to the rest of the trees around. 
+
+Unlike the other trees in the area, these trees didn't have leaves and had green spikes instead.
+
+"Hmm..." Phanna hummed upon seeing these trees as if lost in thought of some kind.
+
+Mikay, on the other hand, didn't seem to have noticed anything special about the trees but did end up realizing that we've arrived at the place that I wanted to visit.
+
+"What's this place?" Phanna asked looking at the needle trees.
+
+"This is the cemetery for the party of this area." I answered quietly. 
