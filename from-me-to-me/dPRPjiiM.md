@@ -126,7 +126,7 @@ Seeing this, Phanna immediately tried to convince Mikay.
 
 However, Mikay did end up agreeing to taking an alternate path and I was tasked with leading the way.
 
-Before long, we were standing infront a small group of trees that seemed to be too small compared to the rest of the trees around. 
+Before long, we were standing in front a small group of trees that seemed to be too small compared to the rest of the trees around. 
 
 Unlike the other trees in the area, these trees didn't have leaves and had green spikes instead.
 
@@ -137,3 +137,50 @@ Mikay, on the other hand, didn't seem to have noticed anything special about the
 "What's this place?" Phanna asked looking at the needle trees.
 
 "This is the cemetery for the party of this area." I answered quietly. 
+
+"I... I see" Mikay stated softly in surprise.
+
+I stood before the cemetery in silence for a short while trying to sort out my feelings.
+
+I didn't know what I wanted to find or what I was hoping to see.
+
+I had visited this place a few times in my past but it wasn't a place I had a particular connection to.
+
+If anything, the tree that I would sleep in during my past was probably the place I felt the strongest connection to, but visiting that place somehow didn't feel right; it would have felt like I was returning home.
+
+But this isn't my return.
+
+No.
+
+There was no more home for me to return to in the mountain anymore.
+
+That's why, the place I now stand before is the place of endings, a place of good byes.
+
+I guess I might be here to say good bye to the way of life I had lived up to now, or maybe I'm here to lay rest to myself.
+
+Whatever the case, something about this place felt right.
+
+Finally having cleared my thoughts, I finally took the steps into the cemetery.
+
+Phanna and Mikay followed shortly after as well.
+
+I looked over at the trees as I walked by them.
+
+Each of these trees had branches of other trees grafted into their trunks and branches.
+
+"Let me guess, these grafted branches represent those who have died?" Phanna asked in his usual tone.
+
+I gave Phanna a silent nod in response but Phanna didn't seem to even be looking in my direction. 
+
+Instead, he seemed to be examining the various tree branches with names carved into them.
+
+"So, what does this say?" Phanna asked looking at a branch with a rather exposed name carved into it.
+
+"I'm not sure... reading isn't a common skill here. There's no way a nobody like me would know." I replied without even taking a look at the branch
+
+"Is that so?" Phanna sighed as if lost in thought.
+
+"Hmmm... You're right, there is a name carved into these branches. This one reads 'Molly' it seems." Mikay said with a bit of surprise.
+
+"Oh? Interesting interesting..." Phanna murmured as he loses himself in thought.
+
