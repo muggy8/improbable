@@ -182,5 +182,94 @@ Instead, he seemed to be examining the various tree branches with names carved i
 
 "Hmmm... You're right, there is a name carved into these branches. This one reads 'Molly' it seems." Mikay said with a bit of surprise.
 
-"Oh? Interesting interesting..." Phanna murmured as he loses himself in thought.
+"Oh? Interesting interesting..." Phanna murmured as he loses himself in thought as he began to examine the different branches with carvings on them.
 
+Mikay also followed behind and started looking at the branches as well.
+
+Instead of looking at the different branches with Mikay and Phanna, I headed to the center of the cemetery instead in search of something else.
+
+The object I was searching for was a branch from a tree that could be grafted onto the spikey trees and the trees where those branches came from were located in the center of the cemetery.
+
+Because of the situation with Phanna and Mikay earlier, there's not a single guard on patrol in this area.
+
+Knowing this gave me a complicated feeling.
+
+Sure, being able to do this the last time I am here despite the way I am now is an incredibly fortunate situation. 
+
+Yet at the same time, I am the reason why this is the last time I will see my former home up close again.
+
+Swallowing my feelings, I stopped before a small group of trees that had a slightly different colored needles that the other trees. 
+
+To the untrained eyes, they might look like any of the other trees in the cemetery but what makes these trees special is the fact that during spring, they will produce flowers that glitter in various colors under the sunlight.
+
+Of course, these trees were the source of the branches that were grafted into the other trees and I was here to find a branch for myself.
+
+I wasn't anyone special, that's why, if I didn't do this, I doubt anyone else would graft a branch for me. 
+
+In fact, I don't even want to graft my own branch; I didn't deserve it.
+
+Yet even then, I didn't want to be forgotten by my home.
+
+Even though I was nothing but trouble for everyone around me, somehow, even knowing this, I didn't want to be forgotten.
+
+At the very least, I want this mountain to remember me even if none of my family does.
+
+With that in mind, I started searching for a branch that felt right; something small, something insignificant. 
+
+I didn't want to stand out, my only goal is to be remembered.
+
+A small branch form the edge of the tree... but it has to be able to produce a flower in the spring.
+
+"Hey Melody, there's a branch with your name on it." Phanna suddenly called out from near the edge of the cemetery surprising me.
+
+My name? Is that even possible? Who would have done that? 
+
+No no no, that's impossible, no one would have cared about me enough to graft a branch for me.
+
+It's probably someone else named Melody from before my time, I thought to myself as I continued my search for a branch.
+
+But Phanna called out once again throwing my mind into chaos.
+
+"The branch with your name on it seems to be newly grafted."
+
+Impossible...
+
+That's impossible... 
+
+There's no way that anyone would care about me enough to graft a branch for me.
+
+Yet  my body, as if having a will of it's own, moved towards Phanna.
+
+Driven by my cursed curiosity that has gotten me into so much trouble time and time again, I now stood before the branch that had my name carved into it.
+
+I didn't know how to read or write, but at the very least, I knew what my name looked like, and before my eyes, the branch definitely had Melody carved into it.
+
+I immediately looked towards the area where the branch was grafted onto the tree and as Phanna said, the graft was new. 
+
+The branch was grafted, at the very most, a week ago.
+
+Seeing this, my mind started racing.
+
+There was no doubt about it, this branch was for me.
+
+There was no one else named Melody in my party.
+
+Even if there was, I was the only Melody that died recently and there's no way a branch could have been grafted for someone who had died today.
+
+So who? Why? I was so worthless, I was so troublesome. so why?
+
+Why would someone graft a branch for me?
+
+Who would do something like this?
+
+Is this some kind of a joke?
+
+Something along the lines of 'remember that Melody person, don't be like her' right?
+
+Why else would someone graft a branch for me?
+
+I didn't know, I couldn't know.
+
+Yet even despite thinking that, tears stared flowing from my eyes as I failed to understand what I'm seeing. 
+
+I didn't want to believe what I'm seeing.
