@@ -272,4 +272,11 @@ I didn't know, I couldn't know.
 
 Yet even despite thinking that, tears stared flowing from my eyes as I failed to understand what I'm seeing. 
 
-I didn't want to believe what I'm seeing.
+"Phanna, did you graft this?" I asked despite knowing the answer already.
+
+After all, Phanna can't read or write either.
+
+As expected, Phanna answered by shaking his head.
+
+I then looked over to Mikay but he shook his head too.
+
