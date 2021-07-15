@@ -240,21 +240,19 @@ There's no way that anyone would care about me enough to graft a branch for me.
 
 Yet  my body, as if having a will of it's own, moved towards Phanna.
 
-Driven by my cursed curiosity that has gotten me into so much trouble time and time again, I now stood before the branch that had my name carved into it.
+Driven by the curiosity that has gotten me into so much trouble time and time again, I ended up standing before the branch that had my name carved into it.
 
-I didn't know how to read or write, but at the very least, I knew what my name looked like, and before my eyes, the branch definitely had Melody carved into it.
+I didn't know how to read or write, but at the very least, I knew what my name looked like, and the branch I was looking at definitely had 'Melody' carved into it.
 
 I immediately looked towards the area where the branch was grafted onto the tree and as Phanna said, the graft was new. 
 
 The branch was grafted, at the very most, a week ago.
 
-Seeing this, my mind started racing.
-
 There was no doubt about it, this branch was for me.
 
-There was no one else named Melody in my party.
+There was no one else named Melody in my party and this cemetary was used exclusively by my party
 
-Even if there was, I was the only Melody that died recently and there's no way a branch could have been grafted for someone who had died today.
+Even if there was another Melody in my party, I was the only Melody that died recently and there's no way a branch could have been grafted for someone who had died today.
 
 So who? Why? I was so worthless, I was so troublesome. so why?
 
@@ -279,4 +277,38 @@ After all, Phanna can't read or write either.
 As expected, Phanna answered by shaking his head.
 
 I then looked over to Mikay but he shook his head too.
+
+In tears, I stood gazed silently at the grafted branch unable to understand what I was seeing, unable to accept the reality before me.
+
+Who would have done this?
+
+Was this done as a joke?
+
+Not everyone gets a branch grafted for them so why me?
+
+This must be a joke of some kind right?
+
+Why would anyone else do this for me?
+
+Why... why... why... am I crying...
+
+What is this feeling?
+
+This pain in my chest, this discomfort in my stomach, this weakness all over my body. 
+
+What is all of this...
+
+I didn't understad any of it, but I felt like I should...
+
+Why... why... why...
+
+Everything all comes down to this questihn once more... why...
+
+I didn't have the answer yet somehow, I felt like I should...
+
+But why?
+
+"You know, back in my home world, it's not uncommon for people to simulate... uhh... create realistic dreams to see what a world without themselves would be like or how the world would change if they died that day. One of the saddest situations that could happen in these dreams is for no one to remember or care about the person once they've passed on."
+
+Phanna then patted my shoulder as he continued.
 
