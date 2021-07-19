@@ -308,7 +308,38 @@ I didn't have the answer yet somehow, I felt like I should...
 
 But why?
 
-"You know, back in my home world, it's not uncommon for people to simulate... uhh... create realistic dreams to see what a world without themselves would be like or how the world would change if they died that day. One of the saddest situations that could happen in these dreams is for no one to remember or care about the person once they've passed on."
+"You know, back in my home world, it's not uncommon for people to simulate... uhh... create realistic dreams to see what a world without themselves would be like or how the world and others around them would change if they died that day. Some do it out of curiosity, but for most, it's a part of the process of deciding on when to die."
 
-Phanna then patted my shoulder as he continued.
+Phanna then patted my shoulder as I turned to meet his gaze.
 
+"I'm sure this isn't the reality you expected to see. If this is one of those simulation dreams, I'd offer you the option to redo it and see potentially other outcomes but to my knowledge, this isn't a dream so the best I can do for you now is to tell you that this reality you've found yourself in probably isn't even the worst possiable outcome."
+
+After that Phanna took a step back to think about something before returning his gaze back to me.
+
+"Wanna hear about some truely unfortuate realities for some people from my home world ended up creating for themselves?"
+
+Of course my answer was yes.
+
+How could I ever resist something that sounds so intresting dangled right in front of me.
+
+But before I could even answer, Phanna continued talking. 
+
+"I'm not sure if I've told you about the great resets that happens in my world once ever so often. The previous one that happened was about 10 million years ago. In these events, basically all life that ever existed on my home world ends up dead."
+
+Phanna then broke eye contact to look at the trees around us.
+
+"For most people who don't really know much about these events dont think too much of it and assume they're just the result of some natrual cycle that happenes in the world. In a way, they're not wrong, it is more or less a natrual cycle that happens every 10 to 100 million years but the great resets are always the result of human activity."
+
+Phanna then sat himself down on the ground.
+
+"The reason why these great resets happen is because some group of humans decided that they want to wipe out all life in the world and so they got to work trying to figure out a way achieve that. Of course, when they wipe out all life in the world, that means they themselves will be killed as well. In fact many of these people are the first ones to die during a great reset event.
+
+Hearing this, I gulped a little.
+
+"Of course, they didn't want to just kill themselves and just hope whatever superbug they created would be able to do the damage they needed it to do. That's why these groups create countless simulation dreams to ensure that after they die, the end result is that all of life would end up dieing as well. The funny thing is, even though that is the case, something somewhere would almost always manage to get life going again after a great reset that the initial reset team didn't anticipate and the simulations didn't know about. It's quite tragic really, to work your whole life towards a goal only to have the end results be complet failure and also to not know about it."
+
+Phanna sighed at the thought as if to sympathise with these people. 
+
+Yet to me, none of that made any sense.
+
+"W... why... Why would people want to do that? and why do you sound like you sound like you've tried something similar before..."
