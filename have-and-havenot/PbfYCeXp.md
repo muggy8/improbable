@@ -34,7 +34,7 @@ I then squished the tube and lowered it until finally, it became a small narrow 
 
 With my catch in hand, I made my way back home.
 
-On the way home, I traded parts of the fish I caught for some cooked rice.
+On the way home, I got some rice from the neighbor who owed me a favor.
 
 Once I entered my home, I called out to Phanna to make it clear that it was me.
 
