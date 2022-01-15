@@ -24,6 +24,6 @@
   },
   "homepage": "https://github.com/muggy8/improbable#readme",
   "dependencies": {
-    "marked": "^0.8.0"
+    "marked": "^4.0.10"
   }
 }
