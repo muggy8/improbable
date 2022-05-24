@@ -1,4 +1,4 @@
-# Title WiP
+# Unstable Calm 
 
 "All of you! Stop!" I yelled in a commanding voice as I arrived at the location Melody guided me to.
 
@@ -329,3 +329,7 @@ Sitting down is a simple yet effective way of saying that one does not intend to
 Afterall, attacking from a sitting position is difficult, if not impossiable.
 
 And thus, I had finished playing my role within this conflict as I sat down too and gestured towards Phanna to do the same.
+
+## <center>...<center>
+
+<center><a href="./dPRPjiiM">Next Chapter</a></center>
