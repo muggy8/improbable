@@ -254,7 +254,7 @@ It might not work but at the very least I should give it a try.
 
 “Hmm?”
 
-“Would you be willing to help me save my daughter?”
+“Would you be willing to help me save my daughter Hickory?”
 
 Phanna gave me a look of confusion along with a “Wha?”
 
@@ -356,7 +356,11 @@ I shook my head violently trying to clear my mind before finally looking back at
 
 “Right. What about my daughter?”
 
-“What sort of danger is she actually in?”
+"What's her name again?"
+
+"Hickory"
+
+“Right, and what sort of danger is she actually in?”
 
 “A-ah right. The Grandmasters in the Guild of Mastery are seen as the protectors of humanity. Those who can match the Grandmasters in power but aren't a Grandmaster themselves are considered to be a major threat to all of humanity and are therefore known as Phantom Lords. I know that you don’t see that as a problem but in our world, we are entirely unable to accept the total destruction of all humanity nor do we believe we can recover from such a disaster. That’s why all those who are seen as major threats to humanity are hunted down by the Mastery League and that fate is the fate I would like to save my daughter from.”
 
