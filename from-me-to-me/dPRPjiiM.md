@@ -16,7 +16,7 @@ Seeing this, I let out a sigh of relief as I stayed by a tree behind Mikay.
 
 As the tension left my body, I could feel strength leave my legs as well and before I knew it, I was sitting on the ground by the tree I was standing beside just a moment ago.
 
-Thank goodness things seem to have clamed down now it seems.
+Thank goodness things seem to have calmed down now it seems.
 
 Looking over to the group once again, it seems that everyone has seated themselves now, even Phanna and Mikay too.
 
@@ -296,50 +296,88 @@ What is this feeling?
 
 This pain in my chest, this discomfort in my stomach, this weakness all over my body. 
 
-What is all of this...
+All of these feelings was normal to me, all this was something I expected of me.
 
-I didn't understad any of it, but I felt like I should...
+I've felt them over and over again yet despite that, I felt like there's no reason for me to feel this way right now.
 
-Why... why... why...
+Everyone knew what I was, everyone knows who I was...
 
-Everything all comes down to this questihn once more... why...
+The failure that was me, the laughing stock of the party.
 
-I didn't have the answer yet somehow, I felt like I should...
+Me, who has brought so much misfortune to everyone around me.
 
-But why?
+Me, the source of all troubles to everyone around me.
 
-"You know, back in my home world, it's not uncommon for people to simulate... uhh... create realistic dreams to see what a world without themselves would be like or how the world and others around them would change if they died that day. Some do it out of curiosity, but for most, it's a part of the process of deciding on when to die."
+Me, who couldn't even die without causing problems.
 
-Phanna then patted my shoulder as I turned to meet his gaze.
+This person is the me that I see honored by the branch in front of me.
 
-"I'm sure this isn't the reality you expected to see. If this is one of those simulation dreams, I'd offer you the option to redo it and see potentially other outcomes but to my knowledge, this isn't a dream so the best I can do for you now is to tell you that this reality you've found yourself in probably isn't even the worst possiable outcome."
+"Do you hate this person?" asked a familiar voice in a strangely unfamiliar way. 
 
-After that Phanna took a step back to think about something before returning his gaze back to me.
+I slowly turned my head to looked towards the source of the question, Phanna, who was pointing at the branch with my name written on it. 
 
-"Wanna hear about some truely unfortuate realities for some people from my home world ended up creating for themselves?"
+As If responding to my gaze, Phanna spoke out once again.
 
-Of course my answer was yes.
+"Do you  hate this person?" ask with a mix of compassion and pain.
 
-How could I ever resist something that sounds so intresting dangled right in front of me.
+"I... I don't know" I whispered in tears.
 
-But before I could even answer, Phanna continued talking. 
+"Then what about this person?" Phanna continued but this time, their fingers pointed towards themself.
 
-"I'm not sure if I've told you about the great resets that happens in my world once ever so often. The previous one that happened was about 10 million years ago. In these events, basically all life that ever existed on my home world ends up dead."
+Seeing this gesture, my tears spilled out like a waterfall.
 
-Phanna then broke eye contact to look at the trees around us.
+I tried to shake my head but I had no idea if i managed to do that.
 
-"For most people who don't really know much about these events dont think too much of it and assume they're just the result of some natrual cycle that happenes in the world. In a way, they're not wrong, it is more or less a natrual cycle that happens every 10 to 100 million years but the great resets are always the result of human activity."
+I couldn't even see anything anymore.
 
-Phanna then sat himself down on the ground.
+But Phanna continued still.
 
-"The reason why these great resets happen is because some group of humans decided that they want to wipe out all life in the world and so they got to work trying to figure out a way achieve that. Of course, when they wipe out all life in the world, that means they themselves will be killed as well. In fact many of these people are the first ones to die during a great reset event.
+"What about this person?" Phanna asked once more.
 
-Hearing this, I gulped a little.
+I couldn't see what Phanna did or who Phanna pointed towards but I felt a soft finger touching my nose.
 
-"Of course, they didn't want to just kill themselves and just hope whatever superbug they created would be able to do the damage they needed it to do. That's why these groups create countless simulation dreams to ensure that after they die, the end result is that all of life would end up dieing as well. The funny thing is, even though that is the case, something somewhere would almost always manage to get life going again after a great reset that the initial reset team didn't anticipate and the simulations didn't know about. It's quite tragic really, to work your whole life towards a goal only to have the end results be complet failure and also to not know about it."
+Though my blurred vision, I followed the finger all the way back to Phanna who is now just a blur in my vision.
 
-Phanna sighed at the thought as if to sympathise with these people. 
+I tried to wipe away my tears and but more only came out to blur my vision once again.
 
-Yet to me, none of that made any sense.
+This time, I didn't even make an attempt to answer Phanna's question.
 
-"W... why... Why would people want to do that? and why do you sound like you sound like you've tried something similar before..."
+After all, I couldn't give this answer no matter how many times anyone asked.
+
+I knew the answer, yet I cant say it.
+
+So I just continued to cry. 
+
+Yet even despite my lack of an answer, Phanna continued as if I had answered clearly anyways.
+
+"Would if make you feel better if I was the one who was honoring your death?" Phanna asked.
+
+"I... don't know" I murmured once again as I tried to wipe my tears away once again.
+
+"Then lets try it." Phanna replied.
+
+Phanna then revealed a somewhat long looking rock that they had been holding on to with their other hand and wrapped it in a bit of the the shirt that they were wearing.
+
+Phanna then gestured to Mikay and and Mikay came over and phanna dipped the rock into a bowl of water that Mikay had obtained without my notice.
+
+My tears stopped as I was entranced by whatever Phanna was doing with the rock and the cloth.
+
+As i looked on, the cloth that was wrapped around the rock desolved into the liquid and the rock started bubbling withing the murky water.
+
+"Come feel this, it's quite warm" Phanna said to me.
+
+Without thinking, I held out my hands towards the bowl of liquid and Phanna handed it to me just as quickly without letting go.
+
+The bowl did indeed feel warm and somehow the warmth made me feel a bit better inside as well.
+
+before long, the bubbling stopped and Phanna took the rock out of the murky water and showed it to me.
+
+Some strange yet beautiful symbols I had never seen before were engraved onto the rock.
+
+Phanna then partially burred the engraved rock into the ground vertically and then took a step back to stand next to me.
+
+"Melody, may you find eternal peace. That's what it reads." Phanna said without looking away from the rock.
+
+After a small moment of silence, Phanna then took the engraved stone from the ground and placed it into my hands.
+
+"May you also find peace as well" Phanna said to me while looking into my eyes.
