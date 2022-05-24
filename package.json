@@ -23,7 +23,8 @@
     "url": "https://github.com/muggy8/improbable/issues"
   },
   "homepage": "https://github.com/muggy8/improbable#readme",
-  "dependencies": {
-    "marked": "^4.0.10"
+  "devDependencies": {
+    "marked": "^4.0.10",
+    "randomstring": "^1.2.2"
   }
 }
