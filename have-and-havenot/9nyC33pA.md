@@ -356,7 +356,7 @@ I shook my head violently trying to clear my mind before finally looking back at
 
 “Right. What about my daughter?”
 
-"What's her name again?"
+"What's she called again?"
 
 "Hickory"
 
