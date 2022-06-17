@@ -381,3 +381,7 @@ Phanna then partially burred the engraved rock into the ground vertically and th
 After a small moment of silence, Phanna then took the engraved stone from the ground and placed it into my hands.
 
 "May you also find peace as well" Phanna said to me while looking into my eyes.
+
+## <center>~<center>
+
+<center><a href="./kKLPhQCS">Next Chapter</a></center>
