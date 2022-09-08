@@ -16,7 +16,7 @@ But my voice is faltering.
 
 Was Phanna unsure of the decision they made?
 
-"Sometimes... It's better not knowing the truth." I lemented.
+"Sometimes... It's better not knowing the truth." I lamented.
 
 "But sometimes... what's better isn't what's right..."
 
@@ -34,7 +34,7 @@ Phanna, for some reason, just accepted that.
 
 It could take a while for me to get used to a much less argumentative Phanna.
 
-As for Pillow, I decided to take keep it in the mini aquairum that was onnce in Hickory's room and moved it into my room.
+As for Pillow, I decided to take keep it in the mini aquarium that was once in Hickory's room and moved it into my room.
 
 leaving Pillow with Phanna was probably going to result in issues later.
 
@@ -46,23 +46,23 @@ The next morning, Melody joined me for breakfast.
 
 This was yet another thing I had to get used to.
 
-"Where's mr. Phanna?" Melody asked.
+"Where's Mr. Phanna?" Melody asked.
 
 "Phanna doesn't normally wake up till very late in the day. At this point, I'm pretty sure Phanna's at least partially vampire." I sighed.
 
-"I see... Do you happen to know what mr. Phanna is exactly?"
+"I see... Do you happen to know what Mr. Phanna is exactly?"
 
 "Not really. I was just told 'human' and among other strange things."
 
-"That's basically what mr. Phanna told my sister Amanda during the exam."
+"That's basically what Mr. Phanna told my sister Amanda during the exam."
 
 "I guess that probably means Phanna at the very least believes in whatever they're saying. That or there's a reason for hiding this information from us."
 
-"Why would mr. Phanna do that?"
+"Why would Mr. Phanna do that?"
 
-"Not sure" I sighed in response before I continued on from the small talk.
+"Not sure. That's why I've more or less accepted what Phanna is what they claims to be." I sighed in response before I continued on from the small talk.
 
-I handed Melody a tray of food from yesterday's hunt and moved onto the topic that I truely wanted to discuss.
+I handed Melody a tray of food from yesterday's hunt and moved onto the topic that I truly wanted to discuss.
 
 Although Phanna being mostly nocturnal was rather annoying most of the time, this was the one few times where Phanna being nocturnal turned out to be a positive thing for me.
 
@@ -74,11 +74,11 @@ Seeing this, I realized that I probably should have asked her this question afte
 
 "I don't... know..."
 
-"I summoned you which means you are my responsibility now. Thah means you stay here for as long as you like."
+"I summoned you which means you are my responsibility now. That means you can stay here for as long as you like."
 
 Melody gave me a weak nod at my statement as I continued.
 
-"Since I summoned you, I think you deserve to know why. i'm trying to save my daughter Hickory."
+"Since I summoned you, I think you deserve to know why I did it. I'm trying to save my daughter Hickory."
 
 Melody let out a gasp at this statement unlike Phanna which was kind of a relief.
 
@@ -110,11 +110,11 @@ Hickory alone could very well cause the extinction of entire group of humanoids 
 
 The only reason she hasn't done that is probably because of the time she spent as a Grandmaster and the values me and Aurora had passed on to her she she was still a child.
 
-Asking anyone regardless of especially Melody or even Phanna for assistance in facing down opposition like this is something that I know to be wrong.
+Asking anyone regardless of of who they are, especially Melody or maybe even Phanna, for assistance in facing down opposition like this is something that I know to be wrong.
 
 Yet despite that, this is something I felt like I must do.
 
-It was as if  something inside me was willing me into action no matter what.
+It was as if something inside me was willing me into action no matter what.
 
 The worst part is, I knew what that thing willing me into action is: my desire to find some form of meaning the events that happened on that day and my desire to protect the only thing that I have left of my family.
 
@@ -128,7 +128,7 @@ Thought like these swirled around my mind as I waited for Melody's response.
 
 That was the only thing I could do and say that felt 'right' in the current situation.
 
-"Does mr. Phanna know about your goal?"
+"Does Mr. Phanna know about your goal?"
 
 "Yes."
 
@@ -156,7 +156,7 @@ As if to confirm my suspicion, Melody asked after a short while.
 
 "W-would you be willing to teach me that ability? I-I might not be very useful most of the times but I can at least manage small tasks like this..."
 
-"I wouldn't mind... but I think it's probably best for you to master Influence Manipulation more before you start tryiny to learn quality of life Abilities like Vibration and such."
+"I wouldn't mind... but I think it's probably best for you to master Influence Manipulation more before you start trying to learn quality of life Abilities like Vibration and such."
 
 "T-true..." Melody said hesitantly.
 
@@ -174,7 +174,7 @@ But I grabbed her before she could even put on her shoes which caused Melody to 
 
 It took a while for Melody to catch what I was saying but once she did, she started making her way back to the living room.
 
-"S-sorry Master Mikay..." Melody appoligized softly. "I-It has completely slipped my mind... I'm sorry"
+"S-sorry Master Mikay..." Melody apologized softly. "I-It has completely slipped my mind... I'm sorry"
 
 "Don't worry about it. I'm sure we'll find a way around this situation." I said trying to comfort her.
 
@@ -202,13 +202,13 @@ Soon enough, however, I could see her ability deactivate.
 
 Melody gave me an embarrassed nod.
 
-"Then let me try something. Permission for Influence Extention?" I asked.
+"Then let me try something. Permission for Influence Extension?" I asked.
 
 My proposal shocked melody a bit.
 
 I'm sure she knows what I'm asking for and the dangers it entails.
 
-"Wh-why are you requesting to control my Spere of Influence?" Melody asked hesitantly.
+"Wh-why are you requesting to control my Sphere of Influence?" Melody asked hesitantly.
 
 Hearing this, I giggled slightly as I proceeded to speak.
 
@@ -248,7 +248,7 @@ But Phanna didn't seem the least bit surprised at all.
 
 "How long is a year? just for reference." Phanna continued as if all is normal.
 
-Melody respoded with confusion. 
+Melody responded with confusion. 
 
 As for me, I was rather used to Phanna's strangeness that I didn't bat it a second thought and answered.
 
@@ -256,15 +256,15 @@ As for me, I was rather used to Phanna's strangeness that I didn't bat it a seco
 
 "Um... well every?" Phanna answered seemingly a bit confused as well.
 
-"There's 2 type of years, seasonal years and solstace years. Seasonal years are 768 days long and lasts all 4 seasons. The solstace year marks the time between the solstace of day and the solstace of night which means the solstace year is 384 days. The solstace of night also happens to marke a new seasonal new year. That said, the seasonal year is rarely ever used. Satisfied?"
+"There's 2 type of years, seasonal years and solstice years. Seasonal years are 768 days long and lasts all 4 seasons. The solstice year marks the time between the solstice of day and the solstice of night which means the solstice year is 384 days. The solstice of night also happens to mark a new seasonal new year. That said, the seasonal year is rarely ever used. Satisfied?"
 
-"So your age is counted in solstace years correct?"
+"So your age is counted in solstice years correct?"
 
 "Yes, that would be correct." I answered.
 
 "Hmmm... and the current date?"
 
-"March 10th after the solstace of day."
+"March 10th after the solstice of day."
 
 "No year number or name?"
 
@@ -274,13 +274,13 @@ That's when Melody interjected.
 
 "Um... well... it's year number 136 of my colony..." 
 
-"And that's based on solstace years?" Phanna asked seeming a bit intriegued.
+"And that's based on solstice years?" Phanna asked seeming a bit intrigued.
 
 "Um, no, that's one of the few things that's based on the seasonal years." Melody answere.
 
 Hmmm..."
 
-Phanina somehow ended up lost in thought after Melody's answer but I was just glad this conversation ended before it got too out of wack.
+Phanna somehow ended up lost in thought after Melody's answer but I was just glad this conversation ended before it got too out of wack.
 
 But just as I thought that, as if to spite my optimism, Phanna spoke out again.
 
@@ -304,9 +304,9 @@ Our answers seemed to give Phanna pause too but eventually Phanna decided to con
 
 "The start of our colony."
 
-"Right. And that's normally how calendars are. They're usuaully anchored to dates of historical, religious, or agricultural importance. This system doesn't seem related to agriculture or history at all and makes too much sense to be something religion related. That's why it doesn't make sense."
+"Right. And that's normally how calendars are. They're usually anchored to dates of historical, religious, or agricultural importance. This system doesn't seem related to agriculture or history at all and makes too much sense to be something religion related. That's why it doesn't make sense."
 
-"There's your non-senseical ramblings again. As far as religion goes, yes the date system we have isn't really tied to anything. As for historical events, each village or maybe each region would have it's own set of historical events. If that's used then there'd be literally no reason for having dates at all if no one aggreed on when now is. As for this 'Agriculture' thing goes, I don't even know what it is."
+"There's your nonsensical ramblings again. As far as religion goes, yes the date system we have isn't really tied to anything. As for historical events, each village or maybe each region would have it's own set of historical events. If that's used then there would be literally no reason for having dates at all if no one agreed on when now is. As for this 'Agriculture' thing goes, I don't even know what it is."
 
 "Are you serious? You don't know what agriculture is? you know, farming? Planting things so they grow into food later."
 
@@ -314,15 +314,15 @@ Our answers seemed to give Phanna pause too but eventually Phanna decided to con
 
 Phanna gave me a suspicious look then shifted their gaze to Melody.
 
-Melody looked back nerviousely as well.
+Melody looked back nervously as well.
 
-"Phanna, stop scaring Melody please." I lemented to which Phanna replied with a sigh.
+"Phanna, stop scaring Melody please." I lamented to which Phanna replied with a sigh.
 
 "Ok, lets assume that you don't know what agriculture is. What have we been eating up to now?" Phanna questioned.
 
-"Animals that I've hunted. Obviousely."
+"Animals that I've hunted. Obviously."
 
-My answer somehow filled Phanna's face with disgust and shock as Phanna looked down at the plate of food infront of them. 
+My answer somehow filled Phanna's face with disgust and shock as Phanna looked down at the plate of food in front of them. 
 
 "T-this used to be... a whole... living... animal?" Phanna stuttered.
 
@@ -346,9 +346,9 @@ Maybe Phanna has a reason for not eating hunted game.
 
 Yet still, my mind was telling me that there's no way for them to not notice. 
 
-Afterall, the only alternative to hunted game is wiled fruits and grains. 
+After all, the only alternative to hunted game is wiled fruits and grains. 
 
-Maybe I should go appoligize? 
+Maybe I should go apologize? 
 
 But what do I say?
 
@@ -394,7 +394,7 @@ Phanna's reaction felt strange to me and I'm sure Melody felt the same as well.
  
 "I'll survive."
 
-That definately didn't sound good to me as it brought back memories of when I first summoned Phanna.
+That definitely didn't sound good to me as it brought back memories of when I first summoned Phanna.
 
 Going by gut feeling alone, I continued questioning.
 
@@ -416,7 +416,7 @@ Not only that, but what does hunted game have to do with eating my own kind.
 
 yet despite feeling all of that, I couldn't really let any of that leave my mouth. 
 
-I was here to try to help Phanna feel better afterall.
+I was here to try to help Phanna feel better after all.
 
 But Phanna seemed to have noticed my thoughts.
 
@@ -424,15 +424,15 @@ Was it because I blurted something in confusion?
 
 It didn't matter as Phanna began explaining.
 
-"First off, neither of us have any idea what other stuff that animal had hidding in it. For all we know, it could have carried an illness of some kind. Sure it might not kill us, I mean, it definately won't kill me but it still feels disgusting to potentially play host to some strange unknown parasite."
+"First off, neither of us have any idea what other stuff that animal had hiding in it. For all we know, it could have carried an illness of some kind. Sure it might not kill us, I mean, it definitely won't kill me but it still feels disgusting to potentially play host to some strange unknown parasite."
 
 Here comes Phanna's strange view on illnesses again.
 
-I don't understand it the first time Phanna explained and it never bothered me enought for me to try to again.
+I don't understand it the first time Phanna explained and it never bothered me enough for me to try to again.
 
-Honestly, all I wanted to do was ignore it and fortuately, Phanna continued without going further into the parasite business.
+Honestly, all I wanted to do was ignore it and fortunately, Phanna continued without going further into the parasite business.
 
-"Second, that animal could have been someone's family like Pillow is to us. And even if it isn't, what if it was the kind of animal that someone else keeps as family. At that point, it might as well be the sams thing as eating someone else's family. Or even eating your own family if you consider all of humanity family."
+"Second, that animal could have been someone's family like Pillow is to us. And even if it isn't, what if it was the kind of animal that someone else keeps as family meaning it could eventually become someone's family. At that point, it might as well be the same thing as eating someone else's family. Or even eating your own family if you consider all of humanity family."
 
 This comment from Phanna somehow made sense yet it felt really disconnected from reality.
 
@@ -440,7 +440,7 @@ I mean, sure, the animal I caught could have been the type that someone somewher
 
 In fact, if you extend this logic further, eating animal meat is entirely off the table.
 
-Not only is that funtionally impossiable, Phanna didn't seem too bothered by the presence of meat till now and that just didn't make sense to me. 
+Not only is that functionally impossible, Phanna didn't seem too bothered by the presence of meat till now and that just didn't make sense to me. 
 
 Despite all this going on in my mind, I didn't have the courage to say any of it. 
 
@@ -454,13 +454,13 @@ Phanna looked at me a little surprised before spacing out for a bit and then fin
 
 "What?" I found myself blurting out again.
 
-"How are you going to get anything to eat? Your arms aren't even funtional yet and you don't know what's safe to eat around here. How do you expect me to just let you feed yourself the way you are now?" I replied.
+"How are you going to get anything to eat? Your arms aren't even functional yet and you don't know what's safe to eat around here. How do you expect me to just let you feed yourself the way you are now?" I replied.
 
-"Do you want me to explain?" Phanna asked glairing at me.
+"Do you want me to explain?" Phanna asked glaring at me.
 
 "N-no..." I quivered.
 
-"Then I won't. However, can I get a few favors out of you? I'll need big tub full of water. In fact, can we change our whole roof into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunck of my shirt off and leave it in the pool on the roof. Is that ok?"
+"Then I won't. However, can I get a few favors out of you? I'll need big tub full of water. In fact, can we change as much of our roof as possible into a pond like the the glass box over there? Also, after a bit, I'm going to need you to cut a chunk of my shirt off and leave it in the pool on the roof. Is that ok?"
 
 I let out a frustrated sigh but found myself powerless to refuse and ended up accepting Phanna's requests.
 

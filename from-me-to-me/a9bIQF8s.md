@@ -20,7 +20,7 @@ Slowly, Phanna stood up, rubbed my head and left the glass box saying.
 
 "I'll give you some time to think things through yourself."
 
-At Phanna's voice, Mikay quickly followed behind phanna and left the box.
+At Phanna's voice, Mikay quickly followed behind Phanna and left the box.
 
 Soon enough, I was all alone in this room. 
 
@@ -32,7 +32,7 @@ There was a translucent blob around the size of my head by my side.
 
 What was this thing?
 
-I picked it up fom the ground and hugged it like I would a pet.
+I picked it up from the ground and hugged it like I would a pet.
 
 It somehow felt comforting despite how cold it was to the touch.
 
@@ -62,27 +62,27 @@ But why?
 
 What DO I have to live for?
 
-I've spent my whole life as the laughing stock of the my party and made my party the laughting stock of the whole tribe.
+I've spent my whole life as the laughing stock of the my party and made my party the laughing stock of the whole tribe.
 
 If it wasn't for me, our party wouldn't be seen as the failure of our elven colony.
 
-All I've ever been was missfortune.
+All I've ever been was misfortune.
 
 All I've ever been was a waste of resources. 
 
 I'd always did was get myself into trouble, endanger everyone else in my party, even cause us to lose our catch time and time again.
 
-No, I didn't just endanger my party, I caused harm to my party from my incomptiance.
+No, I didn't just endanger my party, I caused harm to my party from my incompetence.
 
 I caused our catch to go free.
 
 I caused our party to go hungry.
 
-I'm always causing trouble, I'm alwasy getting scolded.
+I'm always causing trouble, I'm always getting scolded.
 
-I dont even remember the last time I did something and wasn't scolded for it.
+I don't even remember the last time I did something and wasn't scolded for it.
 
-In fact, I don't even remmeber the last day where I wasn't scolded for something.
+In fact, I don't even remember the last day where I wasn't scolded for something.
 
 I'm such a failure.
 
@@ -104,15 +104,15 @@ Nothing made any sense.
 
 As I sat there, I curled up more hugging the blob. 
 
-The blob flet soft and squishy. 
+The blob felt soft and squishy. 
 
-Like water, it molded it's shape against my body giving providing a strange feeling of comfort as it wrapped itself around me as I did around it.
+Like water, it moulded it's shape against my body giving providing a strange feeling of comfort as it wrapped itself around me as I did around it.
 
 It really does feel nice. I thought to myself.
 
 I could also feel the strange sensation of something inside it moved around much like flowing water.
 
-Yet unlike water, it didn't expload or burst onto me nor did it get absorbed into my clothing.
+Yet unlike water, it didn't explode or burst onto me nor did it get absorbed into my clothing.
 
 It is indeed a strange thing.
 
@@ -132,9 +132,9 @@ These clothing looked strangely loose, comfortable, and flimsy and giving Phanna
 
 I immediately contrasted Phanna's appearance against mine.
 
-I was wearing my usual hunting gear, chest armor, long leggings and what would have been travel boots.
+I was wearing my usual hunting gear, chest armour, long leggings and what would have been travel boots.
 
-Yet despite how much better equiped I am than Phanna, I still couldn't shake the feeling that even in this way, I was inferior to him.
+Yet despite how much better equipped I am than Phanna, I still couldn't shake the feeling that even in this way, I was inferior to him.
 
 Maybe that playful careless look is what makes him so feel much more powerful and capable.
 
@@ -152,7 +152,7 @@ Why would someone like Phanna need my help with anything?
 
 "Uh-um sure... What do you need help with?"
 
-"I'd like to take a bath but I have no idea how to warm the water. The other thing is, it doesn't seem that I'd be able to opperate the water pump here with my arms in the shape they are right now" Phanna said holding up his arms.
+"I'd like to take a bath but I have no idea how to warm the water. The other thing is, it doesn't seem that I'd be able to operate the water pump here with my arms in the shape they are right now" Phanna said holding up his arms.
 
 There were giant wounds on his arms in the shape of hands from when Master Mikay was trying to remove his grip on me.
 
@@ -162,7 +162,7 @@ There were giant wounds on his arms in the shape of hands from when Master Mikay
 
 As I fully made my way out of the glass box, Phanna began speaking once more.
 
-"I really wanted to help you way back durig the exam. But it turned into this twisted situation."
+"I really wanted to help you way back during the exam. But it turned into this twisted situation."
 
 Phanna seemed so sincere in the way he spoke it took me by surprise.
 
@@ -180,27 +180,29 @@ Well I guess I did try to end my own life...
 
 Inside the bathroom, I saw a strange looking rod sticking out of the ground with another one attached to the top of it near the center of the wall to our side.
 
-It seemed like the rest of the room was build around this singular pipe with a barrle to the back and a shallow water container closer to the door.
+It seemed like the rest of the room was build around this singular pipe with a barrel to the back and a shallow water container closer to the door.
 
-There was another strange thing on the opposit wall offacing the tube sticking out of hte gorund that seemed to be for sitting on but I couldn't quite fgure out what it was or what it was for.
+There was another strange thing on the opposite wall facing the tube sticking out of the ground.
 
-"Melody, can you fill the barrle there with water and heat it up?" Phanna asked.
+Though this was my first time seeing it, I could tell that it was made for sitting on but I couldn't quite figure out what it was or what it was for.
+
+"Melody, can you fill the barrel there with water and heat it up?" Phanna asked.
 
 "H-How?"
 
-"Oh, that thing there is a water source of some kind. I saw Mikay draw some water out of it a while back. I think you're supposed to move the leaver up and down to to get water out I think." said Phanna pointing to the wet pipe with the werid handle by the wall.
+"Oh, that thing there is a water source of some kind. I saw Mikay draw some water out of it a while back. I think you're supposed to move the leaver up and down to to get water out I think." said Phanna pointing to the wet pipe with the weird handle by the wall.
 
 I walked over to the pipe and started moving the handle up and down.
 
 It was heavy, I could barely lift it up but I gave it my best anyways.
 
-Soon enough, water was flowing slowy out of the pipe and onto the floor.
+Soon enough, water was flowing slowly out of the pipe and onto the floor.
 
 "Ah!" I yelped.
 
-"Oh right, I think you need to connect that to the top to get water to where it needs to go" said Phanna pointing what seemed like a rope beneeth the shallow bow.
+"Oh right, I think you need to connect that to the top to get water to where it needs to go" said Phanna gesturing the best he could with his hands towards what seemed like a rope beneath the shallow bow.
 
-I followed Phanna's instructions and attached one end to the top of the pipe and threw the other end into the barrle and began drawing water once again.
+I followed Phanna's instructions and attached one end to the top of the pipe and threw the other end into the barrel and began drawing water once again.
 
 After a short while, I was exhausted and sat down on the chair looking thing on the other side to catch my breath.
 
@@ -216,7 +218,7 @@ I haven't seen him around since he left the room with the glass box earlier and 
 
 "Does it hurt?" I asked Phanna as I finished filling the barrel with water.
 
-"Ah, This?" Phanna asked lookinging at at his arms before continueing, "It's ok, It stings a little but it's  healing already. I've disabled most of the pain receptors in the area since they aren't exactly useful right now."
+"Ah, This?" Phanna asked looking at at his arms before continuing, "It's ok, It stings a little but it's  healing already. I've disabled most of the pain receptors in the area since they aren't exactly useful right now."
 
 "So it doesn't hurt?"
 
@@ -228,7 +230,7 @@ After hearing my reply, Phanna dipped his face into the water before lifting it 
 
 "Ah what are you doing?" I said in surprise.
 
-"Just checking the tempreture of the water. I cant really use my arms or hands for anything right now so my face will kind of have to do."
+"Just checking the temperature of the water. I cant really use my arms or hands for anything right now so my face will kind of have to do."
 
 I was still a bit confused but I had a general idea of what was happening.
 
@@ -242,13 +244,13 @@ Once the barrel was fully within my Sphere of Influence, I activated Heat and wa
 
 "Hmm..." was the only thing that Phanna said during the whole process.
 
-"I think it sould be warm enough." I said once I reached the limit for how long I can keep an ability active.
+"I think it should be warm enough." I said once I reached the limit for how long I can keep an ability active.
 
 "Thanks," Phanna replied as he dipped his face into the water again.
 
 "Perfect!"
 
-And with that, Phanna got into the barrel with all of his cloths still on.
+And with that, Phanna jumped into the barrel with all of his cloths still on.
 
 "Ah, your cloths!" I yelped in surprise for who knows how many times it's been already.
 
@@ -258,13 +260,13 @@ And with that, Phanna got into the barrel with all of his cloths still on.
 
 "Ya so?"
 
-"Isn't that uncomfortable? And wont they take a long time to dry? You're going to catch a cold after too if you wear wet cloths around."
+"Isn't that uncomfortable? And wont they take a long time to dry? Also, it's bad for your karma if you wear wet cloths around."
 
-"Huh?" Phanna seemed really confused by my question.
+"Huh?" Phanna seemed really troubled by my question.
 
 "Um... Uhhh...." I was lost for words and it seems like Phanna was too.
 
-"Um... Please enjoy your bath!" I said a little embarrased as I quickly existed the bathroom.
+"Um... Please enjoy your bath!" I said a little embarrassed as I quickly existed the bathroom.
 
 ## <center>~<center>
 
