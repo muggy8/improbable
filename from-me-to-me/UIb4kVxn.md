@@ -2,7 +2,7 @@
 
 "Ugh... You're doing it wrong. You need to focus on feeling everything inside your Sphere of Influence instead of focus on the feeling of one thing inside of it." Mikay instructed.
 
-"S-sorry" I moped
+"S-sorry" I moped.
 
 Training has been more or less fruitless ever since we started practicing together.
 
@@ -28,7 +28,7 @@ Just as I was about to give up, a knock came from the door.
 
 "Huh?" Mikay murmured in surprise before going to check on who it was.
 
-As for me, I remained in my steat and waited for the visitor to go away in time as I tried to relax a bit from the practice.
+As for me, I remained in my seat and waited for the visitor to go away in time as I tried to relax a bit from the practice.
 
 "Ah, Master Mikay, I hope I'm not bothering you right now." said the person just beyond the front door.
 
@@ -42,7 +42,7 @@ After all, to her, I should be dead by now...
 
 That's right, the girl that's currently speaking with Mikay right now was my sister, Amanda. 
 
-various thoughts flooded my mind as Mikay and amanda made their excange.
+various thoughts flooded my mind as Mikay and Amanda made their exchange.
 
 should I run?
 
@@ -50,7 +50,7 @@ should I run?
 
 Should I try to hide in my room?
 
-But that'd draw too much suspicion.
+But that would draw too much suspicion.
 
 "Things... has been alright. I've been meaning to come by earlier but things has just been so hectic after Melody's passing"
 
@@ -80,7 +80,7 @@ No I don't have time to think this through, I need to act fast
 
 "Ah, I see, thanks."
 
-I quickly hid my face behind my face behind my now red hair and assumed a position of what probably looked like meditation. 
+I quickly hid my face behind my now red hair and assumed a position of what probably looked like meditation. 
 
 "By... by the way... Master Mikay, could I ask you for a small favor?"
 
@@ -88,7 +88,7 @@ I am nothing, I am one with this table, please don't notice my presence.
 
 "Favor?"
 
-"That's right, it seems the Mastery League's School in Mountainpass has suspended opperation this semester due to the attack and since the exams were interupted part way though, it doesn't look like anyone will be admitted this semester. Would you be able to find it in your hear to teach some of use who you find worthy personally?"
+"That's right, it seems the Mastery League's School in Mountainpass has suspended operation this semester due to the attack and since the exams were interrupted part way though, it doesn't look like anyone will be admitted this semester. Would you be able to find it in your heart to teach some of us who you find worthy personally?"
 
 "Um..."
 
@@ -98,9 +98,9 @@ I am nothing, I am one with this table, please don't notice my presence.
 
 "Thank you very much Master Mikay! Oh by the way, how is Phanna doing? I don't see him around at all..."
 
-"Phanna... is notcturnal... so they're kind of sleeping right now."
+"Phanna... is nocturnal... so they're kind of sleeping right now."
 
-"Gasp... The exam must have been extrememly hard for him then..."
+"Gasp... The exam must have been extremely hard for him then..."
 
 "Tell me about it... anyways, Phanna's been sleeping all day. I honestly have no idea what they're doing but I think they're doing alright."
 
@@ -114,11 +114,11 @@ I was so scared I'd been found out but it turns out Amanda didn't recognize me.
 
 what a relief.
 
-"You ok there?" Mikay asked as he returned to his seat opposit to me.
+"You ok there?" Mikay asked as he returned to his seat opposite to me.
 
 "I... Uhh... was really scared. But I'm alright now."
 
-"Oh, I was a bit nervious too. But things seemed to have worked out alright."
+"Oh, I was a bit nervous too. But things seemed to have worked out alright."
 
 "Maybe you'd consider further changes to your appearance now?" Phanna said from behind me.
 
@@ -128,7 +128,7 @@ what a relief.
 
 "It's unusual to see you up at this hour" Mikay said.
 
-"Oh, I happened to be using the washroom when Amanda dropped by. Whanted to see how things turned out. I was ready to intervien should that have been nesesarry."
+"Oh, I happened to be using the washroom when Amanda dropped by. Wanted to see how things turned out. I was ready to intervene should that have been necessary."
 
 "T-thanks I guess..." Mikay sighed.
 
@@ -140,7 +140,7 @@ what a relief.
 
 "ya, I was about to introduce you as Midi but I guess it's a good thing I didn't have to. I'm clearly not good at this whole name business... except for my favorite slimes" Phanna joked while holding one of the two Pillows hostage.
 
-"Uh... What about the hair color chang?" I asked.
+"Uh... What about the hair color change?" I asked.
 
 "Hmm? what about it?"
 
@@ -160,23 +160,23 @@ Mikay didn't seem too bothered however and just moved on.
 
 "Now now, don't say that, you can't hole up in Mikay's house forever. All you need is a few small changes to your physical features and you should be all good to go." Phanna refuted.
 
-"Phanna, I'm sure you can do all sorts of modifications but are you sure Melody is comfortable receiving those modifications?" Mikay asked.
+"Phanna, I'm sure you can make all sorts of modifications  to Melody but are you sure Melody is comfortable receiving those modifications?" Mikay asked.
 
 "Why not? and besides, you building a relationship with these elves creates a pretty convenient way for Melody to see how her home turned out after her departure from the perspective of an outsider."
 
 At Phanna's words, Mikay and I both fell into silence.
 
-As much as I'd like to deny it, I'm very curious about how my colony, more spicifically, my party is doing.
+As much as I'd like to deny it, I'm very curious about how my colony, more specifically, my party is doing.
 
 How much better off are they without me.
 
-How much more efficent they must be without me messing everything up every time.
+How much more efficient they must be without me messing everything up every time.
 
 Although it hurts me to think about all this, in a way I was very curious how well things would turn out without me.
 
 But do I want to find out?
 
-I was nothing but a hinderance before so I'm sure things are much better without me.
+I was nothing but a hindrance before so I'm sure things are much better without me.
 
 But I want to know exactly how much better things are.
 
@@ -198,33 +198,33 @@ I didn't have answers to these questions.
 
 I didn't know if I could get answers to these questions.
 
-For now, it seemes like the only way for me to know is to be faced with the choice and to see weather I would run away or face the truth head on.
+For now, it seems like the only way for me to know is to be faced with the choice and to see weather I would run away or face the truth head on.
 
 I wonder what choice I'd make once I was faced with the choice.
 
 "P-phanna... c-can you modify my appearance some more?" 
 
-If I didn't know how I would react till the oppertunity to find out arses then the only way forward is to bring about a future were the oppertunity to find out does happen.
+If I didn't know how I would react till the opportunity to find out arises then the only way forward is to bring about a future were the opportunity to find out does happen.
 
 If I am unable to face the truth then I'll just have to run away.
 
 But if by some chance, I did end up finding the courage in myself to face the the truth, then I want to be ready for it. 
 
-"Melody, are you sure?" Mikay asked heistantly.
+"Melody, are you sure?" Mikay asked hesitantly.
 
 "Yes, I'm sure." I replied.
 
 "That's the spirit!" Phanna smiled patting me on my back. 
 
-"Welp, as far as further adjustments goes, I'm going to need Mikay's help. I'll need to prepair something. Mikay can you get a few blocks of wood a bit bigger than Melody's head for me? oh and also a knife too."
+"Welp, as far as further adjustments goes, I'm going to need Mikay's help. I'll need to prepare something. Mikay can you get a few blocks of wood a bit bigger than Melody's head for me? oh and also a knife too."
 
 "Uhh What? Sure? I guess?" Mikay answered hesitantly.
 
-Phanna's request seemed to have caught mikay by surprise but he soon regained his composure.
+Phanna's request seemed to have caught Mikay by surprise but he soon regained his composure.
 
-"Anyways, I take it that you're both is in support of me doing some private tutoring for the elves?" Mikay asked.
+"Anyways, I take it that you're both are in support of me doing some private tutoring for the elves?" Mikay asked.
 
-"Yup" Phanna affermed while I gave a small nod.
+"Yup" Phanna affirmed while I gave a small nod.
 
 At our answers, Mikay seemed to have fallen into some deep thought.
 
@@ -240,13 +240,13 @@ It made me rather uncomfortable in the beginning but after a couple minutes of i
 
 Mikay and Phanna spent the rest of the day together doing something to a block of wood.
 
-When I tried to ask them what they were doing, Mikay ansewered with "I have no idea, try asking Phanna." and Phanna answered with "creating art."
+When I tried to ask them what they were doing, Mikay answered with "I have no idea, try asking Phanna." and Phanna answered with "creating art."
 
-At the end, I was left just as clueless as Mikay and ended up spending the rest of the day with Pillow and Cushen. 
+At the end, I was left just as clueless as Mikay and ended up spending the rest of the day with Pillow and Cushion. 
 
 The two blobs still didn't seem to like me much and would jump around when I approached.
 
-I wish they would go back to being docile but the aggresively confrontational blobs that they are now had it's own strange charm to them.
+I wish they would go back to being docile but the aggressively confrontational blobs that they are now had it's own strange charm to them.
 
 ...
 
@@ -256,7 +256,7 @@ The next morning, when I left my room to have breakfast with Mikay, I was surpri
 
 "Um... good morning?"
 
-"This was what Mikay and I were working on yesterday" Phanna said lifting up a somewhat disgusting looking wooden scupture that somewhat resembled a head.
+"This was what Mikay and I were working on yesterday" Phanna said lifting up a somewhat disgusting looking wooden sculpture that somewhat resembled a head.
 
 "W-what is that" I uttered feeling a bit uncomfortable.
 
@@ -264,7 +264,7 @@ The next morning, when I left my room to have breakfast with Mikay, I was surpri
 
 I wasn't sure if Phanna was serious or not but that doesn't look the least bit beautiful to me in any way.
 
-In fact, instead of beautiful, it made me feel all sorts of different kinds of uncomfortable just looking at it.
+In fact, instead of beautiful, I was feeling all sorts of different kinds of uncomfortable just looking at it.
 
 Phanna must have picked up on those feelings and began speaking again.
 
@@ -276,7 +276,7 @@ Phanna must have picked up on those feelings and began speaking again.
 
 I didn't know how to feel about it.
 
-Seeing something that was a copy of a part of me made me feel uncomfortable in all sorts of different ways.
+Seeing something that was a copy of a part of me made me feel uncomfortable in even more ways that I thought was possible.
 
 Especially if it was something that was supposed to be inside of me.
 
@@ -288,7 +288,7 @@ I felt my stomach turn a bit as I laid eyes onto all the wooden skulls before Ph
 
 "Anyways, Mikay asked me to make some food for you in the morning since he went to bed pretty late last night. What do you usually eat for breakfast?" Phanna asked as if completely unaware of how I felt.
 
-"I... don't think I want anything to eat after seeing this..." I lemented.
+"I... don't think I want anything to eat after seeing this..." I lamented.
 
 "Perfect! I was hoping for that answer. I'll be off to bed now." Phanna hummed happily as he took off towards his room.
 
@@ -304,7 +304,7 @@ Feeling unhappy with the situation, I stormed into Phanna's room and nabbed one 
 
 Phanna, for his part, didn't seem too bothered and instead just offered some useless words.
 
-"That one's Pillow. Cushen is the one in the aquarium. Enjoy your day~" 
+"That one's Pillow. Cushion is the one in the aquarium. Enjoy your day~" 
 
 I wonder how he's able to tell them apart...
 
@@ -326,11 +326,11 @@ In fact, I was roasting some meat when I saw Mikay.
 
 At Mikay's demand, I left the fireplace and went over to the table.
 
-"You did a good job starting the fire however" Mikay aplauded as I sat down.
+"You did a good job starting the fire however" Mikay applauded as I sat down.
 
-"Eh? Well I sometimes end up on cooking duty for my party in the past so I know my way aroud a fireplace."
+"Eh? Well I sometimes end up on cooking duty for my party in the past so I know my way around a fireplace."
 
-"Really? You elven younglings are much more experianced in life than I would have thought."
+"Really? You elven younglings are much more experienced in life than I would have thought."
 
 "Oh, uh thanks, I think. I'm just not used to other humanoids being not as tough."
 
@@ -338,13 +338,13 @@ At Mikay's demand, I left the fireplace and went over to the table.
 
 "Um... thanks Master Mikay."
 
-Although this was indirect, I wasn't used to being prased so Mikay's words got me a little bit flustered.
+Although this was indirect, I wasn't used to being praised so Mikay's words got me a little bit flustered.
 
 Mikay gave me a rub on my head and went back to roasting the meat. 
 
 The rest of our day went by in a pretty normal manner.
 
-I practiced my abilities after what turned into lunch while Mikay created more wooden sculptures of my skull with the blocks of wood using Forgemaster.
+I practiced my abilities after what turned into lunch while Mikay created more wooden sculptures of my skull with the blocks of wood using his Forgemaster ability.
 
 After all the wooden blocks got turned into sculptures, Mikay left to do some hunting while I was left alone.
 
@@ -356,11 +356,11 @@ Mikay returned later with what looked like more hunted game and a few more block
 
 Of course, I got scolded for nabbing one of the slime blobs to play with again.
 
-Phanna woke up well after dinner time instead of the aftenoon like he normally does.
+Phanna woke up well after dinner time instead of in the afternoon like he normally does.
 
-"I see you've made a few more of Melody's skulls" Phanna said after seeing the stack of wooden skull scuptures in the living room.
+"I see you've made a few more of Melody's skulls" Phanna said after seeing the stack of wooden skull sculptures in the living room.
 
-"I really didn't want to but considring it's to help melody, I feel like I have no choice but to go with your your strange plan." Mikay sighed.
+"I really didn't want to but considering it's to help melody, I feel like I have no choice but to go with your your strange plan." Mikay sighed.
 
 "Glad to have you on board then" Phanna smiled.
 
@@ -376,7 +376,7 @@ I wonder if that's how Phanna has been able to tell them apart.
 
 ...
 
-The next day came and went with nothing major happening again and I ended up sneaking in more play time with Pillow and Cushen. 
+The next day came and went with nothing major happening again and I ended up sneaking in more play time with Pillow and Cushion. 
 
 Of course, Mikay scolded me later but that to me was just a fact of life now.
 
@@ -390,7 +390,7 @@ Mikay just sighed at Phanna's comment.
 
 "Uh... um... sure? Would you be able to explain what you're going to do?" I answered hesitantly.
 
-"Sure thing, Mikay here is going to use his Forgemaster or whatever you call it to reshape your skull. This will result in a bit of pain for you and your skull will take a few months to fully recover from the move but you should be completly unrecognizeable after the change." Phanna said sounding a bit excited
+"Sure thing, Mikay here is going to use his Forgemaster or whatever you call it to reshape your skull. This will result in a bit of pain for you and your skull will take a few months to fully recover from the move but you should be completely unrecognizable after the change." Phanna said sounding a bit excited
 
 Then, Phanna pulled out 2 skulls and continued.
 
@@ -404,21 +404,21 @@ I had no idea why Phanna was so excited about this for some reason but I had a f
 
 Mikay let out a sigh at Phanna's command and began the procedure.
 
-"Permission for Influence Extention" Mikay asked.
+"Permission for Influence Extension" Mikay asked.
 
-Hesitantly, I agreed and once again, the strang feeling of losing control over a part of my body washed over me.
+Hesitantly, I agreed and once again, the strange feeling of losing control over a part of my body washed over me.
 
 Then I felt my Sphere of Influence move.
 
 It was an ability being activated.
 
-The ability was something I was completely unfarmiliar with and it felt like my Sphere of Influence was being moved in all sorts of strange ways it wasn't ever meant to be moved in.
+The ability was something I was completely unfamiliar with and it felt like my Sphere of Influence was being moved in all sorts of strange ways it wasn't ever meant to be moved in.
 
 It was like a torrent of water, an unstoppable might pushing against my head that won't relent no matter what I did.
 
-It was so powereful that my body decided that resisting was all but meaningless.
+It was so powerful that my body decided that resisting was all but meaningless.
 
-Yet for some reason, this powerful force somehow was bent and reshaped by some unknown power even greater than it and the force began to warp what felt like the very foundating of my being. 
+Yet for some reason, this powerful force somehow was bent and reshaped by some unknown power even greater than it and the force began to warp what felt like the very foundation of my being. 
 
 I guess that description wasn't completely wrong since Phanna did explain that my skull was getting reshaped by Mikay's Forgemaster.
 
@@ -432,7 +432,7 @@ At first, I thought the force was pulling on my skin and muscles but soon enough
 
 Before long, I could feel a small, dull pain radiating from all over my head.
 
-It wasn't anything worse than a pintch but it felt like it came from all over my face, as if something was firmly pressed into every part of my face.
+It wasn't anything worse than a pinch but it felt like it came from all over my face, as if something was firmly pressed into every part of my face.
 
 "It's done" Mikay said cutting into my thoughts.
 
@@ -446,7 +446,7 @@ I quickly ran my hands along my face to double check the reflection and a slight
 
 Yet that did not bother me one bit as right now, I was trying to confirm my appearance.
 
-"I... I can't believe this..." I ghasped.
+"I... I can't believe this..." I gasped.
 
 "How do you like your new look" Phanna said smugly.
 
@@ -464,13 +464,13 @@ These are only the minor changes I noticed, but I'm sure there's so many more I 
 
 Just what kind of black magic is this?
 
-"Well. I'm heading off to bed. Terminate Influence Extention." Mikay declaired in an unimpressed tone and departed from the washoom.
+"Well. I'm heading off to bed. Terminate Influence Extension." Mikay declared in an unimpressed tone and departed from the washroom.
 
 But I couldn't even feel anything other than utter disbelief.
 
 My appearance that I was so used to seeing had just been altered like it was nothing.
 
-Even though I fully understood what happend, my mind was still unable to accept what just happened as I gazed at my reflection jaw wide open.
+Even though I fully understood what happened, my mind was still unable to accept what just happened as I gazed at my reflection jaw wide open.
 
 I wanted to ask 'How' yet I already knew exactly how.
 
@@ -478,7 +478,7 @@ But somehow, my mind failed to understand it and refused to believe in logic.
 
 "Enjoying your new look?" Phanna asked playfully.
 
-"T-this is... too much..." I answered barely able to string together a sensable answer.
+"T-this is... too much..." I answered barely able to string together a sensible answer.
 
 "No, I think this is just enough. We couldn't modify your soft tissue but we needed to give you a completely different look. This is the least amount of change we could make to give you a completely new look."
 
@@ -488,7 +488,7 @@ But somehow, my mind failed to understand it and refused to believe in logic.
 
 "It..." I stopped myself before I continued further.
 
-Phanna's right, the goal from the beginning was to end up looking unrecognizeable and Phanna delivered exactly what he promised.
+Phanna's right, the goal from the beginning was for me to end up looking unrecognizable and Phanna delivered exactly what he promised.
 
 But even though that is true, it's still very uncomfortable to see myself looking completely different from what I'm used to.
 
@@ -496,7 +496,7 @@ I let out a big sigh and accepted my fate.
 
 As if that was the cue or something, Phanna began speaking again. 
 
-"Your face and parts of your jaw will sort of ache for a few days. The bones around the area that we modified will be slightly weaker for a few months so avoid being hit in the face. Also, you should try to rest more in the near future as it would help you heal faster. So, off to bed you go."
+"Your face and parts of your jaw will sort of ache for a few days. After that, your whole head will likely be itchy everywhere but try not to scratch too much when it happens. The bones around the area that we modified will be weaker than the bones else where for a few months so avoid being hit in the face. Also, you should try to rest more in the near future as it would help you heal faster. So, off to bed you go."
 
 And before I knew it, I was tucked away in bed. 
 

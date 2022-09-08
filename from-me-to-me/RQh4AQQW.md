@@ -14,17 +14,17 @@ When Amanda awaken on the battlefield that day, her memories were all messed up.
 
 But Amanda did remember losing her sister to unknown attackers.
 
-Initially, this devistated Amanda but it was also relieving strangely.
+Initially, this devastated Amanda but it was also strangely relieving.
 
-For as long as she can remember, Amanda never really thought of Melody as anything more than just another person that's sort of just there and didn't really provide much to her party.
+For as long as she can remember, Amanda never really thought of Melody as anything more than just another person that's sort of there and didn't really provide much to her party.
 
 Sometimes, Melody would do something useful but most of the time, Melody would be causing trouble.
 
-And here, on the outer reaches of the elven territories, life and death often comes down to split second decisions and cleaverness.
+And here, on the outer reaches of the elven territories, life and death often comes down to split second decisions and cleverness.
 
 This was the life Amanda lived in and had been living in all her life and she had gotten used to such facts.
 
-People come and go all the time and death is just a natrual part of life.
+People come and go all the time and death is just a natural part of life.
 
 Yet at the same time, Melody was Amanda's blood sister.
 
@@ -34,43 +34,43 @@ Did she want to launch a revenge attack on the raiders who killed Melody or not?
 
 Sure, one of her own sisters was killed.
 
-But honestly speaking, Melody wasn't that important in the party anyways and death was so close to everyone at this point that it is practically everyone's room mate.
+But honestly speaking, Melody wasn't that important in the party anyways and death is just a part of life.
 
 Eat or be eaten as they say.
 
 The raider weren't even trying to attack the elven territories and the loss of Melody, while tragic, wasn't really that big of a deal in the grand scheme of things.
 
-Melody was just unlucky, at the wrong place at the wrong time.
+Melody was just unlucky, at the wrong place at the wrong time as they say.
 
-Still, something within Amanda just couldn't let go.
+Still, something within Amanda just couldn't let it go.
 
 But all that changed when Amanda returned to her party that night.
 
 Amanda knew that the rest of her party would be watching the event from afar and she had conflicted feelings as she went home.
 
-Amanda had initially wanted to consult with the party about this but what she heard from the party looking on from affar was completely different from what she remembered.
+Amanda had initially wanted to consult with the party about this but what she heard from the party looking on from afar was completely different from what she remembered.
 
 How did this happen?
 
 Amanda was right there, but her memory was completely different from what the other saw and remembers.
 
-How is that possiable?
+How is that possible?
 
-Appearently, people where falling asleep left and right at one point and Phanna woke up almost immediately after everyone fell asleep.
+Apparently, people where falling asleep left and right at one point and Phanna woke up almost immediately after everyone fell asleep.
 
 Amanda didn't understand why or how but the conclusion of the group was that this was the work of Phanna.
 
-Phanna had been a strange entity since tht beginning and did many strange and unexplainable things including reproducing the effects of the ability Quicken without using it and supposidly, surving a lethal kick to the neck without any damage.
+Phanna had been a strange entity since the beginning and did many strange and unexplainable things including reproducing the effects of the ability Quicken without using it and supposedly, surviving a lethal kick to the neck without showing signs of having taken any damage.
 
-If that was true, then re-writing memories wouldn't be that much of a streach.
+If that was true, then re-writing memories wouldn't be that much of a stretch.
 
 So why did Phanna bother doing that?
 
-This question bothered the party as the days went on, but as the days continued, something else became appearent: Melody's mischief was something the party needed in a strange way.
+This question bothered the party as the days went on, but as the days continued, something else became apparent: Melody's mischief was something the party needed in a strange way.
 
 Without Melody around, things went smoothly, too smoothly, it was as if each new day was just a repeat of the previous.
 
-At first, everyone was happy to have an easy time with everything and a stable easy life.
+At first, everyone was happy to have an easy time with a new stable easy life.
 
 But as the days continued one by one, something started feeling wrong.
 
@@ -82,9 +82,9 @@ No one would knowingly invade an established elven colony, the only dangers were
 
 Without Melody, it was as if there was no longer a need to fight for survival and the party's identity and reason to exist had somehow also died with her.
 
-Some welcomed this change yet others feared and hated it but it didn't take long for an aggreement to be reached.
+Some welcomed this change yet others feared and hated it, but it didn't take long for an agreement to be reached.
 
-Phanna had to be dealt with, after that, the rest of the party can worry about the meaning behind their own existance later.
+Phanna had to be dealt with, after that, the rest of the party can worry about the meaning behind their own existence later.
 
 But what could they do and why did Phanna have to alter everyone's memories?
 
@@ -98,33 +98,33 @@ Objective 2: Gather information about Phanna.
 
 Achieving objective 1 would mean than later on, Phanna would likely follow Mikay into the elven territory later and that would mean an easy time dealing with him. 
 
-The second objective is just to sweeten the deal and hopefully reduce how much time spent waiting and gatherng information the party would have to do before stricking.
+The second objective is just to sweeten the deal and hopefully reduce how much time spent will be spent waiting and gathering information.
 
 To that end, both objectives were completed perfectly. 
 
-Phanna even walked past Amanda today, and in that brief meeting, Amanda noticed something: Phanna's stomach was slightly bulging in the same way her mother's was in the early days of pregnency.
+Phanna even walked past Amanda today, and in that brief meeting, Amanda noticed something: Phanna's stomach was slightly bulging in the same way her mother's was in the early days of pregnancy.
 
 This struck Amanda as strangely odd but everything makes sense if what it suggested was true.
 
 Phanna wasn't male at all, instead, Phanna was a female and a reproductive one at that.
 
-That would make Phanna a Queen which would meand she's trying to set up her nest around Mountainpass.
+That would make Phanna a Queen which would mean she's trying to set up her nest around Mountainpass.
 
 Being a Queen, she must have somehow gained the support of Mikay and is using him for protection in these early days of her colony in order to get a firm foothold.
 
 Even the time of year made sense.
 
-The first generation of children for an elven Queen trying to establish a colony is to produce males to tend to future offsprings.
+The first generation of children for an elven Queen trying to establish a colony is to produce males to tend to future offspring.
 
 Considering it is now close to the end of summer, producing the first generation now would mean that by late winter, the first generation of females would be born and by early next summer, the foundations of the colony would be built.
 
-Afterall, summer and autumn are the best seasons to strengthen the colony while winter is best spent prepairing for the following years.
+After all, summer and autumn are the best seasons to strengthen the colony while winter is best spent preparing for the following years.
 
 knowing all of this, it would make sense why Phanna doesn't want us to target her.
 
 Phanna needs time to grow her own colony, which means now's the perfect time to defeat a rival before they get a foothold.
 
-At first, this was just to satisfy the party's anger but now, it's gotten much more than just that.
+At first, this was just to satisfy the party's anger but now, it's becoming much more than just that.
 
 ## <center>...<center>
 

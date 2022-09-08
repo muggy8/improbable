@@ -2,25 +2,25 @@
 
 It's been almost 2 weeks since I started living with Master Mikay and Mr. Phanna, life has been rather dull in a good way.
 
-Every morning, would practice my Abilities with Mikay untill Phanna wakes up.
+Every morning, I would practice my Abilities with Mikay until Phanna wakes up.
 
 Of course, I didn't improve one bit even with Mikay's assistance.
 
-Phanna's healing ability seems to be pretty increadible too.
+Phanna's healing ability seems to be pretty incredible too.
 
-It hasn't even been 2 weeks yet somehow, Phanna's arms look to be almost fully healed. 
+It hasn't even been 2 weeks yet somehow, Phanna's arms looks like they're almost fully healed. 
 
 In fact, Phanna seemed to be using his arms as normal since day 6 of healing. 
 
 I wonder what is Phanna's secret that lets him pull off this kind of recovery.
 
-The roof of Mikay's home seemed to have been converted into a pool for Pillow as well but Pillow hasn't touched it at all.
+Part of the roof of Mikay's home seemed to have been converted into a pool for Pillow as well but Pillow hasn't touched it at all.
 
 Phanna said something about growing food in there but it felt somewhat strange.
 
 I knew about this practice phanna calls 'Agriculture' but I've never really performed it or seen it myself. 
 
-All I know is the tribe seems to dislike the practice and tries to rely on it as little as possiable.
+All I know is the tribe seems to dislike the practice and tries to rely on it as little as possible.
 
 I've been curious about how it works ever since the day Phanna started eating strange looking food he'd fish out of the roof pond but I never really worked up the courage to ask.
 
@@ -32,17 +32,17 @@ That said, Phanna does have some very strange beliefs.
 
 I remember once he said that Karma doesn't exist and all of it is just made up or coincidences.
 
-I tried argueing against Phanna's beliefs but it never got anywhere.
+I tried arguing against Phanna's beliefs but it never got anywhere.
 
-There's no way such a foundational piece of the world is just made up.
+There's no way such a foundation piece of the world is just made up.
 
 Phanna, of course, disagreed.
 
-That said, Phanna does seem to know a lot and is capable of some pretty unbelieveable things and all without using abilities at all.
+That said, Phanna does seem to know a lot and is capable of some pretty unbelievable things and all without using abilities at all.
 
-Just yesterday, Phanna suggested that I change my appearance starting from changing my hair color or something and gave us a recepie of some kind. 
+Just yesterday, Phanna suggested that I change my appearance starting from changing my hair color or something and gave us a recipe of some kind. 
 
-Mikay was doubtful of the suggestion but he's out gathering ingrediants today anyways.
+Mikay was doubtful of the suggestion but he's out gathering ingredients today anyways.
 
 Sometimes, seeing the two makes me wonder if Phanna is actually much more powerful than Mikay.
 
@@ -50,11 +50,11 @@ Yet I know that Phanna doesn't have a Sphere of Influence at all which means Mas
 
 It sure is strange living with these two.
 
-With Mikay out gathering ingrediants, I've been left alone with Phanna today.
+With Mikay out gathering ingredients, I've been left alone with Phanna today.
 
 "Um... what's that?" I asked looking at the strange looking food on Phanna's food tray unable to resist my curiosity.
 
-"Oh this? it's salmon. since I can't really cook or anything, I've been farming thing; I could eat raw."
+"Oh this? it's salmon. Since I can't really cook or anything, I've been farming thing; I could eat raw."
 
 "S-salmon? Can you grow stuff like that?" I asked in surprise as Phanna peeled some black looking blob.
 
@@ -64,15 +64,15 @@ Indeed, the contents under the black skin does indeed look like salmon meat but 
 
 I wanted to answer yes but I was also hesitant.
 
-Almost everything Phanna does feels like black magic to me and this food was no diffenent.
+Almost everything Phanna does feels like forbidden magic to me and this food was no different.
 
-When I ask for an explanation, the answeres only causes more confusion.
+When I ask for an explanation, the answers only causes more confusion.
 
 Do I really want to partake in something so mysterious? 
 
 Will it affect my Karma?
 
-There must be a reason the colony tried to avoid this agricuture thing if possable yet here Phanna is doing it like it's nothing.
+There must be a reason the colony tried to avoid this agriculture thing if possible yet here Phanna is doing it like it's nothing.
 
 Phanna peeled another one of the blobs and ate it.
 
@@ -84,17 +84,17 @@ Phanna paused at my question which I assumed means he's thinking about how to an
 
 "This is made by growing animal meat using sunlight?"
 
-"And how exactly does that work?" I asked suspiciousely.
+"And how exactly does that work?" I asked suspiciously.
 
 Again, Phanna paused to think about the answer before trying to answer.
 
-"It... um... uses sunlight to convert parts of air into sugars and protiens then uses those sugars and protiens to build the animal meat?"
+"It... um... uses sunlight to convert parts of air into sugars and proteins then uses those sugars and proteins to build the animal meat?"
 
-"Lets put asside the idea that you can turn air into something else for a second here, what exactly is sugar and protien?" I continued.
+"Lets put aside the idea that you can turn air into something else for a second here, what exactly is sugar and protein?" I continued.
 
 "Um... uhh..."
 
-Phanna was stuck trying to give an answer and strugled to come up with something to say.
+Phanna was stuck trying to give an answer and struggled to come up with something to say.
 
 "Um... to answer that, we need to start at the cell..." Phanna tried to explain but I ended up cutting him off.
 
@@ -102,7 +102,7 @@ Phanna was stuck trying to give an answer and strugled to come up with something
 
 "Uh... Um... It's hard to explain" Phanna replied.
 
-"All it looks like to me is black magic... you got Mikay to cut a piece of your shirt off and threw it into the pond. The next day, the pond turned black and somhow, some days after, you started eating these strange pods that you'd fetch from the pond. I can't call that anything than black magic now can I?"
+"All it looks like to me is black magic... you got Mikay to cut a piece of your shirt off and threw it into the pond. The next day, the pond turned black and somehow, some days after, you started eating these strange pods that you'd fetch from the pond. I can't call that anything other than black magic now can I?"
 
 "For starters, you can call it science." Phanna joked.
 
@@ -114,13 +114,13 @@ Hesitantly, I gave him a head shake in response.
 
 It's not that I don't want to try, in fact, I'm dying to try some.
 
-From the looks of it, it definately looks like real salmon.
+From the looks of it, it definitely looks like real salmon.
 
 But no matter how much I want to know and how much I want to try, I just can't accept something as suspicious as this.
 
 I have to control myself, don't let this turn into another situation where my curiosity gets the better of me and I end up ruining something.
 
-Seeing this, Phanna directed their attention back at the food tray and finished off the rest of the strange blobs before leaving to dump skin of whatever that was back into the pond.
+Seeing this, Phanna directed his attention back at the food tray and finished off the rest of the strange blobs before leaving to dump peel of whatever that was back into the pond.
 
 Shortly after, Mikay came home with a pouch full of stuff.
 
@@ -134,7 +134,7 @@ Shortly after, Mikay came home with a pouch full of stuff.
 
 "What do you mean you already are? You've literally done nothing since you showed back up" Mikay said with a hint of frustration.
 
-"I've been building a few tools for studying the biology of this world."
+"I've been building a few tools that we'll need in the future."
 
 "And how's that going?" Mikay sighed.
 
@@ -144,7 +144,9 @@ At Phanna's answer, Mikay gave up and returned to his room leaving me and Phanna
 
 Felling a bit curious, I slowly moved closer to Phanna to observe what he was doing.
 
-The strange tool he was using was a stack of circular stones that he turned with some strange turning device attached that allowed Phanna to turn the stack with his legs.
+The strange tool he was using was a stack of circular stones that he turned with some strange turning attachment.
+
+All this allowed Phanna to turn the stack of stones with his legs.
 
 Phanna called it a "Bike Pedal Machine" and it had something to do with doing things by spinning other things.
 
@@ -164,19 +166,19 @@ Phanna's stomach region was bulging out a bit.
 
 It wasn't by much, but it was noticeable.
 
-If I haden't seen my own mother in this state before, I probably wouldn't have noticed but the way Phanna's stomach is bulging is way too similar.
+If I hadn't seen my own mother in this state before, I probably wouldn't have noticed but the way Phanna's stomach is bulging is way too similar.
 
 It felt strange to ask Phanna this directly but my curiosity demanded to know.
 
 If it is what I think it is then it might explain everything about Phanna.
 
-Judging by the way Phanna looked normally... it's not entirely out of the picture considering Phanna was probably half elf and neither did Phanna's voice disprove anything enther.
+Judging by the way Phanna looked normally... it's not entirely out of the picture considering Phanna was probably half elf.
 
-Working up my nerves, I slowly started weaving the question and prepaired myself for the answer.
+Working up my nerves, I slowly started weaving the question and prepared myself for the answer.
 
 "Um... Phanna... are you... a queen?"
 
-"Hmm? No. But monarchy based systems of govenece fell out of favor millions of years ago so even if I was of royal heritage, it wouldn't really mean much so I never bothered checking."
+"Hmm? No. Monarchy based systems of governance fell out of favor millions of years ago so even if I was of royal heritage, it wouldn't really mean much so I never bothered checking."
 
 "N-no, that's not what I mean... I mean... are you an elf queen?"
 
@@ -184,15 +186,15 @@ Working up my nerves, I slowly started weaving the question and prepaired myself
 
 Phanna's words were full of legitimate confusion.
 
-"A-are you a female capable of reproduction?" I said feeling a bit flustered.
+"A-are you a female elf capable of reproduction?" I said feeling a bit flustered.
 
-Phanna seemed taken aback by my question as I sat here dying of embarssment. 
+Phanna seemed taken aback by my question as I sat here dying of embarrassment. 
 
 "Um... that's a solid no."
 
-"B-but aren't you pregenet right now?" I asked.
+"B-but aren't you pregnant right now?" I asked.
 
-"Pregent?... oh that thing"
+"Pregnant?... oh that thing"
 
 Phanna seemed to have realized what I was asking about and gave me a little chuckle.
 
@@ -216,9 +218,9 @@ Phanna ordered me to put more bugs and water in over the next while and I did as
 
 During the whole time, I didn't once look back up at Phanna.
 
-Before I realzed it, the bowl of bugs was empty and Phanna was instructing me to put the brown liquid at the bottom of the stack of stones into this 'centrifuge' thing.
+Before I realized, the bowl of bugs was empty and Phanna was instructing me to put the brown liquid at the bottom of the stack of stones into this 'centrifuge' thing.
 
-Of course, I went along with it despite having no idea what it was or what it does even when Phanna was using it.
+Of course, I went along with it yet Even after seeing it used, I still had no idea what it was or what it does.
 
 I wonder what Phanna thinks of me now?
 
@@ -228,11 +230,11 @@ Does Phanna think I asked him that question as an insult?
 
 If only I didn't ask.
 
-But Phanna's stomach looked just like mother's during her pregnency.
+But Phanna's stomach looked just like mother's during her pregnancy.
 
 Phanna's gotta know that too right?
 
-But he is a half elf so maybe not...
+But he is a half elf, or maybe even a quarter elf, so maybe not...
 
 Why did I ask... I really shouldn't have.
 
@@ -248,25 +250,25 @@ Oh shoot, our eyes met!
 
 I quickly looked away as Phanna continued.
 
-"Consideing you can't really change your hair color at will, it's quite fortunate that you're blond." Phanna said.
+"Considering you can't really change your hair color at will, it's quite fortunate that you're blond." Phanna said.
 
 "T-thanks I think." 
 
 "Go to the washroom and get your hair wet with hot water." Phanna commanded.
 
-I didn't know if it was because of Phanna or this sutation but all I could do was obey.
+I didn't know if it was because of Phanna or this station but all I could do was obey.
 
-Soon enough, Phanna was pouring the bright red liquid into my hair and rubbing my hair all over the place.
+Soon enough, Phanna was pouring some bright red liquid into my hair and rubbing my hair all over the place.
 
 "Ah! What are you doing?" I complained.
 
 "Dying your hair. Just bear with it ok?" Phanna replied.
 
-And like that, Phanna was free to have his way with my head.
+And like that, Phanna was now free to have his way with my head.
 
 ...
 
-When all was said and done, the hair I had on my head had transformed from the golden yellow into a shade of bright orangy red.
+When all was said and done, the hair I had on my head had transformed from the golden yellow into a shade of bright orange red.
 
 looked into a reflection of myself and could hardly recognize myself.
 
@@ -276,15 +278,15 @@ How is it that Phanna can change my hair color?
 
 Why does such a simple change make me look like a completely different person?
 
-The embarassment I felt early was completely gone as I stood here looking at my own reflection in awe.
+The embarrassment I felt early was completely gone as I stood here looking at my own reflection in awe.
 
-The girl with bright red hair in the reflection staired back at me with a look of desbelief and confusion. 
+The girl with bright red hair in the reflection gazed back at me with a look of disbelief and confusion. 
 
 "W-What is this..." I gasped.
 
 "The new you. Now you should be mostly free to go outside." Phanna replied.
 
-"I could hardly recognize you..." Mikay gasped as well  standing next to me before continueing. "Ahem, You should probably start using a new name too just to be safe."
+"I could hardly recognize you..." Mikay gasped as well  standing next to me before continuing. "Ahem, You should probably start using a new name too just to be safe."
 
 "Oh, ya, that's probably a good idea if you're looking to build yourself a new identity." Phanna added.
 
@@ -298,7 +300,7 @@ But Melody was a dead person here, so I can't really keep calling myself that.
 
 As if sensing my hesitation, Phanna spoke up again.
 
-"Melody, if you're not sure yet, maybe just keep your name. it's not like you're the only Melody to have ever existed."
+"Melody, if you're not sure yet, maybe just keep your name. It's not like you're the only Melody to have ever existed."
 
 Phanna's words gave me a strange feeling of comfort yet it also somehow sounded apologetic. 
 
@@ -306,11 +308,11 @@ Phanna's words gave me a strange feeling of comfort yet it also somehow sounded 
 
 "That's rather risky." Mikay said.
 
-"For now, maybe. But we can change her other aspects of physical appearance later on. At that point, she'll be unrecognizable." Phanna responded.
+"For now, maybe. But we can change other aspects of  her physical appearance later on. At that point, she'll be unrecognizable." Phanna responded.
 
-"What else are you going to do to me?..." I asked nerviously.
+"What else are you going to do to me?..." I asked nervously.
 
-"In the stort term, we can give you a new hair style too. In the long term, we can consider changing your facial structure, adjusting your body porportions and changing key features like you ears or skin color and more." 
+"In the short term, we can give you a new hair style too. In the long term, we can consider changing your facial structure, adjusting your body proportions and changing key features like you ears or skin color and more." 
 
 "Uhh Um... I... I think I'll stick to the simpler changes..."
 
@@ -318,7 +320,7 @@ Phanna's words gave me a strange feeling of comfort yet it also somehow sounded 
 
 "Ah, haha I'll keep that in mind."
 
-"Oh by the way, the red color will faid with time, so you'll have to re-dye it later or we'll have to set up a more permanent color solution."
+"Oh by the way, the red color will fade with time, so you'll have to re-dye it later or we'll have to set up a more permanent coloring solution."
 
 "I-I see."
 
@@ -326,11 +328,11 @@ After that, Mikay went out to hunt for food again while I stared into my reflect
 
 ...
 
-"Ahhhhhhh!!!!! Pillow spilt in two!!!" Phanna yelled one night as Mikay and I were about to go to bed.
+"Ahhhhhhh!!!!! Pillow split in two!!!" Phanna yelled one night as Mikay and I were about to go to bed.
 
-At the call, Mikay and I both quickly bursted into Phanna's room.
+At the call, Mikay and I both quickly busted into Phanna's room.
 
-It didn't take long to notice 2 wiggling blobs in opposit sides of the room.
+It didn't take long to notice 2 wiggling blobs in opposite sides of the room.
 
 They looked identical to each other and were both causing a ruckus against the wall of the room.
 
@@ -342,7 +344,7 @@ This was the first time I've seen Pillow so energetic.
 
 It was normally so docile and I could snag it out of the water easily but now, it was bouncing all over the place.
 
-For some reason, the closer I got to the two Pillows, the more aggrivated they seemed to become.
+For some reason, the closer I got to the two Pillows, the more aggravated they seemed to become.
 
 As a result. I decided to keep a distance from them for now as Mikay scolded Phanna.
 
@@ -358,7 +360,7 @@ I don't think you're supposed to just admit that immediately.
 
 But despite this, Mikay didn't seem to get any angrier and instead just let out a huge sigh as he rubbed his forehead with his hand.
 
-"What am I going to do with you" Mikay lemented.
+"What am I going to do with you" Mikay lamented.
 
 But before he can continue, Phanna was at the aquarium already fishing the two blobs out.
 
