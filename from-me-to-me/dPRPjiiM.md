@@ -1,6 +1,6 @@
-# End of the Hunt
+# Time of Rest
 
-I sat anxiously watching Mikay, Phanna, and my sisters from afar hoping that mikay will be able to settle the situation.
+I sat anxiously watching Mikay, Phanna, and my sisters from afar hoping that Mikay will be able to settle the situation.
 
 I didn't know for how long I had been looking at the group as each second felt like an eternity.
 
@@ -30,7 +30,7 @@ Looking down at the fallen elf, I saw the familiar feature of a member of my fam
 
 "Ahh... reinforcements..." the fallen elf whispered looking blankly into my eyes.
 
-Part of me was worried that I had been recognized but the deep red hair that filled the corner of my vision killed that thought just as fast as it had started.
+Part of me was worried that I had been recognized but the deep red hair that crept into the corner of my vision killed that thought just as fast as it had started.
 
 I simply looked down at my fallen sister and shook my head.
 
@@ -110,7 +110,7 @@ Many of them were sad memories but there were some happy ones as well.
 
 I had a feeling that this will very likely be the last time I visit these mountains and even though my time spent here was not the best, I still have some strange feeling of attachment to these lands and my family that I grew up around.
 
-Many of the trees here that may just look like any other ordinary tree was something different to me.
+Many of the trees here that may just look like any other ordinary tree were something different to me.
 
 Although ordinary, these trees watched over me as I grew up, these lands provided for me through the good times and the bad times.
 
@@ -126,9 +126,9 @@ Seeing this, Phanna immediately tried to convince Mikay.
 
 However, Mikay did end up agreeing to taking an alternate path and I was tasked with leading the way.
 
-Before long, we were standing in front a small group of trees that seemed to be too small compared to the rest of the trees around. 
+Before long, we were standing in front a small group of trees that seemed much too small compared to the rest of the trees around. 
 
-Unlike the other trees in the area, these trees didn't have leaves and had green spikes instead.
+Unlike the other trees in the area, these trees didn't have leaves and instead, had green spikes.
 
 "Hmm..." Phanna hummed upon seeing these trees as if lost in thought of some kind.
 
@@ -188,7 +188,7 @@ Mikay also followed behind and started looking at the branches as well.
 
 Instead of looking at the different branches with Mikay and Phanna, I headed to the center of the cemetery instead in search of something else.
 
-The object I was searching for was a branch from a tree that could be grafted onto the spikey trees and the trees where those branches came from were located in the center of the cemetery.
+The object I was searching for was a branch from another tree that could be grafted onto the spiky trees and the trees where those branches came from were located in the center of the cemetery.
 
 Because of the situation with Phanna and Mikay earlier, there's not a single guard on patrol in this area.
 
@@ -250,7 +250,7 @@ The branch was grafted, at the very most, a week ago.
 
 There was no doubt about it, this branch was for me.
 
-There was no one else named Melody in my party and this cemetary was used exclusively by my party
+There was no one else named Melody in my party and this cemetery was used exclusively by my party
 
 Even if there was another Melody in my party, I was the only Melody that died recently and there's no way a branch could have been grafted for someone who had died today.
 
@@ -298,7 +298,7 @@ This pain in my chest, this discomfort in my stomach, this weakness all over my 
 
 All of these feelings was normal to me, all this was something I expected of me.
 
-I've felt them over and over again yet despite that, I felt like there's no reason for me to feel this way right now.
+I've felt them over and over again yet despite that, I had no reason to feel this way right now.
 
 Everyone knew what I was, everyone knows who I was...
 
@@ -322,7 +322,7 @@ As If responding to my gaze, Phanna spoke out once again.
 
 "I... I don't know" I whispered in tears.
 
-"Then what about this person?" Phanna continued but this time, their fingers pointed towards themself.
+"Then what about this person?" Phanna continued but this time, their fingers pointed towards himself.
 
 Seeing this gesture, my tears spilled out like a waterfall.
 
@@ -362,7 +362,7 @@ Phanna then gestured to Mikay and and Mikay came over and phanna dipped the rock
 
 My tears stopped as I was entranced by whatever Phanna was doing with the rock and the cloth.
 
-As i looked on, the cloth that was wrapped around the rock desolved into the liquid and the rock started bubbling withing the murky water.
+As I looked on, the cloth that was wrapped around the rock dissolved into the liquid and the rock started bubbling withing the murky water.
 
 "Come feel this, it's quite warm" Phanna said to me.
 
@@ -370,7 +370,7 @@ Without thinking, I held out my hands towards the bowl of liquid and Phanna hand
 
 The bowl did indeed feel warm and somehow the warmth made me feel a bit better inside as well.
 
-before long, the bubbling stopped and Phanna took the rock out of the murky water and showed it to me.
+Before long, the bubbling stopped and Phanna took the rock out of the murky water and showed it to me.
 
 Some strange yet beautiful symbols I had never seen before were engraved onto the rock.
 
