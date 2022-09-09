@@ -10,7 +10,7 @@ Before me, on the ground, was a horror the likes of which is nothing I've ever s
 
 Bodies littered the forest floor and many of them showed signs of fatal damage.
 
-some had holes torn strait through their body while others where missing limbs or even worse, ther entire head.
+Some had holes torn strait through their body while others where missing limbs or even worse, their entire head.
 
 Blood soaked the earth and as I looked up, I could feel my stomach turn trying it's best to eject whatever it contained.
 
@@ -22,7 +22,7 @@ Why?
 
 Why?
 
-That was the only thing on my mind as the contents of my stomach ejected through my mouth leaving the stench of stomach juices lingering in my nose as I fell on to my knees.
+That was the only thing on my mind as the contents of my stomach finally found their way through my mouth leaving the stench of stomach juices lingering in my nose as I fell on to my knees.
 
 Why did I come here?
 
@@ -36,15 +36,15 @@ Why?
 
 Why?
 
-I've been told before that as a front line solder, we should come to expect that we might die at any moment.
+I've been told before that as a front line party member, we should come to expect that we might die at any moment.
 
 War over resources, battles to defend territory, hunting large animals to secure borders.
 
 These were all dangerous tasks that those stations near the edge of our territory face every day.
 
-Yet never once had I actually experianced any of those.
+Yet never once had I actually experienced any of those.
 
-Dangerous wiled animals were uncommon and we've had no real troubls in terms of attacks from any of the villages.
+Dangerous wiled animals were uncommon and we've had no real troubles in terms of attacks from any of the villages.
 
 We could push our territory as much as we want and yet, we encountered no resistance, no battles, no loss.
 
@@ -52,7 +52,7 @@ For some reason, I had come to expect the sort of lazy daily life as the norm bu
 
 Something inside me told me that this was what normal should look like, this was what living on the borders of our territory actually meant.
 
-Yet even so, I was stunned my what I saw before me, the scent of blood, death and decay.
+Yet even so, I was stunned by what I saw before me, the scent of blood, death and decay.
 
 Somehow, I couldn't accept what I saw, yet it also somehow felt normal.
 
@@ -60,15 +60,15 @@ There was no fear in my heart, only discomfort and disgust.
 
 As I sat there in shock of the nightmare before my eyes, I noticed something moving in the corner of my eyes.
 
-Turning my eyes towards the source of the motion, I noticed Phanna being persued my a group of elves.
+Turning my eyes towards the source of the motion, I noticed Phanna being chased my a group of elves.
 
 Not a single one of them showed any hesitation in their actions, not the elves, and not Phanna either.
 
 Yet somehow, I was full of hesitation.
 
-I could barely move myself as I watched the high speed persute in a daze as the world around me became a blur.
+I could barely move myself as I watched the high speed chase in a daze as the world around me became a blur.
 
-The motions of Phanna, the elves in persute, all of it melded together and became a blur.
+The motions of Phanna, the elves in pursuit, all of it melded together and became a blur.
 
 But despite that, I could not take my eyes off them.
 
@@ -82,17 +82,17 @@ And what I got... only left me conflicted.
 
 What I witness before my eyes was the work of a single person.
 
-That person right now is being persued by a group of elves; no, two group of elves now.
+That person right now is being chased by a group of elves; no, two group of elves now.
 
 Yet somehow, the person doesn't seem at all worried and carried on defensively like everything's fine countering every attack with something that I can only describe as elegant.
 
-I was mesmurized by Phanna's movents but why? why do I feel this way?
+I was mesmerized by Phanna's movements but why? why do I feel this way?
 
 I should be worried about my fallen sisters and yet, all I am doing is standing still, doing nothing, watching.
 
 Is it because I know how powerless I am?
 
-Is it because I'm sopposed to be dead?
+Is it because I'm supposed to be dead?
 
 Why?
 
@@ -146,9 +146,9 @@ Was it because I trusted this person as my own family or something else, I didn'
 
 But as soon as I began looking into her eyes, I realized that I made a mistake.
 
-I was picked up by the collar and slamed into a tree.
+I was picked up by the collar and slammed into a tree.
 
-Pain and discomfort radiated from my chest and back as I caughed out whatever was in my throat.
+Pain and discomfort radiated from my chest and back as I coughed out whatever was in my throat.
 
 "Are you Phanna's child" She asked while glaring at me with the intent to kill.
 
@@ -172,7 +172,7 @@ My body would become one with the earth here and become food for the trees.
 
 This will probably be my first, last, and only contribution to my home, my family, and my mother.
 
-I glanced away from the elf who has me pinned against the tree in an attempt to singnal that I've accepted my fate.
+I glanced away from the elf who has me pinned against the tree in an attempt to signal that I've accepted my fate.
 
 But that fate never came.
 
@@ -180,23 +180,23 @@ I was dropped onto the ground as I let out an "Ah."
 
 It was at this time that Phanna spoke.
 
-"Are you all ready to negotiate again? It's pretty clear now that continueing this would be meaningless."
+"Are you all ready to negotiate again? It's pretty clear now that continuing this would be meaningless."
 
 "What's there to negotiate? You've already done this much!" provoked one of the elves in anger.
 
 "You know, I wasn't the first to attack. In fact, I never directly attacked at all. I've only counter attacked."
 
-"Didn't attack? You must be kidding me right? Not only did you kill one of our own during the exam, you also decided to start setting up your colony knowing that we're near by. If that isn't a direct declration of war then I don't know what is!"
+"Didn't attack? You must be kidding me right? Not only did you kill one of our own during the exam, you also decided to start setting up your colony knowing that we're near by. If that isn't a direct declaration of war then I don't know what is!"
 
 "Ah... about that..."
 
 Before Phanna could speak further, the elves who were standing still just a moment ago leaped again to attack Phanna.
 
-Phanna, of course, evaded and the persute began once more.
+Phanna, of course, evaded and the pursuit began once more.
 
 The elf that stood before me also darted back to once again engage Phanna.
 
-But despite all this chaos, I was lost in thought by the short excange between Phanna and the elves, more spicifically, why is this happening.
+But despite all this chaos, I was lost in thought by the short exchange between Phanna and the elves, more specifically, why is this happening.
 
 The cause: me.
 
@@ -206,13 +206,13 @@ All the bodies on the ground before me is the result of my actions.
 
 I caused this whole mess.
 
-If I didn't exist, Phanna and Mikay probably wouldn't have seperated.
+If I didn't exist, Phanna and Mikay probably wouldn't have separated.
 
-If I didn't exist, Phanna probably wouldn't look like he's pregnent.
+If I didn't exist, Phanna probably wouldn't look like he's pregnant.
 
 If I didn't exist, no one else here would be dead.
 
-My existance killed all these people.
+My existence killed all these people.
 
 I killed them.
 
@@ -220,23 +220,23 @@ My sisters, my party, my family... all dead because of me...
 
 Yet despite that, I am powerless to do anything about it.
 
-I am truly a worthless existance that should have never existed.
+I am truly a worthless existence that should have never existed.
 
 "Ah... you! Aren't you one of the people who came with Mikay today?"
 
-I turned my teary gaze towards the source of the question and found looking back at me a person I was very farmiliar with struggling to stand back up.
+I turned my teary gaze towards the source of the question and found looking back at me a person I was very familiar with struggling to stand back up.
 
-Medium short silvery blond hair stairing back at me with an air of confidence despite the terrible condition that she is currently in. 
+Medium short silvery blond hair staring back at me with an air of confidence despite the terrible condition that she is currently in. 
 
 This is none other than Patricia, the leader of my party.
 
-As I was stunned to see her again, she spoke up once agian. 
+As I was stunned to see her again, she spoke up once more. 
 
 "Sorry you had to see this. You should probably stick around with Mikay when you're here. If you don't, you might end up in the situation Phanna is in right now."
 
 "Ah... I... um... I'm... I'm sorry..." I barely managed to choke those words out. 
 
-Just seeing Patricia treat me as a stranger breaks my heart so much. 
+Just seeing Patricia treat me as a stranger broke my heart. 
 
 She was the only person that had no memories of being scolded by. 
 
@@ -246,19 +246,19 @@ In a different way, I loved her.
 
 Yet here she was, treating me like a stranger, yet despite that, I knew it was for the best that she doesn't recognize me.
 
-Unknowingly, I found myself appligizing to her. 
+Unknowingly, I found myself apologizing to her. 
 
-Appoligizing for the mistakes I've made in the past. 
+Apologizing for the mistakes I've made in the past. 
 
-Appoligizing for the graveyard I've created.
+Apologizing for the graveyard I've created.
 
-Appoligizing for the lying to her.
+Apologizing for the lying to her.
 
-Yet despite that, I couldn't say any of that to her face so the only thing i could say was was I found myself reating again as tears fell out of my eyes.
+Yet despite that, I couldn't say any of that to her face so the only thing i could say was I found myself repeating again as tears fell out of my eyes.
 
 "I'm sorry... I'm sorry... I'm sorry..."
 
-"Huh what? No need to get so worked up about it. You should go back to Master Mikay right now before what happenes to Phanna ends up happening to you."
+"Huh what? No need to get so worked up about it. You should go back to Master Mikay right now before what happened to Phanna ends up happening to you."
 
 "I'm sorry... I'm sorry..."
 
@@ -266,13 +266,13 @@ Yet despite that, I couldn't say any of that to her face so the only thing i cou
 
 Before I could say anything else, Patricia dashed off towards Phanna and joined the other elves in attacking phanna.
 
-It took me a while to recognize this but as soon as I did, it somehow struck me what was happeneing. 
+It took me a while to recognize this but as soon as I did, it somehow struck me what was happening. 
 
 Patricia's life might come to an end today and the reason for that is because of me.
 
 I didn't want that, I have to stop it. 
 
-Even if she doesn't recognize me, I still owe her alot. 
+Even if she doesn't recognize me, I still owe her a lot. 
 
 I need to stop it.
 
@@ -286,7 +286,7 @@ That's right! Mikay!
 
 I'm sure he'll be able to do something to stop this!
 
-I'm sure if he explains the situation then the elves here will surely beleave him! After all, he's a Master and he was there at the Exams on that day!
+I'm sure if he explains the situation then the elves here will surely believe him! After all, he's a Master and he was there at the Exams on that day!
 
 I have to get to Mikay and get tell him to help!
 
@@ -300,7 +300,7 @@ Every second I lose is a second where Patricia is in further danger.
 
 I have to hurry.
 
-And so with such thoughts in my mind, I hurried towards the proving grounds where Mikay is currently teacing other elves.
+And so with such thoughts in my mind, I hurried towards the proving grounds where Mikay is currently teaching other elves.
 
 ## <cente>~<center>
 

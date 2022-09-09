@@ -2,15 +2,15 @@
 
 "You should come with us today too." Phanna suggested to me playfully from across the table.
 
-Seeing Phanna awake in the morning 2 days in a row was strange enough as it is already but having Phanna suggese something like this is confusing me even more.
+Seeing Phanna awake in the morning 2 days in a row was strange enough as it is already but having Phanna suggest something like this is confusing me even more.
 
-"Um... Uhh..." I studdered unsure of how to make of the situation.
+"Um... Uhh..." I shuddered unsure of how to make of the situation.
 
 I instinctively turned towards Mikay for guidance.
 
 "Mikay is that ok with you" I asked
 
-"No, of course not. But Phanna always ends up having their way anyways so there's nothing I can do about it." Mikay lemented.
+"No, of course not. But Phanna always ends up having their way anyways so there's nothing I can do about it." Mikay sighed.
 
 "Oh um... ok..." I said hesitantly.
 
@@ -20,9 +20,7 @@ Mikay, it seems, has decided to just let Phanna do as he pleases and Ignore ever
 
 I wouldn't say that that's not a good strategy when it comes to Phanna but there's no way I would be able to do that.
 
-There's just something about Phanna that I can't possibly ignore no matter what absurd things he says.
-
-Afterall, he'd done so much for me with the strange knowledge he has.
+There's just something about Phanna that I can't possibly ignore no matter what absurd things he says after all he'd done for me with the strange knowledge he has.
 
 "So what do you say? Wanna join us today?" Phanna asked again playfully.
 
@@ -30,7 +28,7 @@ Do I want to?
 
 I mean, I am curious about how things are doing back home but going there still made me uneasy.
 
-I'm supposed to be dead afterall.
+I'm supposed to be dead right.
 
 And will I be able to face the reality of how everyone else felt about me?
 
@@ -40,7 +38,7 @@ But what if it's not as bad as I thought it was.
 
 Still feeling unsure, I just ended up asking Phanna a question instead.
 
-"Um... sure... but why do you wanh me comming along?" I asked hesitantly
+"Um... why do you want me coming along?" I asked hesitantly
 
 "Well, Yesterday, the elves in the mountains kinda snagged me and questioned me all day. I was thinking I'd have you entertain the elves today so I can explore the mountains alone."
 
@@ -64,13 +62,13 @@ I guess I'll just go along with Phanna's whims.
 
 "Um... I guess I was feeling kind of curious how things are doing at home so I'll come along." I answered hesitantly. 
 
-"Sweet, then let's get this meal over with quickly so we can set off as soon as possiable."
+"Sweet, then let's get this meal over with quickly so we can set off as soon as possible."
 
 Immediately after saying that, Phanna quickly finished eating the rest of the strange food he always eats and went outside to dump the left overs into the roof pond.
 
 "Why are you so excited about this?" I asked after Phanna returned.
 
-"Hmm? I'm really close to finishing the microscope I've been working on and all that I'm missing now is a bit of Silicon and Iron. Of course I'd be excited!" Phanna answered with a smile.
+"Hmm? I'm really close to finishing the assembler I've been working on and all that I'm missing now is a bit of Silicon and Iron. Of course I'd be excited!" Phanna answered with a smile.
 
 ...
 
@@ -86,7 +84,7 @@ Immediately after saying that, Phanna quickly finished eating the rest of the st
 
 "Is Phanna just as crazy at home as she is here?"
 
-"What's Master Mikay like at home? He's gotta be the fater right?"
+"What's Master Mikay like at home? He's gotta be the father right?"
 
 The never ending stream of questions began as soon as we arrived.
 
@@ -100,7 +98,7 @@ But it seems no one here recognizes me.
 
 I guess this is what it must mean to be 'a stranger in your own home'
 
-I recognized so much of the surrounding, the short support trees around me, the tall lookout trees, the hiding bushes, they all are farmiliar.
+I recognized so much of the surrounding, the short support trees around me, the tall lookout trees, the hiding bushes, they all are familiar.
 
 Even the clearing in the trees that the proving grounds is located and the various structures around, I knew this place very well.
 
@@ -110,9 +108,9 @@ The elves from the other parties is one thing but even the elves from my own par
 
 There weren't many from my party here but there were some.
 
-Amanda and Hannah where the ones that I recognize, and are currently swaming me with the rest of the elves.
+Amanda and Hannah where the ones that I recognize, and are currently swarming me with the rest of the elves.
 
-Somehow, not being recognized by them made me feel both relieved but also extremely uncomfortable.
+Somehow, not being recognized by them made me feel both relieved but also extremely sad.
 
 After all, they were people I lived with every day for almost all of my life and yet here they are, acting like complete strangers in front of me.
 
@@ -174,7 +172,7 @@ I couldn't give him an answer.
 
 I could only look down and drown in my own sorrows.
 
-"That Phanna... geez..." Mikay grunted in frustratron as he looked around.
+"That Phanna... geez..." Mikay grunted in frustration as he looked around.
 
 I didn't have to follow his gaze to know what he's trying to do. 
 
@@ -186,11 +184,11 @@ I responded to Mikay's suggestion with a meek nod and tried my best to stay clos
 
 Despite him being a master and me being a nobody, his presence next to me somehow felt calming. 
 
-This normally wouldn't have been the case as I recalled the first I met him during the entrence exams.
+This normally wouldn't have been the case as I recalled the first I met him during the entrance exams.
 
 Things sure have changed since then.
 
-At first, he was like an untouchable being of power and athority
+At first, he was like an untouchable being of power and authority
 
 But now, he feels just like a friend, or maybe even family.
 
@@ -258,13 +256,13 @@ But I can't say any of this out loud, so I did the only thing I could.
 
 "P-please continue... I-I'll be fine..." I whimpered.
 
-This was all I could manage to say to mikay.
+This was all I could manage to say to Mikay.
 
 He gave me a troubled look before asking:
 
 "Are you sure?"
 
-I gave him a weak nod in responce but he didn't seem too convinced by my answer and continued eyeing me.
+I gave him a weak nod in response but he didn't seem too convinced by my answer and continued eyeing me.
 
 After a short while, he seemed to have decided on something and sat me down somewhere away form the field in the trees.
 
@@ -274,21 +272,21 @@ I gave Mikay a weak nod again as he stood back up.
 
 At my answer, Mikay gave my head a quick rub before walking towards the other elves in the field.
 
-For what felt like a couple hours after my morning strugles, nothing much happened.
+For what felt like a couple hours after my morning struggles, nothing much happened.
 
-None of the other elves tried to appoach me much and I ended up spending the time watching Mikay practice with his students.
+None of the other elves tried to approach me much and I ended up spending the time watching Mikay practice with his students.
 
-Mikay's lessons mostly boiled down to how to maintain activation of abilities for longer and how to activate more abilities at once, things that I never managed to do on my own.
+Mikay's lessons mostly boiled down to how to maintain activation of abilities for longer and how to activate more abilities at once, things that I've never managed to do on my own.
 
 The other elves seem to be getting more out of the lessons than I was able to even though I received one on one lessons from Mikay for so long.
 
 I guess that just goes to show how much of a failure I was and still am.
 
-Many of the other elves that were around to watch had also gone back to their duties now and the area around the training grounds became errily empty.
+Many of the other elves that were around to watch had also gone back to their duties now and the area around the training grounds became eerily empty.
 
 I was the only one sitting around.
 
-The quiet alone time gave me a bit of comfort as I'd have little to no oppertunity to mess anything up.
+The quiet alone time gave me a bit of comfort as I'd have little to no opportunity to mess anything up.
 
 And that's really all I can be at the point.
 
@@ -300,7 +298,7 @@ As I watched the students getting taught by Mikay one after, I began to notice a
 
 At first, it was soft and distant and easily mistaken for the wind.
 
-But with each repetition, the tune and melody of the song became clearer and more appearant.
+But with each repetition, the tune and melody of the song became clearer and more apparent.
 
 And then, It all came together, the song, the call, it was an emergency assistance request call.
 
@@ -314,7 +312,7 @@ I almost jumped up to rush to the area but I stopped myself before I followed th
 
 I'll be of no help anyways and I'll probably just cause issues for everyone else.
 
-Not only that, I was supposed to be a random person who's unfarmiliar with the mountains much less the elven communication methods used here.
+Not only that, I was supposed to be a random person who's unfamiliar with the mountains much less the elven communication methods used here.
 
 Lastly, Mikay's students didn't seem to have noticed at all.
 
@@ -336,7 +334,7 @@ Maybe I should just stay here...
 
 But... This isn't something that happens every day... and region 11 is really close to the central nest...
 
-What could have possiably gotten so close...
+What could have possibly gotten so close...
 
 I... I have to find out...
 
