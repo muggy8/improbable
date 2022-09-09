@@ -96,5 +96,53 @@ I gave Phanna a look of confusion as he explained the stones.
 
 Noticing this, Phanna gave me a further explanation.
 
-"Melody, what does it mean to be you?"
+"Melody, what does it mean to be you? How are you different from other people"
+
+"What kind of stupid question was that?" I asked a bit confused.
+
+Phanna seemed to have expected this and continued
+
+"What makes you different from the Melody that died in my memory?"
+
+"That I'm alive?" I blurted out without thinking
+
+"Then what if the melody of my past didn't die? How would you be different from her?"
+
+I was stumped.
+
+If this world had 2 of me, how would i be different from the other Melody?
+
+Of course, I knew I'm different but I don't know exactly what it is that makes me different from her if we both existed.
+
+I tried to think as hard as I could but nothing came to me.
+
+If i can just be duplicated then what maakes me different from the other copies of me.
+
+I would know but I dont know what the difference is other than the fact that I'm here and my copy is there.
+
+Phanna noticed my silence and started giving me the answer.
+
+"The thing that makes you different from any other Melody that might exist now, in the future, or in the past is your memories. If you have the memories of a person, you are that person. Well, it's not exactly as simple as that but the basic idea is this: Each person's existence is based on their memories. At least how I see the world. " Phanna explained.
+
+This sounded weird and I wanted to object but I didn't have any arguements against what Phanna is saying. 
+
+All i know is that memories being the definition of people is something that just doesn't feel right to me.
+
+After all, I'm me and i'm not anyone else.. 
+
+But according to Phanna, if had his memories, I would be him.
+
+This just doesn't make sense to me.
+
+Yet at the same time, there was something undeniable about what Phanna just said.
+
+That;s why I didn't make any objections, I couldn't.
+
+"And so, because the memories of the people who attended the exams that day were wiped and destroyed, I consider the existence of whoever it is they were up to the point of the memory alteration to have died along with the loss of memory. Whoever they are now are no longer the person they used to be. That's why I made these." Phanna concluded.
+
+"What if, what if i have a bunch of dreams and in my dream, i get to see someone else's memories does that mean I become that person?"
+
+"No. because you still have your own memories right?"
+
+"..."
 
