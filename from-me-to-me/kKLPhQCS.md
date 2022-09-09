@@ -140,3 +140,8 @@ After wrapping up Melody's bones in the blanket that I just made, I headed outsi
 
 Of course, I would love to be sleeping right now but that's not something I could think about doing right now as a rather difficult conversation will soon be had between Mikay, Melody and I.
 
+With that in mind, I sat down by the only table in the the house and awaited the inevitable.
+
+## <center>~<center>
+
+<center><a href="./20XRTako">Next Chapter</a></center>
