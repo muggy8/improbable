@@ -112,35 +112,153 @@ Normally, I would be in bed by now.
 
 Probably not sleeping but at least resting and maybe trying to work on the Assembler that I'm growing within me. 
 
-But given that this is my last night here, I didn't have the luxury of doing that. 
+Unfortunately, today's not just any ordinary day.
 
-I didn't know what I would do about my food situation if we were to leave but I would expect some sort of vehicle to be involved. 
+I jumped though the hole in the roof of my room once more to visit the growth pond on the roof of the house.
 
-But it's rather unlikely that my aquaculture farm would be able to come along with us in the way that it was which was why my next order of business was to pack that up as best as I can before we leave.
+It was filled to the brim with organic machines.
 
-I jumped onto the roof through the makeshift skylight, and sat down next to the pond as I connected to the various controllers living within it.
+Mikay was filled with disgust upon seeing this during the few times that he's been up here.
 
-There were alot of bacteria and bio-machinery all living within this tank and most of them are dedicated to food production. 
+Not that I can really fault him for that.
 
-Since I wouldn't be able to rely on having a pond like this in the future I would need to store as much of this away into a portable form.
+It really does look unpleasant even if I know basically exactly what it is and have full control over it. 
 
-With that in mind, I began issuing commands to the various controllers.
+Fortunately, it doesn't produce any unpleasant odours so no one around is really bothered by it as long as they aren't looking at it.
 
-Soon enough, almost all the bacteria and bio-machines in the pond gathered into a fluffy flack blanket of sorts.
+_Notice: Connected to BlackPond_
 
-Mikay and Melody were both starting to wake up by now so I grabbed the blanket and made my way back into my room.
+Upon walking up to the pond, the usual connection success signal sounded off in my mind.
 
-I also took the opportunity to move some of the bacteria and bio-machinery onto my shirt since I had been ripping pieces off of it quite a bit yesterday and I didn't know if I had the time to wait for it to grow back.
+As soon as this happened, I began sending commands for the bacteria living in the pond to execute.
 
-This left a strange patch of black all around my shirt that faded into the rest of the shirt.
+"BlackPond status"
 
-Honestly, it looked kinda cool but I'm sure I'd get sick of it pretty soon.
+_BlackPond: Bio Status: healthy_<br/>
+_BlackPond: Command Nodes 2%_<br/>
+_BlackPond: Running Tasks: 8_<br/>
+_BlackPond: ..._<br/>
 
-After wrapping up Melody's bones in the blanket that I just made, I headed outside and sat at the table waiting for Mikay and Melody to wake up.
+Various information about the pond was being communicated to my mind and nothing out of the ordinary seemed to be happening, just as I had expected.
 
-Of course, I would love to be sleeping right now but that's not something I could think about doing right now as a rather difficult conversation will soon be had between Mikay, Melody and I.
+"BlackPond supplement Outfit -priority 0"<br/>
+"Outfit set design dress22"
 
-With that in mind, I sat down by the only table in the the house and awaited the inevitable.
+After issuing the commands to reconstitute my shirt into a dress by using the bacterial machinery in the pond, I stepped into the pond myself to begin the process of converting my outfit.
+
+Laying in the pond, I had the sudden realization. 
+
+The goop around me felt almost just like Pillow and Cushion, except much bigger.
+
+It was a strange feeling but one that I don't dislike.
+
+Though I don't know exactly what is going to happen once we depart, I would definitely like to take as much of the bacterial machinery in this pond with me.
+
+That's why I ended up choosing a dress with a design that was complicated with many frills and folds.
+
+The color wont be changed that easily but it's nothing a little structural coloring cant fix.
+
+Looking up at the orange sky of dawn, The tiredness from the days before finally hit me and I started drifting off to sleep.
+
+...
+
+...
+
+...
+
+...
+
+"Phanna... doing... ... ... alive? ..."
+
+An annoying voice interrupted my peaceful rest as I was forced to open my eyes.
+
+"Phanna you ok there?"
+
+The blurry image of Mikay loomed over my head as I slowly regained consciousness.
+
+"I was pretty ok for a good while. But then this person started yelling at me to wake up." I replied feeling a bit frustrated.
+
+"Oh, I see. I guess you're fine then."
+
+"Well, since you're here anyways, why not give me a bit of help."
+
+"What do you need?"
+
+"That quicken thing that you did yesterday with the bowl of water and a piece of my shirt, think you can do that again?"
+
+"Uh, I can. But what do you need that for?"
+
+"Do you want me to explain?"
+
+"...No. So where do you want me to do use Quicken?"
+
+"This whole pond. I'll let you know when you can stop."
+
+"Um. sure thing I guess."
+
+After Mikay answered, the world around me began to slow down.
+
+The trees that were supposed to be moving in the air slowed, the leaf blowing in the wind slowed, the sounds coming from my surroundings dropped in pitch significantly.
+
+A suspended world like this was a perfect way for me to extend my sleep.
+
+Once again I gazed into the frozen sky and drifted off.
+
+...
+
+...
+
+...
+
+I woke up later and the Sun had barely moved.
+
+Mikay was sitting around as well.
+
+I looked down my body to see my frilly dress fully formed.
+
+The pond I was resting in was no longer as black as it once was since much of the bacteria that were living in it are now attached to my outfit.
+
+Feeling satisfied, I called out to Mikay but he didn't respond.
+
+It seems like he didn't accelerate himself.
+
+I guess that's alright.
+
+I grabbed a hand full of water and threw it at Mikay.
+
+I'm sure he'll understand but until then, I'll have to wait.
+
+After what felt like a couple minutes, Mikay finally began to move.
+
+And then he sped up, and sped up, and sped up...
+
+"Phanna! What the heck!" Mikay yelled angrily.
+
+"How else am I supposed to get your attention?"
+
+"How in the world am I supposed to get this dirty much out of my cloths now?"
+
+"Oh I'll take care of that"
+
+I reached out to the spots where I had splashed Mikay, held part of my dress over it, and issued my command
+
+"Outfit collect"
+
+...
+
+_Notice: Outfit: Collection complete_
+
+Upon receiving the signal, removed my skirt from Mikay's clothing and all that's left on it was a bit of water.
+
+Mikay was rather surprised by the results and let out a sigh.
+
+"Lets go back inside."
+
+Upon making that suggestion, I stood up from the pond.
+
+Mikay also stood up shortly after and the both of us return to the building.
+
+This time, we entered from the front door instead of jumping though the hole in the roof.
 
 ## <center>~<center>
 

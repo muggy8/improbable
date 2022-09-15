@@ -46,7 +46,7 @@ Before I could ponder on this any more, the horned boy began counter-attacking b
 
 Melody's only saving grace is that she caught both of the horned boy's hands in her hold.
 
-The horned boylanded a clean kick. 
+The horned boy landed a clean kick. 
 
 Then another...
 
