@@ -64,9 +64,11 @@ Not long after leaving my room through the roof, I arrived at the place where th
 
 The body has already been cleaned up and not much is left on the ground. 
 
-However, what I was looking for wasn't on the ground but beneath it.
+A single glance was all it took for me to realize that what I was looking for was no longer there.
 
-I was looking for Melody's body.
+I made my way to behind the school, under the place where I was hanging by the roof of during the exam day when I was trying to infiltrate the building.
+
+There was a flower bed growing here and I didn't give it much though at the time but now that I think about it, this must be where the dead is buried.
 
 Mikay said something about Melody being able to connect with the dead body's Sphere of Influence when we visited last time.
 
@@ -74,31 +76,119 @@ Though this Sphere of Influence is something I lack, it was still a resource tha
 
 Especially because there's no known ways of getting more of it according to Mikay.
 
-And so, I started getting to work.
+And if Melody can make use of this Sphere of Influence thing from the corpse of the departed Melody, then the only reasonable thing to do is to collect Melody's remains before we leave.
 
-This wasn't something I could have done because of the investigation going around but now that we're leaving, a bit of grave robbing is probably ok.
+And so, I started getting to work searching for what remained of Melody.
 
-I made my way to behind the school, under the place where I was hanging by the roof of during the exam day when I was trying to infiltrate the building.
+But somehow, my body felt sluggish.
 
-There was a flower bed growing here and I didn't give it much though at the time but now that I think about it, this must be where the dead is buried.
+As if it refused to listen to my will.
 
-I stated looking around but I didn't find anything resembling what I was looking for.
+This wasn't something I would have done by myself.
 
-But this wasn't the only place I could look.
+If there's anyone who has the right to do something like this then it's Melody herself.
 
-There was a small trail that lead away from the flower garden.
+Yet here I am digging up her grave and collecting her remains.
 
-Following that trail lead me to another flower garden close to the river and I immediately spotted what I was looking for, an area with some flowers sitting on soil that's all too soft.
+This act felt wrong to me, every part of doing this went against my morals and what I believed in.
 
-It was at this place that I started digging and soon enough, I found exactly what I was looking for, the bottom half of a skeleton.
+The dead should be Respected, the dead should be remembered. 
+
+What I'm doing right now is no better than reanimating the dead.
+
+Yet despite that, I must still continue, without much success.
+
+What normally would have taken me at most half an hour to do felt like it was taking me much much longer.
+
+It wasn't just that, every move I made was full of hesitation.
+
+Despite the amount of time I spent searching, there was a clear lack of results. 
+
+Did I spend an hour searching?
+
+Maybe 2 hours?
+
+Despite the time spent searching, I couldn't find anything even resembling what I was looking for.
+
+I wanted to give up, just accept that this was somehow the world telling me that I shouldn't be doing this, but I know better.
+
+Stuff like that doesn't exist. 
+
+It is all just a series of coincidences that is fooling my mind into thinking there's some deeper meaning behind.
+
+That's when I noticed a small trail that lead away from the flower garden.
+
+It seems that this wasn't the only place I could look.
+
+Following that trail lead me to another flower garden close to the river that this settlement uses as it's water.
+
+upon arriving, I immediately spotted what I was looking for, an area with some flowers sitting on soil that's too lose.
+
+It was clear that this place has recently been dug up.
+
+I hesitantly approached the flowers and unease filled my mind.
+
+'This is the right thing to do', I thought to myself
+
+This has to be the right thing to do.
+
+After all, to knowingly throw away something that's useful and irreplaceable is just stupidity at it's finest.
+
+Yet even still, I hesitated.
+
+Digging up this grave means that I'm denying someone's existence, destroying their legacy, invalidating the life that they've lived.
+
+It doesn't matter that another Melody that shared a past with this Melody is still alive and well.
+
+This Melody that was in the ground had lived her life and her story was over.
+
+The changes she made in the world, the changes that she left though her existence.
+
+In essence, I was altering the memory of the world.
+
+I was altering her existence, killing a dead person again. 
+
+I didn't want to do that.
+
+Everyone has the right to remain dead.
+
+Everyone has the right to be remembered. 
+
+Even if someone is only remembered in a physical way by what was left of them after their death, that is still a way that the world is remembering them.
+
+Yet here I am, looking at such a grave with the intent of destroying the physical memory of Melody.
+
+I didn't what to do it yet not doing it would be beyond foolish.
+
+Hesitantly I lowered myself to the ground in preparation to excavate the flower bed.
+
+"What's right isn't always what's best" I whispered to myself as if I trying to convince myself.
+
+"What's right isn't always what's best" I whispered again.
+
+"What's right isn't always what's best" I whispered once more.
+
+And slowly, at this place, I started digging and soon enough, I found exactly what I was expecting to find, the bottom half of a skeleton.
+
+"What's right isn't always what's best. What's right isn't always what's best"
 
 I collected all the bones buried here within a make shift pouch made out of the light leather armor that was buried with the skeleton and made my way home.
 
-There's alot of analysis I would be doing on these bones in the future which is why I needed to collect these while I still had the chance.
+There's a ton of analysis I would be doing on these bones in the future which is why I needed to collect these while I still had the chance.
 
-After an attempt to return the flower bed to what it was like before I dug it up, I returned home with Melody's skeleton in hand.
+"What's right isn't always what's best... What's right isn't always what's best... What's right isn't always what's best"
 
-When I got home, I wasn't really sure where I would put the bones I just dug up. 
+I tried to convince myself that what I was doing was ok. 
+
+Digging up the grave, collecting the bones, no matter how much I try to reason with myself, my heart ached every time my hand touched the bones before me.
+
+"What's right isn't always what's best... What's right isn't always what's best..."
+
+I could feel my hands trembling as I made an attempt to return the flower bed to what it was like before I dug it up.
+
+There's no reason to feel so dirty about what I have done, yet I couldn't shake this feeling of discomfort as I returned home with Melody's remains in hand.
+
+When I got home, I knew I needed to keep them out of sight, yet I wasn't really sure where I would put the bones I just dug up. 
 
 Fortunately, because the bones were picked clean by animals that lived near by, or maybe it was because of the process of disposing of the dead, there wasn't any stench coming from the bones.
 
