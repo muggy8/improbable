@@ -1,4 +1,4 @@
-# Departure
+# It Wasn't Me
 
 By the time I woke up, the sun was already high in the sky.
 
@@ -20,7 +20,7 @@ I lost myself in the curves and bends of the strange symbols as I lay mindlessly
 
 I didn't want to move, I didn't want to get up, I didn't want to face whatever might happen today.
 
-I just want to lay her.
+I just want to lay here.
 
 I didn't have the energy, the will, or the courage to leave my bed.
 
@@ -66,7 +66,7 @@ He just walked closer and closer and closer until he was standing next to my bed
 
 "Ahh! That's cold what are you doing!" I yelled as I felt a strange coldness wrapping itself around my body.
 
-But before I could do anything, another part of my body was assaulted by an all consuming cold.
+But before I could do anything, another part of my body was assaulted by another all consuming cold.
 
 "What are you doing!" I yelled flipping myself over to face Phanna despite knowing the answer to my own question already.
 
@@ -86,13 +86,13 @@ The same type of round and curvy symbols, probably in the language of wherever i
 
 "Wasn't I the only one who died?" I asked unsure of what to make of Phanna's answer.
 
-"Yes, you died, well the you of this time line. But there were many others who's existence ended on that day as well."
+"Yes, you died, well the you that existed in the my past. But there were many others who's existence ended on that day as well."
 
 "What do you mean?"
 
-"I don't know who or why but someone took control over Mikay's body to re-write the memories of basically everyone after you died. And for those who's memories were altered, you can say that the existences of the people with unaltered memories ended when their memories were wiped."
+"I don't know who or why but according to Mikay, someone took control over his body to re-write the memories of basically everyone around after you died. And for those who's memories were altered, you can say that their existences ended when their memories were changed."
 
-I gave Phanna a look of confusion as he explained the stones. 
+I gave Phanna a look of confusion at his explanation of the stones. 
 
 Noticing this, Phanna gave me a further explanation.
 
@@ -106,29 +106,31 @@ Phanna seemed to have expected this and continued
 
 "That I'm alive?" I blurted out without thinking
 
-"Then what if the melody of my past didn't die? How would you be different from her?"
+"Then what if the melody of my past didn't die? How would you be different from her? How would someone like Me be able to tell you two apart?"
 
 I was stumped.
 
-If this world had 2 of me, how would i be different from the other Melody?
+If this world had 2 of me, how would I be different from the other Melody?
 
 Of course, I knew I'm different but I don't know exactly what it is that makes me different from her if we both existed.
 
 I tried to think as hard as I could but nothing came to me.
 
-If i can just be duplicated then what maakes me different from the other copies of me.
+If I can just be duplicated then what makes me different from the other copies of me.
 
-I would know but I dont know what the difference is other than the fact that I'm here and my copy is there.
+I would know but I don't know what the difference is other than the fact that I'm here and my copy is there.
 
 Phanna noticed my silence and started giving me the answer.
 
 "The thing that makes you different from any other Melody that might exist now, in the future, or in the past is your memories. If you have the memories of a person, you are that person. Well, it's not exactly as simple as that but the basic idea is this: Each person's existence is based on their memories. At least how I see the world. " Phanna explained.
 
-This sounded weird and I wanted to object but I didn't have any arguements against what Phanna is saying. 
+"But how would you know what my memories are?"
 
-All i know is that memories being the definition of people is something that just doesn't feel right to me.
+"I don't, but if I just talk to you, I'd be able to tell the difference. If we talk about something that only the 2 of us knows then I would be able to tell you apart from the another Melody based on what you remember or know. As long as there is a way to tell you and another Melody apart, then it's good enough."
 
-After all, I'm me and i'm not anyone else.. 
+Memories being the the only thing that defines people is something that just doesn't feel right to me.
+
+After all, I'm me and I'm not anyone else.. 
 
 But according to Phanna, if had his memories, I would be him.
 
@@ -136,13 +138,104 @@ This just doesn't make sense to me.
 
 Yet at the same time, there was something undeniable about what Phanna just said.
 
-That;s why I didn't make any objections, I couldn't.
+That's why I didn't make any objections.
 
-"And so, because the memories of the people who attended the exams that day were wiped and destroyed, I consider the existence of whoever it is they were up to the point of the memory alteration to have died along with the loss of memory. Whoever they are now are no longer the person they used to be. That's why I made these." Phanna concluded.
+"And so, because some of the memories of the people who attended the exams that day were wiped and destroyed, I consider the existence of whoever they were to have ended when their memories were changed. Whoever they are now are no longer the same person they used to be. That's why I made these." Phanna concluded.
 
-"What if, what if i have a bunch of dreams and in my dream, i get to see someone else's memories does that mean I become that person?"
+"What if, what if I have a bunch of dreams and in my dream, I get to see someone else's memories does that mean I become that person?"
 
-"No. because you still have your own memories right?"
+"No. because you would still have your own memories but that other person doesn't have your memories."
 
-"..."
+"So if I were to forget everything I know and to get your memories, would I become you?"
 
+"Hmm... well, yes and no. There's more to memory than just the stuff that you can tell people. For example, you know how to walk, how to talk, how to see, and more. These are also memories to an extent. That's why we'll be the same but also not the same."
+
+I gave Phanna a look of confusion.
+
+"Basically, if you had all of my memories and forgot all your own memories, then the difference between me and you would be the similar to the difference between you and the melody that died in my past if she had survived instead."
+
+I still didn't quite understand what Phanna was saying.
+
+"Why?" I asked.
+
+Phanna went silent at my question as if he didn't know how to answer.
+
+But I know that isn't true.
+
+He always says something weird but still he always give an answer.
+
+"What if you woke up tomorrow and you were in the body of someone else. Would you still be you?"
+
+"Um... well..."
+
+"Now suppose that you also woke up in your own body as well meaning there's now 2 of you. What now?"
+
+"Then I would be able to control both people?"
+
+"You'd think you would but if your memories were moved into someone else's body and that person forgot their own memories, then from this other person's perspective, they would remember going to sleep in your body but waking up in another person's body right?"
+
+"So there would be 2 of me..."
+
+"Yes. And in a situation like this. This other person would be you but also not you at the same time."
+
+This is kinda weird to think about but I think I'm starting to understand what Phanna is saying.
+
+I am the product of my memories and experiences.
+
+That's why to change my memories would be to change who I am.
+
+So does that mean the person who was the root cause of yesterday's events wasn't me?
+
+I don't remember dying.
+
+No, I'm still alive right now, so I definitely couldn't have died.
+
+That means that I am not the person that was the root cause of yesterday's bloodshed.
+
+Is that what Phanna is trying to tell me?
+
+I broke eye contact with Phanna to look at the stones that he was holding.
+
+Noticing this, Phanna handed me one of the stones.
+
+"This one's for you. It reads: 'In memory of those who's journey terminated at Mountainpass.' I made one for Mikay too but he doesn't seem to want it."
+
+"I... see..." I said holding on to new stone Phanna gave me.
+
+The symbols on the rock were the similar to the ones that were on the stone Phanna gave me yesterday.
+
+I could even see that some of them match up.
+
+But it wasn't something I could understand.
+
+I ran my fingers against the engraved symbols and confirmed that these were made in the same way as the rock he gave me yesterday.
+
+The way they felt, the depth of the engraving they were the same as the rock with my name on it.
+
+Holding something like this made me feel a sense of sorrow and relief.
+
+The other people Phanna this rock was made for didn't die, yet it's as Phanna said, they also don't exist anymore.
+
+The person who caused the events of yesterday also wasn't me.
+
+It was me at the same time, but at some point. that person was no longer me.
+
+For the first time, I was looking at the a problem that was caused by someone else.
+
+Is this what it's like to watch my mistakes from the sidelines?
+
+It felt like relief yet at the same time, it also felt uncomfortable.
+
+I didn't know what to make of it all just yet but Phanna's words made me feel much better.
+
+"Thanks" I whispered as I looked at the two rocks with strange symbols engraved into it.
+
+"No problem" Phanna answered rubbing my head.
+
+"So, wanna come out of your room now? There's alot of stuff we have to do today. Also lunch is waiting for you on the table." Phanna said in his usual playfully smug tone.
+
+"Y-Yes." I answered Immediately as I stumbled my way out of bed.
+
+## <center>~<center>
+
+<center><a href="./">Next Chapter</a></center>
