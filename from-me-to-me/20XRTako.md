@@ -238,4 +238,4 @@ I didn't know what to make of it all just yet but Phanna's words made me feel mu
 
 ## <center>~<center>
 
-<center><a href="./">Next Chapter</a></center>
+<center><a href="./o64jXmt0">Next Chapter</a></center>
