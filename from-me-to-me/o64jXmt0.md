@@ -74,7 +74,9 @@ That's why she didn't judge Phanna to be too strong.
 
 Yet even despite this judgement, the elf warrior also knew that the elf queen is often correct about many things. 
 
-In fact, many consider the elf queen the apex of power within the colony.
+Many consider the elf queen the apex of wisdom whil others considered her to be the apex of power.
+
+What the elf queen was didn't matter, all the elf warrior knew was that the elf queen's judgement is rarely ever wrong.
 
 That's why the elf warrior was taken aback by her assessment.
 
